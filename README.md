@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Darkness. When everything that you know and love is taken away from you so harshly. All you can think about is anger, hatred and even revenge. And no one can save you."
+> "You should enjoy the little detours. To the fullest. Because that's where you'll find the things more important than what you want."
 
-&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ging Freecss**](https://myanimelist.net/character.php?q=Ging%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
