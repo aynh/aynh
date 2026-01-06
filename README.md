@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "God spares no salvation to those who would beg for it. Nor is he merciful to those who would beseech his benevolence. These petty requests are no invocation to god. They are your death."
+> "You don't need to blame yourself just because you've hurt someone, just like when you're walking you can't really blame yourself to crush some ants... that's what being stronger ones means."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Shuu Tsukiyama**](https://myanimelist.net/character.php?q=Shuu%20Tsukiyama&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
