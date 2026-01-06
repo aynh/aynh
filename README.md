@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your unconditional trust is more than I'm willing to bear."
+> "Darkness. When everything that you know and love is taken away from you so harshly. All you can think about is anger, hatred and even revenge. And no one can save you."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
