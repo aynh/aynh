@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Miracles are illusions caused by insufficient observation and understanding. They're just... glorious misunderstandings."
+> "If a person you love doesn't love you back, you're worthless. That's what I always told myself."
 
-&mdash; [**Tanya Degurechaff**](https://myanimelist.net/character.php?q=Tanya%20Degurechaff&cat=character), [**Youjo Senki**](https://myanimelist.net/search/all?q=Youjo%20Senki&cat=all)
+&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
