@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say the temperature of tea and a women's heart are difficult in any age."
+> "You should cry while you still can. When you get bigger, sometimes, you can't cry even if you have something you wanna cry about."
 
-&mdash; [**Ronove**](https://myanimelist.net/character.php?q=Ronove&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
