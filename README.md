@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Water is mysterious, isn't it?. It can become vapor. It can become snow. It may take various forms, but in reality - it's all water. Even if it's invisible to our eyes, it cannot disappear from this world."
+> "Those who rely on 'someday' will only grow weaker and lowlier."
 
-&mdash; [**Saki**](https://myanimelist.net/character.php?q=Saki&cat=character), [**Steel Angel Kurumi**](https://myanimelist.net/search/all?q=Steel%20Angel%20Kurumi&cat=all)
+&mdash; [**Shana**](https://myanimelist.net/character.php?q=Shana&cat=character), [**Shakugan no Shana**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana&cat=all)
