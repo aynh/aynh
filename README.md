@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "First, we are born in the same galaxy. Born of the same species. Our lifetimes overlap. The meetings between humans are so unlikely as to be miraculous. To laugh, to cry, and to fall in love... Everyone is made up of a collection of 1% chances. Thus, I'm dazzled by the fact that there are so many miracles in this world."
+> "You know, in the end, people come home to the people they love most."
 
-&mdash; [**Kou Ichinomiya**](https://myanimelist.net/character.php?q=Kou%20Ichinomiya&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
+&mdash; [**Karan**](https://myanimelist.net/character.php?q=Karan&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
