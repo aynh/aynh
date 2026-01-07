@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Brilliant people shine more brightly than ordinary ones. They never regret or agonize over what they've done."
+> "“Expectations” are what you have when you have given up. Expectations are born from a despairingly large difference in skill."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night: Unlimited Blade Works TV**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night%3A%20Unlimited%20Blade%20Works%20TV&cat=all)
+&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
