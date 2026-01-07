@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never once thought that the world was fair, but some things will never change. If you want things to change, don't wait for someone to do it for you, go change it yourself."
+> "First, we are born in the same galaxy. Born of the same species. Our lifetimes overlap. The meetings between humans are so unlikely as to be miraculous. To laugh, to cry, and to fall in love... Everyone is made up of a collection of 1% chances. Thus, I'm dazzled by the fact that there are so many miracles in this world."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Kou Ichinomiya**](https://myanimelist.net/character.php?q=Kou%20Ichinomiya&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
