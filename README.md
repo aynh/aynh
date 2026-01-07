@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are two things people fear... those are death and embarrassment. Those who try to overcome death are just idiots, but I won't laugh at those who try to overcome their embarrassment. I like those kind of idiots."
+> "In exchange of being able to get something that normal people can't have... you must let go of what normal people have."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Aki Ogasawara**](https://myanimelist.net/character.php?q=Aki%20Ogasawara&cat=character), [**Kanojo wa Uso wo Aishisugiteru**](https://myanimelist.net/search/all?q=Kanojo%20wa%20Uso%20wo%20Aishisugiteru&cat=all)
