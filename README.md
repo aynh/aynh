@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't abuse and use people for your own convenience."
+> "Although I'm weak and full of flaws, I will never stop moving forward. No matter who I am, no one other than myself will create my own existence. No matter what others may think or feel, I will still move forward as myself."
 
-&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
