@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I envy you. You've been betrayed and hurt, yet you can still forgive each other. I envy you for having such a great friend."
+> "People like you will never understand... Although it is true that many humans are stupid, immature, and high school drop outs... But! Humans possess the power of possibilities!"
 
-&mdash; [**Kuroyukihime**](https://myanimelist.net/character.php?q=Kuroyukihime&cat=character), [**Accel World**](https://myanimelist.net/search/all?q=Accel%20World&cat=all)
+&mdash; [**Inferno Cop**](https://myanimelist.net/character.php?q=Inferno%20Cop&cat=character), [**Inferno Cop**](https://myanimelist.net/search/all?q=Inferno%20Cop&cat=all)
