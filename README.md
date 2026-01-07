@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should cry while you still can. When you get bigger, sometimes, you can't cry even if you have something you wanna cry about."
+> "Well, life is like the weather. It can be sunny or cloudy. Sometimes it rains, and sometimes it storms."
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
