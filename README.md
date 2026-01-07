@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, life is like the weather. It can be sunny or cloudy. Sometimes it rains, and sometimes it storms."
+> "Please don't tell people our bakery's motorbike ran you over."
 
-&mdash; [**Deneil Young**](https://myanimelist.net/character.php?q=Deneil%20Young&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Haruko Haruhara**](https://myanimelist.net/character.php?q=Haruko%20Haruhara&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
