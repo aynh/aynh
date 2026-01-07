@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Although I'm weak and full of flaws, I will never stop moving forward. No matter who I am, no one other than myself will create my own existence. No matter what others may think or feel, I will still move forward as myself."
+> "There are some things you can gain by letting some things go. Happiness isn't just what you have here and now."
 
-&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Kunio Yaobi**](https://myanimelist.net/character.php?q=Kunio%20Yaobi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
