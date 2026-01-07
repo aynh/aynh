@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "“Expectations” are what you have when you have given up. Expectations are born from a despairingly large difference in skill."
+> "Luck of the draw isn’t about luck. Luck doesn’t decide a match!"
 
-&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
