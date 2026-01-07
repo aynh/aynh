@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, in the end, people come home to the people they love most."
+> "Water is mysterious, isn't it?. It can become vapor. It can become snow. It may take various forms, but in reality - it's all water. Even if it's invisible to our eyes, it cannot disappear from this world."
 
-&mdash; [**Karan**](https://myanimelist.net/character.php?q=Karan&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
+&mdash; [**Saki**](https://myanimelist.net/character.php?q=Saki&cat=character), [**Steel Angel Kurumi**](https://myanimelist.net/search/all?q=Steel%20Angel%20Kurumi&cat=all)
