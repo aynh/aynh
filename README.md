@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, Shu, have you ever read a picture book called 'The Kind King'? The king was really kind, he gave everyone money and land, until finally... the country was gone. The people were all mad at the king. But I really loved him. I think he was my first love. You're like that king, Shu. The way you lose because of your kindness. You know what? I think you're going to be a great king."
+> "You don't abuse and use people for your own convenience."
 
-&mdash; [**Menjou Hare**](https://myanimelist.net/character.php?q=Menjou%20Hare&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
