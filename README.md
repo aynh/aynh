@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You asked me if I was ready to carry on. In all honesty, I am not sure of myself. But there is something that must be done now. And I will do it."
+> "However, even if it is reckless... I don't think someone who is making their best effort to try and break through the current situation is foolish."
 
-&mdash; [**Bishamonten**](https://myanimelist.net/character.php?q=Bishamonten&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
