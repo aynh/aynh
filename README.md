@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You need someone else to become more disciplined. No matter how hard you try by yourself, there´s a limit."
+> "Someday... no matter how cold it is now... the snow will melt. Without fail."
 
-&mdash; [**Ukai Keishin**](https://myanimelist.net/character.php?q=Ukai%20Keishin&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
