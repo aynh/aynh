@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One can hardly lose what one does not already have."
+> "You need someone else to become more disciplined. No matter how hard you try by yourself, there´s a limit."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Ukai Keishin**](https://myanimelist.net/character.php?q=Ukai%20Keishin&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
