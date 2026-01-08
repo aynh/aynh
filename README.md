@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can die anytime, but living takes true courage."
+> "Hey! Hold on, come back! I'll tell you what! I can lower those 1,000 provisions down to 800, just as long as you take part in the five hour story telling party."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
