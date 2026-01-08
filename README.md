@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe nothing in this world happens by accident. As everything happens for a reason, our destiny slowly takes form..."
+> "Time gives us happiness, but it can also take everything away from us."
 
-&mdash; [**Silvers Rayleigh**](https://myanimelist.net/character.php?q=Silvers%20Rayleigh&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Conrad Weller**](https://myanimelist.net/character.php?q=Conrad%20Weller&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
