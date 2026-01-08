@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Applying knowledge is of the utmost importance when studying. You wrestle with various things and come up with a solution from there. It's true that asking someone who knows the answer is the quickest. But you can't necessarily say that that's the best way, don't you think?"
+> "Maybe nothing in this world happens by accident. As everything happens for a reason, our destiny slowly takes form..."
 
-&mdash; [**Asakura Ryouko**](https://myanimelist.net/character.php?q=Asakura%20Ryouko&cat=character), [**The Disappearance of Nagato Yuki-chan**](https://myanimelist.net/search/all?q=The%20Disappearance%20of%20Nagato%20Yuki-chan&cat=all)
+&mdash; [**Silvers Rayleigh**](https://myanimelist.net/character.php?q=Silvers%20Rayleigh&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
