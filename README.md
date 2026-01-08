@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't do any good to pretend you can't see what's going on."
+> "A sound soul dwells within a sound mind and a sound body."
 
-&mdash; [**Yuuya Mochizuki**](https://myanimelist.net/character.php?q=Yuuya%20Mochizuki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
