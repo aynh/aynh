@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Duke Nightray* You've let your own son die for the honor of your household and other such rubbish. You've lost almost all of your family, and yet all you can think of is your own interests."
+> "It's times like this that I wish I could come up with an appropriate response.  I hate myself for not being able to reply properly."
 
-&mdash; [**Vincent Nightray**](https://myanimelist.net/character.php?q=Vincent%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
