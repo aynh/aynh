@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey! Hold on, come back! I'll tell you what! I can lower those 1,000 provisions down to 800, just as long as you take part in the five hour story telling party."
+> "A half moon. A bright half and a dark half. Just like me."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Gasai Yuno**](https://myanimelist.net/character.php?q=Gasai%20Yuno&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
