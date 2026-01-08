@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "However, even if it is reckless... I don't think someone who is making their best effort to try and break through the current situation is foolish."
+> "It doesn't do any good to pretend you can't see what's going on."
 
-&mdash; [**Su-won**](https://myanimelist.net/character.php?q=Su-won&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Yuuya Mochizuki**](https://myanimelist.net/character.php?q=Yuuya%20Mochizuki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
