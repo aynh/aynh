@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A sound soul dwells within a sound mind and a sound body."
+> "Applying knowledge is of the utmost importance when studying. You wrestle with various things and come up with a solution from there. It's true that asking someone who knows the answer is the quickest. But you can't necessarily say that that's the best way, don't you think?"
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Asakura Ryouko**](https://myanimelist.net/character.php?q=Asakura%20Ryouko&cat=character), [**The Disappearance of Nagato Yuki-chan**](https://myanimelist.net/search/all?q=The%20Disappearance%20of%20Nagato%20Yuki-chan&cat=all)
