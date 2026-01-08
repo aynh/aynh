@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The person that needs to be as far away from the H-bomb switch as possible in all of Japan, is right here."
+> "I'll marry you! No matter what kind of sickness you have! Even if you can't walk or stand, or even when you can't have kids! I'll still marry you! No matter where or how I meet you, I'll fall in love with you. If I can meet you again, against the 6 billion to 1 odds, and even if your body can't move, I'll marry you."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
