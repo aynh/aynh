@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've told you, this isn't a cigarette. It's a lollipop!"
+> "Dummy. I'm not gonna dwell on what happened forever. All that junk... it's the furthest thing on my mind. You should especially quit worrying about it and get some more sleep. Hurry up and get rid of your Panda eyes, got it?"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
