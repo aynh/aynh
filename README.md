@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes you can't see what's right in front of you."
+> "Kurosaki-kun... I'm weak, so it's always like I turn back to look to you for help. But now I won't turn back and I'll go forward. The next time we meet I won't look to you for help, Kurosaki-kun, I'll be able to fight on my own."
 
-&mdash; [**Ryuunosuke Uryuu**](https://myanimelist.net/character.php?q=Ryuunosuke%20Uryuu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
