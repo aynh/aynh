@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am content with just being a flower, blooming and withering away… that’s all I ever needed."
+> "Even if the truth is as one suspects, it may still be worthless."
 
-&mdash; [**Dune**](https://myanimelist.net/character.php?q=Dune&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
+&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
