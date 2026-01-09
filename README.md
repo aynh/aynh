@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every human being thinks different things are right, and different things are wrong. Whether something is normal or not, it is still different for every person. Happiness is the same – everyone has their own definition of it."
+> "When people have an overwhelming advantage, they sometimes take on a little risk to try and show off their superiority over the losers."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Ushiromiya Kyrie**](https://myanimelist.net/character.php?q=Ushiromiya%20Kyrie&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
