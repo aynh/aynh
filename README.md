@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For one that turns against God to come in person to receive judgement... Today is a good day!"
+> "Dying or getting killed isn't something unnatural. Living aimlessly without a purpose is."
 
-&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
