@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dummy. I'm not gonna dwell on what happened forever. All that junk... it's the furthest thing on my mind. You should especially quit worrying about it and get some more sleep. Hurry up and get rid of your Panda eyes, got it?"
+> "I've only lived 18 years, but I don't want to change any of them. They're all part of my life, even the failures."
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
