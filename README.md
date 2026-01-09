@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those people had us dancing right in the palms of their hands, didn't they? I guess it doesn't matter what we do. We'll never be the ones in control."
+> "Every human being thinks different things are right, and different things are wrong. Whether something is normal or not, it is still different for every person. Happiness is the same – everyone has their own definition of it."
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
