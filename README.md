@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dying or getting killed isn't something unnatural. Living aimlessly without a purpose is."
+> "I am content with just being a flower, blooming and withering away… that’s all I ever needed."
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Dune**](https://myanimelist.net/character.php?q=Dune&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
