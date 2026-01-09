@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how sturdy something appears, it should have some weakness."
+> "A man has the right to dream. There are endless possibilities stretched out before him."
 
-&mdash; [**Susanoo**](https://myanimelist.net/character.php?q=Susanoo&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Outlaw Star**](https://myanimelist.net/character.php?q=Outlaw%20Star&cat=character), [**Outlaw Star**](https://myanimelist.net/search/all?q=Outlaw%20Star&cat=all)
