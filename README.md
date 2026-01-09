@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This has nothing to do with will. There is neither an egg that refuses to hatch nor a seed that evades it's eventual sprouting."
+> "Those people had us dancing right in the palms of their hands, didn't they? I guess it doesn't matter what we do. We'll never be the ones in control."
 
-&mdash; [**Scythe Master**](https://myanimelist.net/character.php?q=Scythe%20Master&cat=character), [**Phantom: Requiem For The Phantom**](https://myanimelist.net/search/all?q=Phantom%3A%20Requiem%20For%20The%20Phantom&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
