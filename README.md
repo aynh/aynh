@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Some people think the act of investing efforts, trying your best is more precious than the result. But for mentors as well as their pupils, that approach feels bitter. 'I did my best', 'the fight was close'... words like that blow past and die out like a wind. Only the result is a stone. The stone you can reach by doing your best."
+> "No matter how sturdy something appears, it should have some weakness."
 
-&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Susanoo**](https://myanimelist.net/character.php?q=Susanoo&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
