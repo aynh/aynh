@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It seems we have an unforseen problem. A rather annoying fly buzzing around."
+> "Romance is just trying to convey your feelings to another person."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Tadashi Isogai**](https://myanimelist.net/character.php?q=Tadashi%20Isogai&cat=character), [**Living for the Day After Tomorrow**](https://myanimelist.net/search/all?q=Living%20for%20the%20Day%20After%20Tomorrow&cat=all)
