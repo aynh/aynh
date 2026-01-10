@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen here. Don't say you can't. Words bind you the minute you say them. Believe in yourself! You can do anything!"
+> "Don't cry. It will make your face even uglier."
 
-&mdash; [**Tenka Kumō**](https://myanimelist.net/character.php?q=Tenka%20Kum%C5%8D&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
+&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
