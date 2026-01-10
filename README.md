@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't cry. It will make your face even uglier."
+> "I never said I was a witch did I? You just made that assumption all on your own. I'm really just a cat with a ridiculous amount of magical power."
 
-&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Blair**](https://myanimelist.net/character.php?q=Blair&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
