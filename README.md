@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone makes mistakes. What's important is how to make up for it."
+> "Madoka. My only friend... If... If it's for your sake... I don't mind being locked in this eternal maze!"
 
-&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
