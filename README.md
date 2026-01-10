@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Know that the only people you can save like that are the ones that survive."
+> "[After Hatori asks what snow becomes when it melts]Ah...um, well...hmm. It becomes spring! No matter how cold it is now, spring will come again! Without fail. It's strange isn't it? But it's true."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
