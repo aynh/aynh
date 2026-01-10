@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never said I was a witch did I? You just made that assumption all on your own. I'm really just a cat with a ridiculous amount of magical power."
+> "A person can work for their ideals. But if you lose sight of those ideals, when things don't work out as you hoped, you'll never accomplish anything! You won't be able to protect yourself or those dear to you."
 
-&mdash; [**Blair**](https://myanimelist.net/character.php?q=Blair&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Hiroomi Nase**](https://myanimelist.net/character.php?q=Hiroomi%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
