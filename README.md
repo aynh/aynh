@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't like it, the dark circles under my eyes will come back and I don't know how to deal with the dark circles!"
+> "If you are doing it, I'm doing it. If I don't do it, will you? If you don't do it, I'll do it. I'm doing it so that you'll do it too!!"
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kamina**](https://myanimelist.net/character.php?q=Kamina&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
