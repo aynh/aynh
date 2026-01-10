@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you are doing it, I'm doing it. If I don't do it, will you? If you don't do it, I'll do it. I'm doing it so that you'll do it too!!"
+> "We have no reason to fear death, for we have become ghosts while still alive."
 
-&mdash; [**Kamina**](https://myanimelist.net/character.php?q=Kamina&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
+&mdash; [**Goose Perkins**](https://myanimelist.net/character.php?q=Goose%20Perkins&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
