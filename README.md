@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This steak is too well done. Take it back and make it rare."
+> "I don't like it, the dark circles under my eyes will come back and I don't know how to deal with the dark circles!"
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
