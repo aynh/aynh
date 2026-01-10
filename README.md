@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tears are handy for washing away troubling and sad feelings. But when you grow up, you'll learn that there are things so sad, they can never be washed away by tears. That there are painful memories that should never be washed away. So people who are truly strong laugh when they want to cry. They endure all of the pain and sorrow while laughing with everybody else."
+> "Seeing nature and thinking it's beautiful is what's unnatural. That means the life you lead is an unclean one. If you can cut yourself off from mother nature and still survive, doesn't it mean you have enough inner beauty to allow you to do that?"
 
-&mdash; [**Obi Hajime**](https://myanimelist.net/character.php?q=Obi%20Hajime&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Souhei Saikawa**](https://myanimelist.net/character.php?q=Souhei%20Saikawa&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
