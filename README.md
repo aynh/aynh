@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trust me, you don't want to make the whole world your enemy. At the very least, you have a friend in me."
+> "Good is predicated on corruption and evil."
 
-&mdash; [**Abel Nightroad**](https://myanimelist.net/character.php?q=Abel%20Nightroad&cat=character), [**Trinity Blood**](https://myanimelist.net/search/all?q=Trinity%20Blood&cat=all)
+&mdash; [**Tamaki Tsunenaga**](https://myanimelist.net/character.php?q=Tamaki%20Tsunenaga&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
