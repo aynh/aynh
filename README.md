@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One can evoke 'extraordinary' abilities if one focuses all energy on just one point."
+> "Everyone makes mistakes. What's important is how to make up for it."
 
-&mdash; [**Shindo Iroha**](https://myanimelist.net/character.php?q=Shindo%20Iroha&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
