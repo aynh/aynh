@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If that bullet could also kill a player in the real world, and if you didn't shoot them, you or someone you loved would be killed, could you still pull the trigger?"
+> "Eat Harkonnen, bitch!"
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Seras Victoria**](https://myanimelist.net/character.php?q=Seras%20Victoria&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
