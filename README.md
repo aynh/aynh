@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Eat Harkonnen, bitch!"
+> "Adoration never leads to a balanced relationship."
 
-&mdash; [**Seras Victoria**](https://myanimelist.net/character.php?q=Seras%20Victoria&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Ami Kawashima**](https://myanimelist.net/character.php?q=Ami%20Kawashima&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
