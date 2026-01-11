@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether you're alive, dead, or living dead... Loneliness is still loneliness... It's the same thing... Nothing changes. There are no different categories of loneliness. It's just loneliness."
+> "I pull the trigger. The gun goes off. Your brains splatter all over the sand. The beach gets bloody and you get dead."
 
-&mdash; [**Kurosu Etsurou**](https://myanimelist.net/character.php?q=Kurosu%20Etsurou&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
+&mdash; [**Bando**](https://myanimelist.net/character.php?q=Bando&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
