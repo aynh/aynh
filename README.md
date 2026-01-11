@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder what sort of criteria you use to divide people into good and evil."
+> "If that bullet could also kill a player in the real world, and if you didn't shoot them, you or someone you loved would be killed, could you still pull the trigger?"
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
