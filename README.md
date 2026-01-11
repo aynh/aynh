@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...Watermelon. Or like a panda with a mean face, or like sandals with pressure points drawn on them, or the smell of a blackboard eraser, or a Sunday morning where you wake up and it's raining. Well, I like him more than hard bread."
+> "Hinata... this is the unalterable difference in strength... the distinction that separates the elite from the failure. This is the unchangeable reality. From the moment you said you wouldn't run, your defeat was inevitable. The only possible outcome was your present despair... Withdraw!"
 
-&mdash; [**Mamimi Samejima**](https://myanimelist.net/character.php?q=Mamimi%20Samejima&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Neji Hyuuga**](https://myanimelist.net/character.php?q=Neji%20Hyuuga&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
