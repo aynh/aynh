@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Magic is anything you can think of. It can be felt in infinite ways... As light, as darkness, as red, as blue. It is living freely, together along side Fairy Tail."
+> "Eat Harkonnen, bitch!"
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Seras Victoria**](https://myanimelist.net/character.php?q=Seras%20Victoria&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
