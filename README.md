@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A journey of a thousand miles begins with a single step. Even though each step is small, you never know if you'll end up achieving your major goal."
+> "Those stars look like they're close to each other, but they're actually very far away, aren't they? It's like Kitamura-kun and I. The things you see aren't always real. How hard must I try in order to understand the unseen truth?"
 
-&mdash; [**Ensei Rou**](https://myanimelist.net/character.php?q=Ensei%20Rou&cat=character), [**The Story of Saiunkoku**](https://myanimelist.net/search/all?q=The%20Story%20of%20Saiunkoku&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
