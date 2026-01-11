@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have memories no one else remembers, what's the point in remembering them?"
+> "To sum up, that is what led to number 679 of the 1,000 provisions you must observe. Always place a dehumidifier in your room."
 
-&mdash; [**Liu Cheng-Long**](https://myanimelist.net/character.php?q=Liu%20Cheng-Long&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
