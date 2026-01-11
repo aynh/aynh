@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I pull the trigger. The gun goes off. Your brains splatter all over the sand. The beach gets bloody and you get dead."
+> "Tired hands are better than none."
 
-&mdash; [**Bando**](https://myanimelist.net/character.php?q=Bando&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
