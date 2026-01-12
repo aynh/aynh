@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I give my best and am told that I’m useless, then that’s my own fault. But being considered useless, without having even tried, is something I can’t allow."
+> "I don't mind losing to someone, but I won't be beaten by myself."
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
