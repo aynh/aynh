@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's the use of looking towards the past? If past data dictates reality... then our 33,1 winning percentage last year means we shouldn't even be playing the Mariners and their 66,7 winning percentage."
+> "Everyone is the main character of their own life."
 
-&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
+&mdash; [**Kaito Kuroba**](https://myanimelist.net/character.php?q=Kaito%20Kuroba&cat=character), [**Magic Kaito**](https://myanimelist.net/search/all?q=Magic%20Kaito&cat=all)
