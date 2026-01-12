@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I despise you with my last breath. My spirit will not forget that all consuming hatred.  So long that you live, my spirit can not be free. *to Inuyasha*"
+> "You give up your future, lose your dream, are stained with despair... yet at the same time, you shake off you past, fight reality, and never lose your nobility."
 
-&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
