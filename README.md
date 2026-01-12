@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Some people think the act of investing efforts, trying your best is more precious than the result. But for mentors as well as their pupils, that approach feels bitter. 'I did my best', 'the fight was close'... words like that blow past and die out like a wind. Only the result is a stone. The stone you can reach by doing your best."
+> "You've just gained the privilege to kill."
 
-&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Tatsumi**](https://myanimelist.net/character.php?q=Tatsumi&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
