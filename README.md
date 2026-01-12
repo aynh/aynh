@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone is the main character of their own life."
+> "It seems I have overestimated you quite a bit. Your evolution did not even satisfy my expectations. This is the end."
 
-&mdash; [**Kaito Kuroba**](https://myanimelist.net/character.php?q=Kaito%20Kuroba&cat=character), [**Magic Kaito**](https://myanimelist.net/search/all?q=Magic%20Kaito&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
