@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love means money these days."
+> "How sad it would be if laughter should disappear."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Undertaker**](https://myanimelist.net/character.php?q=Undertaker&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
