@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because I love you, I want to rip you apart. I want to pile corpses before you."
+> "Let's just say... what's mine is mine, and what's yours... is also mine."
 
-&mdash; [**Kazutaka Muraki**](https://myanimelist.net/character.php?q=Kazutaka%20Muraki&cat=character), [**Yami no Matsuei**](https://myanimelist.net/search/all?q=Yami%20no%20Matsuei&cat=all)
+&mdash; [**Hajime Saitou**](https://myanimelist.net/character.php?q=Hajime%20Saitou&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
