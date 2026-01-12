@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It seems I have overestimated you quite a bit. Your evolution did not even satisfy my expectations. This is the end."
+> "Whenever people see birds flying through the sky, it's said that they get the urge to go on a journey."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
