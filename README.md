@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not about doing what it takes to win. Sei-chan told me before 'Winning is just like breathing'. Victory isn't something that Sei-chan seeks. It's a natural part of his life. It's a basic bodily function."
+> "Quotes were invented in Korea, you know!"
 
-&mdash; [**Reo Mibuchi**](https://myanimelist.net/character.php?q=Reo%20Mibuchi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**South Korea**](https://myanimelist.net/character.php?q=South%20Korea&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
