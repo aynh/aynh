@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It sucks, but you can't reach a happy ending just by doing what's right all the time. Actually, the more people get stubborn and insist they're in the right, the further away happiness gets."
+> "He feared sleep. He'd say that his soul would slip down into nothing. They say that man never dreamt after the day he cut his pillow."
 
-&mdash; [**Junko Kaname**](https://myanimelist.net/character.php?q=Junko%20Kaname&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
