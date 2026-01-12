@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's just say... what's mine is mine, and what's yours... is also mine."
+> "What's the use of looking towards the past? If past data dictates reality... then our 33,1 winning percentage last year means we shouldn't even be playing the Mariners and their 66,7 winning percentage."
 
-&mdash; [**Hajime Saitou**](https://myanimelist.net/character.php?q=Hajime%20Saitou&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
