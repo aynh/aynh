@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Quotes were invented in Korea, you know!"
+> "A boss is someone who puts his life on the line for his subordinates."
 
-&mdash; [**South Korea**](https://myanimelist.net/character.php?q=South%20Korea&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Reborn**](https://myanimelist.net/character.php?q=Reborn&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
