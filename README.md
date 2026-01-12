@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You give up your future, lose your dream, are stained with despair... yet at the same time, you shake off you past, fight reality, and never lose your nobility."
+> "It's not about doing what it takes to win. Sei-chan told me before 'Winning is just like breathing'. Victory isn't something that Sei-chan seeks. It's a natural part of his life. It's a basic bodily function."
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Reo Mibuchi**](https://myanimelist.net/character.php?q=Reo%20Mibuchi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
