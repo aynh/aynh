@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In order to achieve something there are some things that you have to be unsatisfied with in the first place. Having a complex is the source to greatness."
+> "It sucks, but you can't reach a happy ending just by doing what's right all the time. Actually, the more people get stubborn and insist they're in the right, the further away happiness gets."
 
-&mdash; [**Takane Saibara**](https://myanimelist.net/character.php?q=Takane%20Saibara&cat=character), [**Takane to Hana**](https://myanimelist.net/search/all?q=Takane%20to%20Hana&cat=all)
+&mdash; [**Junko Kaname**](https://myanimelist.net/character.php?q=Junko%20Kaname&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
