@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A boss is someone who puts his life on the line for his subordinates."
+> "When you protect someone you want to keep safe, do you always weigh your own life against theirs?"
 
-&mdash; [**Reborn**](https://myanimelist.net/character.php?q=Reborn&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Hak Son**](https://myanimelist.net/character.php?q=Hak%20Son&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
