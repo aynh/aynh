@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you protect someone you want to keep safe, do you always weigh your own life against theirs?"
+> "It is actually more difficult to trust those who have no talent for scheming."
 
-&mdash; [**Hak Son**](https://myanimelist.net/character.php?q=Hak%20Son&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Lemrina Vers Envers**](https://myanimelist.net/character.php?q=Lemrina%20Vers%20Envers&cat=character), [**Aldnoah.Zero 2nd Season**](https://myanimelist.net/search/all?q=Aldnoah.Zero%202nd%20Season&cat=all)
