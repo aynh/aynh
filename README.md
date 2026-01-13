@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is actually more difficult to trust those who have no talent for scheming."
+> "Relying on someone else without exerting any effort of your own is just not right. Because the one you rely on most, can disappear, at any time."
 
-&mdash; [**Lemrina Vers Envers**](https://myanimelist.net/character.php?q=Lemrina%20Vers%20Envers&cat=character), [**Aldnoah.Zero 2nd Season**](https://myanimelist.net/search/all?q=Aldnoah.Zero%202nd%20Season&cat=all)
+&mdash; [**Jodie Starling**](https://myanimelist.net/character.php?q=Jodie%20Starling&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
