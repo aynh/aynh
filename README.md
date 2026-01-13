@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All human beings can only perceive the world through the filter of their values. Mediocre values may be harmless, but they are also utterly worthless."
+> "The day when you'll understand me... will never come..."
 
-&mdash; [**Moral**](https://myanimelist.net/character.php?q=Moral&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Saruhiko Fushimi**](https://myanimelist.net/character.php?q=Saruhiko%20Fushimi&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
