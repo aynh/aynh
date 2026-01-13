@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To me, Kawai-san is like a mirror. A mirror that reflects all the bad parts about you. A devil-like mirror that contaminates your heart."
+> "All human beings can only perceive the world through the filter of their values. Mediocre values may be harmless, but they are also utterly worthless."
 
-&mdash; [**Yuusuke Kanda**](https://myanimelist.net/character.php?q=Yuusuke%20Kanda&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Moral**](https://myanimelist.net/character.php?q=Moral&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
