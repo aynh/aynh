@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does math bring out your wrath?"
+> "Even if you're weak, there are miracles you can seize with your hands if you fight on to the very end."
 
-&mdash; [**Shun Izuki**](https://myanimelist.net/character.php?q=Shun%20Izuki&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
