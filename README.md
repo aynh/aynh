@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ladies and gentlemen, THE FLAMEO'S!"
+> "We were born as weapons and we loved the power that came with it. Nothing could scare us. We walked around town like we owned the place, taking whatever we wanted whenever we wanted it. No one ever thought to ask what our lives were really like."
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
