@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Making a fuss won't fix anything."
+> "Does math bring out your wrath?"
 
-&mdash; [**Hak Son**](https://myanimelist.net/character.php?q=Hak%20Son&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Shun Izuki**](https://myanimelist.net/character.php?q=Shun%20Izuki&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
