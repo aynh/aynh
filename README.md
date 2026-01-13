@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ignorance is bliss, isn't it?"
+> "The choices we make in life have unlimited possibilities."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Rem Saverem**](https://myanimelist.net/character.php?q=Rem%20Saverem&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
