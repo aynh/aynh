@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're scared, you might as well just cling to my arm. Creates more of an atmosphere."
+> "Men are not men on the battlefield. We turn into some other creature. You can do the cruelest things... It doesn't even matter if it's an order or not. To protect yourself, your mind shuts out any emotions you have. It's like a steel door. But once the war is over, you can't keep it closed forever."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Fullmetal Alchemist**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
