@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A sword is a weapon. The art of swordsmanship is learning how to kill. What Miss Kaoru says is nothing but sweet and innocent talk, only those whose hands have never been stained with the blood of man can believe."
+> "If you're scared, you might as well just cling to my arm. Creates more of an atmosphere."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
