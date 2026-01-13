@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things I don't want to forget... Memories of time spent with friends. Memories of time spent with her alone. Memories are important. But there's something even more important... That's to continue making memories."
+> "Ladies and gentlemen, THE FLAMEO'S!"
 
-&mdash; [**Yūki Hase**](https://myanimelist.net/character.php?q=Y%C5%ABki%20Hase&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
