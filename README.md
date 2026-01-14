@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well it's not like the world is full of sunshine and daisies. If society was only shaped by the view that one must be happy-go-lucky all the time, Hollywood wouldn't make tear-jerking movies, would they?"
+> "Everyday was the same. Deep down, I felt bored. But it wasn't the days that felt boring. It was being just like everyone else."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru.**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.&cat=all)
+&mdash; [**Sorata Kanda**](https://myanimelist.net/character.php?q=Sorata%20Kanda&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
