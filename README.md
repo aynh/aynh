@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Justice? Truth? More than anything else existing in this world, those things are a burden! The things that are needed are 'acting' to deceive people and 'power' to control others."
+> "Only a foolish human would attempt to rationalize emotion."
 
-&mdash; [**Natsu Tanimoto**](https://myanimelist.net/character.php?q=Natsu%20Tanimoto&cat=character), [**KenIchi the Mightiest Disciple**](https://myanimelist.net/search/all?q=KenIchi%20the%20Mightiest%20Disciple&cat=all)
+&mdash; [**Makina**](https://myanimelist.net/character.php?q=Makina&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
