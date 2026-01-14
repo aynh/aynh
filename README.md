@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I love flowers. They look so good... On me."
+> "All of the Arrancar follow me... because they see me as fearless and the only individual who can actually bring forth the new world... the new future where you can belong. Without me, that dream can't be fulfilled and without me the gotei 13 will destroy you all...  Do you see it now from my point of view?"
 
-&mdash; [**Evergreen**](https://myanimelist.net/character.php?q=Evergreen&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
