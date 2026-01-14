@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm a terrible person, aren't I? 'If only Kurosaki-kun would cheer up, I'd be happy.' At least, I thought that was how I felt. Then Kuchiki-san came back and cheered Kurosaki-kun up. I should have been really happy, but... but... [starts to cry] but instead I'm jealous of Kuchiki-san!"
+> "Beautiful flowers, too, eventually wither and fall. That's the fate of all living beings."
 
-&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
