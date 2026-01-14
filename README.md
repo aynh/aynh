@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "By looking at what's blocking our way, with an open mind, a wall can be turned into a wide-open door."
+> "I find it fascinating how we can see something with our eyes, hear with our ears and speak from our mouths. Although science tells us how they work, I just really can't grasp it. I don't know how everyday items like phones work. I can't even explain why a bicycle is fast. When I think like this, I wonder how many things I really understand. Yet I can live on. Because all these mysteries have joined together to keep me alive. Sometimes I admire that before I go to bed."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Mifune Ryouko**](https://myanimelist.net/character.php?q=Mifune%20Ryouko&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
