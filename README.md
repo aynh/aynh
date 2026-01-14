@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a person could so ideally control their feelings... how carefree would life be?"
+> "Cheer up. No matter how hopeless you are, even if everyone else abandons you, I’ll always be here for you."
 
-&mdash; [**Jun Isurugi**](https://myanimelist.net/character.php?q=Jun%20Isurugi&cat=character), [**True Tears**](https://myanimelist.net/search/all?q=True%20Tears&cat=all)
+&mdash; [**Kousaka Kirino**](https://myanimelist.net/character.php?q=Kousaka%20Kirino&cat=character), [**Ore No Imouto Ga Konna Ni Kawaii Wake Ga Nai**](https://myanimelist.net/search/all?q=Ore%20No%20Imouto%20Ga%20Konna%20Ni%20Kawaii%20Wake%20Ga%20Nai&cat=all)
