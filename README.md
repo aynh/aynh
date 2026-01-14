@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think Romeo likes Juliet!"
+> "If a person could so ideally control their feelings... how carefree would life be?"
 
-&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Jun Isurugi**](https://myanimelist.net/character.php?q=Jun%20Isurugi&cat=character), [**True Tears**](https://myanimelist.net/search/all?q=True%20Tears&cat=all)
