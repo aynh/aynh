@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cheer up. No matter how hopeless you are, even if everyone else abandons you, I’ll always be here for you."
+> "I love flowers. They look so good... On me."
 
-&mdash; [**Kousaka Kirino**](https://myanimelist.net/character.php?q=Kousaka%20Kirino&cat=character), [**Ore No Imouto Ga Konna Ni Kawaii Wake Ga Nai**](https://myanimelist.net/search/all?q=Ore%20No%20Imouto%20Ga%20Konna%20Ni%20Kawaii%20Wake%20Ga%20Nai&cat=all)
+&mdash; [**Evergreen**](https://myanimelist.net/character.php?q=Evergreen&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
