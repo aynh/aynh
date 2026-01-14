@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only a foolish human would attempt to rationalize emotion."
+> "I think Romeo likes Juliet!"
 
-&mdash; [**Makina**](https://myanimelist.net/character.php?q=Makina&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
