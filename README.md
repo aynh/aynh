@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's true, crying unexpectedly does make you feel better. When you're an adult you forget that."
+> "By looking at what's blocking our way, with an open mind, a wall can be turned into a wide-open door."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
