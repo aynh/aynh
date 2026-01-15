@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't help you. I belong to a world where all is death. Your world of choices was not meant for me to interfere with."
+> "Sometimes the things that matter the most are right in front of you."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
