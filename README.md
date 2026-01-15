@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A student who is too loyal to his master has no chance of surpassing that master... A mutinous spirit is the source of independence."
+> "*to Hige* Coming from you, that sounds kind of fishy."
 
-&mdash; [**Boris Konev**](https://myanimelist.net/character.php?q=Boris%20Konev&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
