@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do not allow anyone acting against me to look down upon me."
+> "A student who is too loyal to his master has no chance of surpassing that master... A mutinous spirit is the source of independence."
 
-&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Boris Konev**](https://myanimelist.net/character.php?q=Boris%20Konev&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
