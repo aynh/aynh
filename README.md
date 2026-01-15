@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having the love of your life break up with you and say 'we can still be friends', is like your dog dying and your mom saying 'you can still keep it'."
+> "The sun may be wonderful but can you live on that alone? We all live because of the wind, the clouds, and the rain. They're not things you can throw out just because they're temporarily inconvenient, right?"
 
-&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
+&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
