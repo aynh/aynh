@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Be more confident despite your weaknesses and failures."
+> "If training hard can make you number one, then how many number one do you think this world will have!?"
 
-&mdash; [**Tsunayoshi Sawada**](https://myanimelist.net/character.php?q=Tsunayoshi%20Sawada&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Kazuma Mikura**](https://myanimelist.net/character.php?q=Kazuma%20Mikura&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
