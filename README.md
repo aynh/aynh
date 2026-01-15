@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Beautiful flowers, too, eventually wither and fall. That's the fate of all living beings."
+> "The spring of my heart surges upon the sight of your fresh smile, my love."
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
