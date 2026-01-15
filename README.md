@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a beautiful night. It almost makes me want to go out for a bite to drink."
+> "We can't let the past be mere water under the bridge. Even so, there's no reason that we can't come together."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
