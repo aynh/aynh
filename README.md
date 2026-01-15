@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I won't die no matter what. That's what I believe, so stay silent and believe in me. I am a guy who will never die."
+> "A man who inflicts suffering can't rest. His guilty mind won't allow it. But today, I can finally close my eyes to the living nightmare. And lay down, knowing that I won't wake again."
 
-&mdash; [**Claire Stanfield**](https://myanimelist.net/character.php?q=Claire%20Stanfield&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
