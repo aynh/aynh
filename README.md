@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A man who inflicts suffering can't rest. His guilty mind won't allow it. But today, I can finally close my eyes to the living nightmare. And lay down, knowing that I won't wake again."
+> "I do not allow anyone acting against me to look down upon me."
 
-&mdash; [**Scar**](https://myanimelist.net/character.php?q=Scar&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
