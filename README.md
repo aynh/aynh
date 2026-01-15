@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If training hard can make you number one, then how many number one do you think this world will have!?"
+> "I won't die no matter what. That's what I believe, so stay silent and believe in me. I am a guy who will never die."
 
-&mdash; [**Kazuma Mikura**](https://myanimelist.net/character.php?q=Kazuma%20Mikura&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Claire Stanfield**](https://myanimelist.net/character.php?q=Claire%20Stanfield&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
