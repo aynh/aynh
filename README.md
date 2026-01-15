@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We can't let the past be mere water under the bridge. Even so, there's no reason that we can't come together."
+> "You always seem to get in my way, Mu La Flaga! Though I imagine you would probably say the same about me!"
 
-&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
