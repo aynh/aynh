@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's pointless to force people to do their best if they don't want to."
+> "It's a beautiful night. It almost makes me want to go out for a bite to drink."
 
-&mdash; [**Hansode Shiranui**](https://myanimelist.net/character.php?q=Hansode%20Shiranui&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
