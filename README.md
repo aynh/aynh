@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a person encounters that which they cannot understand, what do they do? Why, they think. But you know, the more you think about something, the further you get from the truth. Yes. Your thoughts get in the way of what your instincts desire. In the way of the real answer."
+> "Love is like a mirror that reflects your bad side. Especially when it’s unrequited, you get envious, jealous, prejudiced, and resentful. You have to face all sorts of emotions, but there’s no reason to find that shameful. It shows how serious you are. Oh yeah, do you want me to tell you how to break that mirror? It’s not anything hard, understand the other person. That’s all. Don’t make any quick judgment and let them do the same."
 
-&mdash; [**Fumito Nanahara**](https://myanimelist.net/character.php?q=Fumito%20Nanahara&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
+&mdash; [**Margery Daw**](https://myanimelist.net/character.php?q=Margery%20Daw&cat=character), [**Shakugan no Shana**](https://myanimelist.net/search/all?q=Shakugan%20no%20Shana&cat=all)
