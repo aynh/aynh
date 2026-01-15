@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's show him...that the good guys always win."
+> "I can't help you. I belong to a world where all is death. Your world of choices was not meant for me to interfere with."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
