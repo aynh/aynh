@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The spring of my heart surges upon the sight of your fresh smile, my love."
+> "It's pointless to force people to do their best if they don't want to."
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Hansode Shiranui**](https://myanimelist.net/character.php?q=Hansode%20Shiranui&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
