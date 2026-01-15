@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You always seem to get in my way, Mu La Flaga! Though I imagine you would probably say the same about me!"
+> "Let's show him...that the good guys always win."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
