@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Please don't worry, Mister, I only came here to obliterate you – not rob you."
+> "People with talent often have the wrong impression that things will go as they think."
 
-&mdash; [**Excel**](https://myanimelist.net/character.php?q=Excel&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
+&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
