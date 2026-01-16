@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People with talent often have the wrong impression that things will go as they think."
+> "Whenever I look at you, I'm reminded about everything I hate about myself. It hurts."
 
-&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
