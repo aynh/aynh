@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want out of this damn moat!"
+> "My abusive language is alchemized through 40 kg copper, 25 kg of zinc, 15 kg of nickel, 5 kg of ice that keeps my cool, and 97 kg of spite."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
