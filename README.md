@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "History dictates that it is the wise who are most foolish."
+> "I hate butterflies. I hate them for being pretty. I hate them for being easy to catch. And having pins stuck through their body and being turned into specimens is what I hate most."
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Agatsuma Soubi**](https://myanimelist.net/character.php?q=Agatsuma%20Soubi&cat=character), [**Loveless**](https://myanimelist.net/search/all?q=Loveless&cat=all)
