@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even though I'm bitter over losing, even though I'm depressed, even though my ankle hurts, and my eyes are smeared with tears...even though I've never felt worse...I wonder why the stars are sparkling like this. The scent of the music room in his hair. I can hear his slightly ragged breathing. His shoulder, wet with tears, is so warm. I am by his side. I wish time would just stand still."
+> "You are too young to worry about failure. In a pinch, just muddle through. The outcome won't change, so that's best."
 
-&mdash; [**Tsubaki Sawabe**](https://myanimelist.net/character.php?q=Tsubaki%20Sawabe&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Bang**](https://myanimelist.net/character.php?q=Bang&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
