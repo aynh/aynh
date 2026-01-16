@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bonds that are too strong create flaws over time."
+> "The truth is, there are no lives that are nothing but pretty."
 
-&mdash; [**Road Kamelot**](https://myanimelist.net/character.php?q=Road%20Kamelot&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
