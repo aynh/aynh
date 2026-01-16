@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Never beg and earn by winning or else you won't get anything."
+> "Please don't worry, Mister, I only came here to obliterate you – not rob you."
 
-&mdash; [**Renton Thurston**](https://myanimelist.net/character.php?q=Renton%20Thurston&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Excel**](https://myanimelist.net/character.php?q=Excel&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
