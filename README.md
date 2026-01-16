@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are too young to worry about failure. In a pinch, just muddle through. The outcome won't change, so that's best."
+> "Bonds that are too strong create flaws over time."
 
-&mdash; [**Bang**](https://myanimelist.net/character.php?q=Bang&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Road Kamelot**](https://myanimelist.net/character.php?q=Road%20Kamelot&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
