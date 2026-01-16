@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The role of the young is to break new ground without fear of failure. Remain in memories, not record books! Lose the battle, win the war!"
+> "But even if I acted sad over it, nothing would change. Even if I cry, nothing would change."
 
-&mdash; [**Kawafuji Takao**](https://myanimelist.net/character.php?q=Kawafuji%20Takao&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
