@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate all these damn rich people."
+> "Sanae-san told me, places that I can cry are in a toilet, or in daddy's arms."
 
-&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Okazaki Ushio**](https://myanimelist.net/character.php?q=Okazaki%20Ushio&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
