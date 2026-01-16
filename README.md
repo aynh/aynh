@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever I look at you, I'm reminded about everything I hate about myself. It hurts."
+> "You, who've taken on his name, have managed – well, nothing."
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
