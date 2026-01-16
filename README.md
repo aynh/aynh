@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not a crime! Caring about your friends is not a crime!"
+> "No matter how cold and distant people may become, on the inside something warm and precious always remains, something that never changes. To me, that’s what family is like."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Sakagami Tomoyo**](https://myanimelist.net/character.php?q=Sakagami%20Tomoyo&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
