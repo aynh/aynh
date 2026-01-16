@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate butterflies. I hate them for being pretty. I hate them for being easy to catch. And having pins stuck through their body and being turned into specimens is what I hate most."
+> "Never beg and earn by winning or else you won't get anything."
 
-&mdash; [**Agatsuma Soubi**](https://myanimelist.net/character.php?q=Agatsuma%20Soubi&cat=character), [**Loveless**](https://myanimelist.net/search/all?q=Loveless&cat=all)
+&mdash; [**Renton Thurston**](https://myanimelist.net/character.php?q=Renton%20Thurston&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
