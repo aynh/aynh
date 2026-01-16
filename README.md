@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your grievance shall be avenged."
+> "The role of the young is to break new ground without fear of failure. Remain in memories, not record books! Lose the battle, win the war!"
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Kawafuji Takao**](https://myanimelist.net/character.php?q=Kawafuji%20Takao&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
