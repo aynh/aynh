@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm here because I don't like to be tied down. So you should decide for yourself who you want for your friend."
+> "History dictates that it is the wise who are most foolish."
 
-&mdash; [**Hayabusa Shou**](https://myanimelist.net/character.php?q=Hayabusa%20Shou&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
