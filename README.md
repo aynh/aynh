@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how cold and distant people may become, on the inside something warm and precious always remains, something that never changes. To me, that’s what family is like."
+> "I'm here because I don't like to be tied down. So you should decide for yourself who you want for your friend."
 
-&mdash; [**Sakagami Tomoyo**](https://myanimelist.net/character.php?q=Sakagami%20Tomoyo&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Hayabusa Shou**](https://myanimelist.net/character.php?q=Hayabusa%20Shou&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
