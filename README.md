@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Self-sacrifice... A nameless shinobi who protects peace within its shadow. That is a true shinobi."
+> "About the 1,000 provisions that you are required to observe. Now I would like for you to participate in the most important provision. Number 452 the 5 hour story telling party."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
