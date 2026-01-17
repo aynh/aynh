@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who forgive themselves, and are able to accept their true nature... They are the strong ones!"
+> "*to Inuyasha* You fight as though you're still a child."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
