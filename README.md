@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Inuyasha* You fight as though you're still a child."
+> "If you use your head, you won't get fat even if you eat sweets."
 
-&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
