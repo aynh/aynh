@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "“Miracles don't exist in this world. All that exists are accidents, inevitabilities and the actions that one takes.” That’s Himura’s favorite phrase, isn’t it? But sometimes the outcome of your actions, which becomes inevitable, will overlap with accidents, and fulfill your dream unexpectedly. I don’t know if that can be called a miracle, but there’s one thing I’m certain about. Nothing will happen if you don’t wish for it."
+> "We ran through our school that was filled with noises, screams, life and death."
 
-&mdash; [**ef: a tale of memories**](https://myanimelist.net/character.php?q=ef%3A%20a%20tale%20of%20memories&cat=character), [**ef: a tale of memories**](https://myanimelist.net/search/all?q=ef%3A%20a%20tale%20of%20memories&cat=all)
+&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
