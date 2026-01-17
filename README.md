@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You men. All of you, you're horrible. Cheating on every woman. But you, you I actually decided to trust. I put my faith in you. I can't believe this. I wish that all of you would just die!"
+> "Only hope can give rise to the emotion we call despair. But it is nearly impossible for a man to try to live without hope, so I guess that leaves Man no choice but to walk around with despair as his companion."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kagetoki Kariya**](https://myanimelist.net/character.php?q=Kagetoki%20Kariya&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
