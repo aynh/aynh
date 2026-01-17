@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tomorrow's promise will never come. I wonder how many of tomorrow's promises have disappeared as though they have never existed."
+> "The past is just the past. There's no inherent value in getting over it or catching up to it."
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
