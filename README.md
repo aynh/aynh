@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you use your head, you won't get fat even if you eat sweets."
+> "Tomorrow's promise will never come. I wonder how many of tomorrow's promises have disappeared as though they have never existed."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
