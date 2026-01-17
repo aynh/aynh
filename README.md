@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Despair to the ones who become swelled with pride."
+> "There's nothing happy about having your fate decided for you! You have to grab your own happiness!"
 
-&mdash; [**Truth**](https://myanimelist.net/character.php?q=Truth&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
