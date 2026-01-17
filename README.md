@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So how long will it be, then? How long before you're no longer cursed to walk the earth...?"
+> "Those who forgive themselves, and are able to accept their true nature... They are the strong ones!"
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
