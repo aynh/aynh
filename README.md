@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Men select women based on emotion. Even if there's a reason, it's only secondary. However, women select men based on reason. Either by something like his class ranking or his standing in society."
+> "Even if you lose all memory in your head, the ones engraved in your heart and the ones that exist in your soul will never disappear, no matter what happens."
 
-&mdash; [**Makina**](https://myanimelist.net/character.php?q=Makina&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gekijōban Gintama Kanketsu-hen: Yorozuya yo Eien Nare**](https://myanimelist.net/search/all?q=Gekij%C5%8Dban%20Gintama%20Kanketsu-hen%3A%20Yorozuya%20yo%20Eien%20Nare&cat=all)
