@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you lose all memory in your head, the ones engraved in your heart and the ones that exist in your soul will never disappear, no matter what happens."
+> "See, 'empty' just means you have plenty of room to take in all kinds of new things. Fun things, precious things, painful things, things you've never seen before!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gekijōban Gintama Kanketsu-hen: Yorozuya yo Eien Nare**](https://myanimelist.net/search/all?q=Gekij%C5%8Dban%20Gintama%20Kanketsu-hen%3A%20Yorozuya%20yo%20Eien%20Nare&cat=all)
+&mdash; [**Hana N. Fontainestand**](https://myanimelist.net/character.php?q=Hana%20N.%20Fontainestand&cat=character), [**Hanayamata**](https://myanimelist.net/search/all?q=Hanayamata&cat=all)
