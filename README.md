@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He wouldn't notice if I got a crew cut, shaved my head bald, or even grew an afro!"
+> "Consume wine, don't let the wine consume you."
 
-&mdash; [**Riku Harada**](https://myanimelist.net/character.php?q=Riku%20Harada&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
