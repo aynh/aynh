@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So shut up about 'destiny' and...how people can't change! 'Cause... unlike me... you're not a 'failure'."
+> "Adlet, I hated you. I hated the fact that I was starting to believe in you. I still hate you. The more I talk to you, the more I hate you. I believe you, even though I decided to never believe anyone again."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Fremy Speedraw**](https://myanimelist.net/character.php?q=Fremy%20Speedraw&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
