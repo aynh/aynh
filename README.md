@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "See, 'empty' just means you have plenty of room to take in all kinds of new things. Fun things, precious things, painful things, things you've never seen before!"
+> "Soul! Soul! Are you okay?! You are going to be alright - Black Star is here for you now!! Open your eyes! One look at my big handsome face and you'll be cured for sure!"
 
-&mdash; [**Hana N. Fontainestand**](https://myanimelist.net/character.php?q=Hana%20N.%20Fontainestand&cat=character), [**Hanayamata**](https://myanimelist.net/search/all?q=Hanayamata&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
