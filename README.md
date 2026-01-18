@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if all the confidence and pride you've built over the years is blown to pieces by a major failure, even if you've had a soul-crushing experience, you still have to open the shop the next day. That's who chefs are."
+> "You're so gullible! Don't you have any standards? So if I told you to spin around, you'd do it? If they told you to jump off a cliff, would you do that, too? I can't stand people who have no individuality!! (To Tohru)"
 
-&mdash; [**Sōma Yukihira**](https://myanimelist.net/character.php?q=S%C5%8Dma%20Yukihira&cat=character), [**Shokugeki no Sōma: Ni no Sara**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma%3A%20Ni%20no%20Sara&cat=all)
+&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
