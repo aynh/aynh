@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there are people you would call naturals, because they were gifted with talent, and if my two rivals (Florence Alicia and Glory Athena) are such naturals, then I just need to have a talent that exceeds theirs, through hard work. Yes, I just have to become a prodigy."
+> "People who kill too much, turn into dragons one day. Beasts that rule the land atop piles of money and fly the skies with authority. They become more and more violent, until they can no longer understand the language of men. We cannot allow dragons to remain in this world, even though we are the ones from which they are spawned. To slay a dragon is the greatest of honors."
 
-&mdash; [**Ferrari Akira E.**](https://myanimelist.net/character.php?q=Ferrari%20Akira%20E.&cat=character), [**Aria the Origination**](https://myanimelist.net/search/all?q=Aria%20the%20Origination&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
