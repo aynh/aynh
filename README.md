@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only thing waiting for you outside is a world of death."
+> "If you don't feel anything for me, just leave me alone. I don't want your tepid kindness."
 
-&mdash; [**Re-L Mayer**](https://myanimelist.net/character.php?q=Re-L%20Mayer&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
+&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
