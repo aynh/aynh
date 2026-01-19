@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll enjoy shaving you to death."
+> "Embrace your dreams...and whatever happens, protect your honor...AS SOLDIER!"
 
-&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Zack Fair**](https://myanimelist.net/character.php?q=Zack%20Fair&cat=character), [**Final Fantasy VII: Crisis Core**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Crisis%20Core&cat=all)
