@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you tell a bald man his head is useful in the dark, you'll get punched in the face. Santa Claus says such cruel things."
+> "No idiot would want to be friends with an unmoving, unspeaking telephone pole. However, unmoving and unspeaking is exactly what you'd want from a telephone pole."
 
-&mdash; [**Ayumu Kasuga**](https://myanimelist.net/character.php?q=Ayumu%20Kasuga&cat=character), [**Azumanga Daioh**](https://myanimelist.net/search/all?q=Azumanga%20Daioh&cat=all)
+&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
