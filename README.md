@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It’s vulgar and foolish to spend all your time thinking about love!"
+> "Any man who has the brains to think and the nerve to act for the benefit of the people of the country, is considered a radical, by those who are content with stagnation and willing to endure disaster."
 
-&mdash; [**Kanade Ōe**](https://myanimelist.net/character.php?q=Kanade%20%C5%8Ce&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
