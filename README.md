@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Defying me till the very end, huh? But I'll forgive you. Some things are beautiful exactly because they are unobtainable."
+> "You're not a good-for-nothing person. I think that being able to try your hardest to be something is a talent by itself."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
