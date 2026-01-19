@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're not a good-for-nothing person. I think that being able to try your hardest to be something is a talent by itself."
+> "If you tell a bald man his head is useful in the dark, you'll get punched in the face. Santa Claus says such cruel things."
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Ayumu Kasuga**](https://myanimelist.net/character.php?q=Ayumu%20Kasuga&cat=character), [**Azumanga Daioh**](https://myanimelist.net/search/all?q=Azumanga%20Daioh&cat=all)
