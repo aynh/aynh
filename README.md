@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gai...what I said earlier...I was out of line. I was being a self-righteous fool. I realize now that if I'd been in your shoes, I probably couldn't have stopped him, either."
+> "The world might seem boring. But, if you just look, you'll find all kinds of crazy stuff. The world is the best form of entertainment. Something like this couldn't just have happened by chance. There must be a writer writing the stories of more than five-billion people. And the only thing we could possibly call this person is God."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ryuunosuke Uryuu**](https://myanimelist.net/character.php?q=Ryuunosuke%20Uryuu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
