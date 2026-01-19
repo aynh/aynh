@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True kindness isn't something we're born with. It's something we had to work on... (to Tohru)"
+> "Humans, in general, feel uneasy when there’s dissonance between them and their external environment. And so, to cancel that uneasiness they try to synchronize (or make peace) with that environment."
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
