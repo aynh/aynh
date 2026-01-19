@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life has no weight in itself; it’s a concept created by the observer that does not have a definite form. Essentially, life does not entail multiple instances but is just one massive wobbly lump. However, we tend to refer to the bodies that were formed out of that giant lump as “lives”. The essence of life is in all of us and can’t be “stolen” or “born.” As long as the essence of life exists, life does not decrease or increase, and it certainly won’t disappear."
+> "It’s vulgar and foolish to spend all your time thinking about love!"
 
-&mdash; [**Hoshino Kazuki**](https://myanimelist.net/character.php?q=Hoshino%20Kazuki&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Kanade Ōe**](https://myanimelist.net/character.php?q=Kanade%20%C5%8Ce&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
