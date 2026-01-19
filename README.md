@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times when working hard may not be enough. But those who succeed worked hard."
+> "I was reckless when I was young. I educated myself by cursing the heartlessness of the world. The world was cruel - so I made myself more heartless and used that as a weapon, trying to follow through on my ideals."
 
-&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
