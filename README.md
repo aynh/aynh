@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People only have substance within the memories of other people. And that's why there were all kinds of mes. There weren't a lot of mes per se, I was just inside all sorts of people, that's all."
+> "There are times when working hard may not be enough. But those who succeed worked hard."
 
-&mdash; [**Lain Iwakura**](https://myanimelist.net/character.php?q=Lain%20Iwakura&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
+&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
