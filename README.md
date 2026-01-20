@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hatred and sorrow are power; they are yours to control. All you have to do is turn them into strength, and use that strength to move forward."
+> "You shouldn't judge something without trying it first. Having a variety of experiences is what makes life worth living."
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Leticia Draculair**](https://myanimelist.net/character.php?q=Leticia%20Draculair&cat=character), [**Mondaiji-tachi Ga Isekai Kara Kuru Sou Desu Yo?**](https://myanimelist.net/search/all?q=Mondaiji-tachi%20Ga%20Isekai%20Kara%20Kuru%20Sou%20Desu%20Yo%3F&cat=all)
