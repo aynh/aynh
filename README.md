@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our hearts beat in the same rhythm, so why does time flow differently for the two of us?"
+> "Play to the last note, and leave no regrets."
 
-&mdash; [**Saya Otonashi**](https://myanimelist.net/character.php?q=Saya%20Otonashi&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
+&mdash; [**Kiyora Miki**](https://myanimelist.net/character.php?q=Kiyora%20Miki&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
