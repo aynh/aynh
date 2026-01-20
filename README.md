@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if things are painful and tough, people should appreciate what it means to be alive."
+> "Hatred and sorrow are power; they are yours to control. All you have to do is turn them into strength, and use that strength to move forward."
 
-&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
