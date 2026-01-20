@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you get all worked up yourself, you’ll always get someone who’ll rebel. Being too eager brings negative results."
+> "Humans who lose the capacity to think become creatures who's existence has no value. Think, you humans who are split into two worlds, unless you want the gulf between humans to expand into oblivion, you must think!"
 
-&mdash; [**Sagara Misae**](https://myanimelist.net/character.php?q=Sagara%20Misae&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Michael Seebach**](https://myanimelist.net/character.php?q=Michael%20Seebach&cat=character), [**The Big O**](https://myanimelist.net/search/all?q=The%20Big%20O&cat=all)
