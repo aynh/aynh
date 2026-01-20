@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone starts doing the right thing, the others will follow."
+> "Even if things are painful and tough, people should appreciate what it means to be alive."
 
-&mdash; [**Ronaldo Kuriki**](https://myanimelist.net/character.php?q=Ronaldo%20Kuriki&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
