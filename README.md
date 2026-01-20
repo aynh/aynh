@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A fallen angel banished from heaven, arises into the light to be recieved by the benevolence of God..."
+> "[To Lan Fan] Brat, quit blabbering on about trifling topics such as love and sadness. Don't underestimate us. She's the woman I chose. A will is unnecessary between us. That's usually how it is between a King and his companion."
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
