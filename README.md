@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Any man who has the brains to think and the nerve to act for the benefit of the people of the country, is considered a radical, by those who are content with stagnation and willing to endure disaster."
+> "You yourself have to change first, or nothing will change for you!"
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
