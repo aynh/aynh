@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a foolish thing, the human heart. Sometimes we fail to operate logically, and act on emotions."
+> "What if, and this is strictly hypothetical, what if you could reload your save data to change your previous choice, like in a game? Would it change your life? The answer is a resounding no."
 
-&mdash; [**Ichijiku Chisato**](https://myanimelist.net/character.php?q=Ichijiku%20Chisato&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
