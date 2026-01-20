@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Gajeel Redfox* You guys are complete idiots! I feel so sorry for you, I think I'm tearing up. Phantom Lord? The spirit ruler? What a joke; I'm not afraid of you at all!"
+> "Gohan, let it go. It is not a sin to fight for the right cause. There are those who words alone will not reach."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Android 16**](https://myanimelist.net/character.php?q=Android%2016&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
