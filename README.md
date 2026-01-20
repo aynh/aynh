@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn't judge something without trying it first. Having a variety of experiences is what makes life worth living."
+> "Hope is like a treasure, which you cannot carry alone."
 
-&mdash; [**Leticia Draculair**](https://myanimelist.net/character.php?q=Leticia%20Draculair&cat=character), [**Mondaiji-tachi Ga Isekai Kara Kuru Sou Desu Yo?**](https://myanimelist.net/search/all?q=Mondaiji-tachi%20Ga%20Isekai%20Kara%20Kuru%20Sou%20Desu%20Yo%3F&cat=all)
+&mdash; [**Sayonara Zetsubou Sensei**](https://myanimelist.net/character.php?q=Sayonara%20Zetsubou%20Sensei&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
