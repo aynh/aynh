@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gohan, let it go. It is not a sin to fight for the right cause. There are those who words alone will not reach."
+> "If you get all worked up yourself, you’ll always get someone who’ll rebel. Being too eager brings negative results."
 
-&mdash; [**Android 16**](https://myanimelist.net/character.php?q=Android%2016&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Sagara Misae**](https://myanimelist.net/character.php?q=Sagara%20Misae&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
