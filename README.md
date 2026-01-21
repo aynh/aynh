@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how hard or impossible it is, never lose sight of your goal."
+> "Please tell me, if I could never have happiness in real life, can't I at least get to dream about it sometimes?"
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Cal Devens**](https://myanimelist.net/character.php?q=Cal%20Devens&cat=character), [**Phantom: Requiem For The Phantom**](https://myanimelist.net/search/all?q=Phantom%3A%20Requiem%20For%20The%20Phantom&cat=all)
