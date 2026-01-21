@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't perform the same trick twice with one audience. If performed only once, the magic leaves a strong impression. It will then blossom into a beautiful miracle in their hearts. But, when used twice, rather than the audience enjoying the magic, they focus on unraveling the trick. As such, the chance of it being unveiled is high."
+> "Kira... what are you thinking about, now?"
 
-&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
