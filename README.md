@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whose fault is it that things ended up like this? Coincidence? An accident? Fate? There's no such thing as fate. It's simply a combination of one circumstance and the next. And who is it that creates those circumstances? Who is it? It's you."
+> "They say some defeats are meaningful and losing makes you stronger. Do you understand what that means? For living creatures victory is life, and defeat means death. It's an extreme example, but humans retain that instinct. Those who know the terror of defeat, hunger for victory."
 
-&mdash; [**Rize Kamishiro**](https://myanimelist.net/character.php?q=Rize%20Kamishiro&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
