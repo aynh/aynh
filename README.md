@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[On first seeing Kyo] The ceiling... Is he hurt...? Wh-who... Well, hello, orange-head..."
+> "The Commander-General's rather violent today, wouldn't you say?"
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
