@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "DYNAMIC ENTRY!"
+> "A mystery... (Haru says this a lot, usually when it's not a mystery at all)"
 
-&mdash; [**Might Guy**](https://myanimelist.net/character.php?q=Might%20Guy&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
