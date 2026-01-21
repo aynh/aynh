@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Checkmate' doesn't mean you've simply cornered the enemy king. It's a declaration that the enemy king is yours. That's why I said it the first time I met you. 'Checkmate.'"
+> "So she knows how to smile."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Kento Miura**](https://myanimelist.net/character.php?q=Kento%20Miura&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
