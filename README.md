@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans who lose the capacity to think become creatures who's existence has no value. Think, you humans who are split into two worlds, unless you want the gulf between humans to expand into oblivion, you must think!"
+> "You can't perform the same trick twice with one audience. If performed only once, the magic leaves a strong impression. It will then blossom into a beautiful miracle in their hearts. But, when used twice, rather than the audience enjoying the magic, they focus on unraveling the trick. As such, the chance of it being unveiled is high."
 
-&mdash; [**Michael Seebach**](https://myanimelist.net/character.php?q=Michael%20Seebach&cat=character), [**The Big O**](https://myanimelist.net/search/all?q=The%20Big%20O&cat=all)
+&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
