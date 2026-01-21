@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you keep on hiding your true feelings, who is going to be happy? If you are sad, you should say it out loud!"
+> "If you're looking at a single withered tree, it can seem like a big wound to the forest. But from the forest's perspective, that tree's remains will nourish other plants, acting for the good of the whole forest. If you change your perspective, a situation right in front of you, can reverse itself."
 
-&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
