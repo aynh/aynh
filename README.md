@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What pride... are you saying that you are God's equal?"
+> "When someone does something nice for you… shut up and accept it!"
 
-&mdash; [**Rose Tomas**](https://myanimelist.net/character.php?q=Rose%20Tomas&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Tsugumi**](https://myanimelist.net/character.php?q=Tsugumi&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
