@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They weren't my friends, they were my possessions! Money, women, henchmen... they're all possessions! So killing my henchmen is the same as stealing from me, and I don't let people take what's mine!"
+> "If love is just a word, then why does it hurt so much if you realize it isn't there?"
 
-&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
