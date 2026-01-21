@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're looking at a single withered tree, it can seem like a big wound to the forest. But from the forest's perspective, that tree's remains will nourish other plants, acting for the good of the whole forest. If you change your perspective, a situation right in front of you, can reverse itself."
+> "What pride... are you saying that you are God's equal?"
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Rose Tomas**](https://myanimelist.net/character.php?q=Rose%20Tomas&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
