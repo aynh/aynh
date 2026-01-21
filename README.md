@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When someone does something nice for you… shut up and accept it!"
+> "No matter how hard or impossible it is, never lose sight of your goal."
 
-&mdash; [**Tsugumi**](https://myanimelist.net/character.php?q=Tsugumi&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
