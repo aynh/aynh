@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Um well Miss Maka? Can you do me a favor and help me out with your father? I can't get him off my leg."
+> "My heart was beating so fast, that one heart wasn't enough."
 
-&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
