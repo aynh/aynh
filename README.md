@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bonds that are too strong create flaws over time."
+> "There is no sense in worrying about something you cannot control, so why bother?"
 
-&mdash; [**Road Kamelot**](https://myanimelist.net/character.php?q=Road%20Kamelot&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Yoh Asakura**](https://myanimelist.net/character.php?q=Yoh%20Asakura&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
