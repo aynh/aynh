@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When an otaku goes all-out with his mind set on something you better not underestimate him."
+> "Look what I found! These are packue berries, known to cure the poison of the white jade plant... THAT, or makaoli berries that cause blindness."
 
-&mdash; [**Tomoya Aki**](https://myanimelist.net/character.php?q=Tomoya%20Aki&cat=character), [**Saenai Heroine no Sodatekata**](https://myanimelist.net/search/all?q=Saenai%20Heroine%20no%20Sodatekata&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
