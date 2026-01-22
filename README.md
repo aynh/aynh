@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our contracts are completely dependent upon you agreeing to them first. I think that, in and of itself, is quite kind of us."
+> "For me, despair is not a goal, or a set of principles, or a lifestyle, or even an instinct... It's what defines me as Junko Enoshima! It's just my characterization! That's why I'm able to pursue despair with such purity!"
 
-&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Junko Enoshima**](https://myanimelist.net/character.php?q=Junko%20Enoshima&cat=character), [**Danganronpa The Animation**](https://myanimelist.net/search/all?q=Danganronpa%20The%20Animation&cat=all)
