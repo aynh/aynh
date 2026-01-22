@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A mystery... (Haru says this a lot, usually when it's not a mystery at all)"
+> "Defying me till the very end, huh? But I'll forgive you. Some things are beautiful exactly because they are unobtainable."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
