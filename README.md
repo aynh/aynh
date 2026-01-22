@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They call each other friends, but they are either using others or being used themselves."
+> "I understand your feelings of wanting to bring the bad guy to justice, but do bear with it. It also requires courage to hide oneself."
 
-&mdash; [**Aoyagi Ritsuka**](https://myanimelist.net/character.php?q=Aoyagi%20Ritsuka&cat=character), [**Loveless**](https://myanimelist.net/search/all?q=Loveless&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
