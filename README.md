@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Defying me till the very end, huh? But I'll forgive you. Some things are beautiful exactly because they are unobtainable."
+> "History books are rewritten with the changing of times. At any rate, classroom lectures are worlds apart from the battlefield."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Zess**](https://myanimelist.net/character.php?q=Zess&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
