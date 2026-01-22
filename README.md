@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, you know what I'm talking about. That stupid line that all you Quincies keep saying up until the moment you die. By the honor of the Quincy I cannot do this, by the honor of the Quincy I won't allow that. Quincy this, Quincy that! Every last one of you! It's so annoying!"
+> "Defying me till the very end, huh? But I'll forgive you. Some things are beautiful exactly because they are unobtainable."
 
-&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
