@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Welcome home. Thank you for your great efforts."
+> "Our contracts are completely dependent upon you agreeing to them first. I think that, in and of itself, is quite kind of us."
 
-&mdash; [**Komui Lee**](https://myanimelist.net/character.php?q=Komui%20Lee&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Kyubee**](https://myanimelist.net/character.php?q=Kyubee&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
