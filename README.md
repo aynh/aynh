@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And it seems you've acquired a new power. However, is that all you are capable of achieving with it? This is the end. You will no longer interfere. The sun has already set in our hands."
+> "Oh, you know what I'm talking about. That stupid line that all you Quincies keep saying up until the moment you die. By the honor of the Quincy I cannot do this, by the honor of the Quincy I won't allow that. Quincy this, Quincy that! Every last one of you! It's so annoying!"
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
