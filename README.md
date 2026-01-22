@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So, how about you tell me right now whom you'd like me to kill, and how. I'll treat'cha to it."
+> "When an otaku goes all-out with his mind set on something you better not underestimate him."
 
-&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Tomoya Aki**](https://myanimelist.net/character.php?q=Tomoya%20Aki&cat=character), [**Saenai Heroine no Sodatekata**](https://myanimelist.net/search/all?q=Saenai%20Heroine%20no%20Sodatekata&cat=all)
