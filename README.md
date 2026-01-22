@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My heart was beating so fast, that one heart wasn't enough."
+> "You shouldn't judge something without trying it first. Having a variety of experiences is what makes life worth living."
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Leticia Draculair**](https://myanimelist.net/character.php?q=Leticia%20Draculair&cat=character), [**Mondaiji-tachi Ga Isekai Kara Kuru Sou Desu Yo?**](https://myanimelist.net/search/all?q=Mondaiji-tachi%20Ga%20Isekai%20Kara%20Kuru%20Sou%20Desu%20Yo%3F&cat=all)
