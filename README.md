@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if other people think it’s meaningless, it’s disgusting for me to quit, even when the possibility is 0. Therefore, I will never... Give up !"
+> "To believe in someone can be a dangerous thing."
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**TimeKeeper**](https://myanimelist.net/character.php?q=TimeKeeper&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
