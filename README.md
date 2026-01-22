@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no sense in worrying about something you cannot control, so why bother?"
+> "So, how about you tell me right now whom you'd like me to kill, and how. I'll treat'cha to it."
 
-&mdash; [**Yoh Asakura**](https://myanimelist.net/character.php?q=Yoh%20Asakura&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
