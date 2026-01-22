@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "History books are rewritten with the changing of times. At any rate, classroom lectures are worlds apart from the battlefield."
+> "Even if other people think it’s meaningless, it’s disgusting for me to quit, even when the possibility is 0. Therefore, I will never... Give up !"
 
-&mdash; [**Zess**](https://myanimelist.net/character.php?q=Zess&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
