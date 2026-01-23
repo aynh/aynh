@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think it's natural for people to sacrifice their own lives to save others, surely you understand that sometimes a single death can save many lives."
+> "The interaction of men and women isn't very logical."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Ritsuko Akagi**](https://myanimelist.net/character.php?q=Ritsuko%20Akagi&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
