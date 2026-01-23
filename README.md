@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're right. Whether I ever see that girl again or not, that doesn't change the fact that this promise is important to me. I'm gonna go on treasuring it."
+> "A life with no changes can’t be called life. You can only call it experience."
 
-&mdash; [**Ichijou Raku**](https://myanimelist.net/character.php?q=Ichijou%20Raku&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
