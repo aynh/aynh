@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The interaction of men and women isn't very logical."
+> "To ask is a moment's shame. Not to, lifelong."
 
-&mdash; [**Ritsuko Akagi**](https://myanimelist.net/character.php?q=Ritsuko%20Akagi&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Yotsugi Ononoki**](https://myanimelist.net/character.php?q=Yotsugi%20Ononoki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
