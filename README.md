@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how much is in your heart, if you don’t tell that person, then it’s meaningless."
+> "[to Zuko about Aang] It was not by chance that for generations people have been searching for him, and now you have found him."
 
-&mdash; [**Junjou Romantica**](https://myanimelist.net/character.php?q=Junjou%20Romantica&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
