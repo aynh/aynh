@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To ask is a moment's shame. Not to, lifelong."
+> "I don't think it's completely such a bad thing to cling to one single person, but you have any number of people all around you. People are always connected to one another. You see? Just reach out your hand, and there's someone right here. It's when people realize how lonely it is being on their own, that they start to become kind."
 
-&mdash; [**Yotsugi Ononoki**](https://myanimelist.net/character.php?q=Yotsugi%20Ononoki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
