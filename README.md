@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A dream? That's right. Because there was the past, there is now the present. And because there is the present, we can believe in tomorrow and pursue our dreams."
+> "You're right. Whether I ever see that girl again or not, that doesn't change the fact that this promise is important to me. I'm gonna go on treasuring it."
 
-&mdash; [**Rio Kazumiya**](https://myanimelist.net/character.php?q=Rio%20Kazumiya&cat=character), [**So Ra No Wo To**](https://myanimelist.net/search/all?q=So%20Ra%20No%20Wo%20To&cat=all)
+&mdash; [**Ichijou Raku**](https://myanimelist.net/character.php?q=Ichijou%20Raku&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
