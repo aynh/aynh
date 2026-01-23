@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Looks like Long Feng is long gone! (laughs) Oh, I've been waiting to use that one!"
+> "I'm not just a tool for you to use in order to solve your puzzles, you know!"
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
