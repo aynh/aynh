@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Zuko about Aang] It was not by chance that for generations people have been searching for him, and now you have found him."
+> "*talking about a nosebleed* And why would a girl your age pick hard enough to get a nosebleed?!"
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
