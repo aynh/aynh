@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You see, for as long as we draw breath into our lungs, we shall keep hope alive inside our hearts."
+> "When there's nothing to be gained, rising to the challenge at those times... is surely the mark... of a true hero!!"
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
