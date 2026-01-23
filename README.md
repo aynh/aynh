@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "New eras don't come about because of swords, they're created by the people who wield them."
+> "If you think it's natural for people to sacrifice their own lives to save others, surely you understand that sometimes a single death can save many lives."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
