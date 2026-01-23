@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our world is like a terminal cancer. Saying you’ll change things through individual will is the rambling of a peace-loving fool. Why don’t you understand it’s too late for humanity?!"
+> "We've got no light of hope in our future! Nothing is going to happen! Our lives will be as dull as rocks! Maybe it's a life of boring happiness! But I don't want to be an adult who pretends to be satisfied with it!"
 
-&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
