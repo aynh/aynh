@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*talking about a nosebleed* And why would a girl your age pick hard enough to get a nosebleed?!"
+> "O anger, turn to heat, dry up my brains! This mad thirst for vengeance must be quenched… no matter how cruel and merciless I must become!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
