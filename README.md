@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When there's nothing to be gained, rising to the challenge at those times... is surely the mark... of a true hero!!"
+> "Even though there's such a thing as an impossible game, there's no such thing as an impossible reality."
 
-&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
