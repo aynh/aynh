@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I always thought of humans as intelligent dominoes, since they tend to follow each other."
+> "God, just how long are they going to squabble over such pointless things? They are all the same in my eyes. Nothing but a bunch of trash. Light and Darkness. Good and Evil. Poison and Antidote. Winning and Losing. Strength and Weakness. Black and White. Success and Failure. Happiness or Sorrow... They're all the same after all. Why hasn't everyone realized this already..."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Najimi Ajimu**](https://myanimelist.net/character.php?q=Najimi%20Ajimu&cat=character), [**Medaka Box Abnormal**](https://myanimelist.net/search/all?q=Medaka%20Box%20Abnormal&cat=all)
