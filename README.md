@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Tohru] Ever since you left I've been getting pissed off about everything, and because I couldn't understand why, it just pissed me off even more!"
+> "I'm still a man too, I wanted to look calm and composed in front of everyone. Especially in front of the one I'm in love with."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Ooga Kazuomi**](https://myanimelist.net/character.php?q=Ooga%20Kazuomi&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
