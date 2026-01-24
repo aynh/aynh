@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "God, just how long are they going to squabble over such pointless things? They are all the same in my eyes. Nothing but a bunch of trash. Light and Darkness. Good and Evil. Poison and Antidote. Winning and Losing. Strength and Weakness. Black and White. Success and Failure. Happiness or Sorrow... They're all the same after all. Why hasn't everyone realized this already..."
+> "Sticking through with a lie to protect someone, is probably harder than telling the truth."
 
-&mdash; [**Najimi Ajimu**](https://myanimelist.net/character.php?q=Najimi%20Ajimu&cat=character), [**Medaka Box Abnormal**](https://myanimelist.net/search/all?q=Medaka%20Box%20Abnormal&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
