@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We've got no light of hope in our future! Nothing is going to happen! Our lives will be as dull as rocks! Maybe it's a life of boring happiness! But I don't want to be an adult who pretends to be satisfied with it!"
+> "Once you expect something in return, your good deed is no longer just a good deed."
 
-&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Kayo Senju**](https://myanimelist.net/character.php?q=Kayo%20Senju&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
