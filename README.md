@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Excuse me... I'm not a microphone! I'm a chain scythe."
+> "If you desire one thing for so long, it's a given that you'll miss other things along the way. That's how it is... that's life."
 
-&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Godo**](https://myanimelist.net/character.php?q=Godo&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
