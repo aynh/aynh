@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Jomy is still young, he doesn't know that there will be problems that he can't overcome with just will."
+> "I was wrong, kindness is pointless."
 
-&mdash; [**Soldier Blue**](https://myanimelist.net/character.php?q=Soldier%20Blue&cat=character), [**Terra E**](https://myanimelist.net/search/all?q=Terra%20E&cat=all)
+&mdash; [**Shū Ouma**](https://myanimelist.net/character.php?q=Sh%C5%AB%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
