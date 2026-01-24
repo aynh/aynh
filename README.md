@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you expect something in return, your good deed is no longer just a good deed."
+> "The best way to succeed is to use your own abilities to the fullest."
 
-&mdash; [**Kayo Senju**](https://myanimelist.net/character.php?q=Kayo%20Senju&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Yukio Okumura**](https://myanimelist.net/character.php?q=Yukio%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
