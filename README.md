@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The day when you'll finally understand me... will never come."
+> "Jomy is still young, he doesn't know that there will be problems that he can't overcome with just will."
 
-&mdash; [**Saruhiko Fushimi**](https://myanimelist.net/character.php?q=Saruhiko%20Fushimi&cat=character), [**K**](https://myanimelist.net/search/all?q=K&cat=all)
+&mdash; [**Soldier Blue**](https://myanimelist.net/character.php?q=Soldier%20Blue&cat=character), [**Terra E**](https://myanimelist.net/search/all?q=Terra%20E&cat=all)
