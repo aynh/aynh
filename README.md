@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you destroy the world, the world you wish for won't come."
+> "I came to realize something. Parenthesis are amazing! No matter how negative something sounds, if you throw 'LOL' in some parentheses behind it - it becomes positive!"
 
-&mdash; [**Cho Hakkai**](https://myanimelist.net/character.php?q=Cho%20Hakkai&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
