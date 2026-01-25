@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Revenge never does anyone any good. Killing the person you hate will never ease the pain. Always look forward! Follow the path of light!"
+> "What do you mean I use my sexual charm?!"
 
-&mdash; [**Mikage**](https://myanimelist.net/character.php?q=Mikage&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Misa Amane**](https://myanimelist.net/character.php?q=Misa%20Amane&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
