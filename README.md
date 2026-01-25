@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sticking through with a lie to protect someone, is probably harder than telling the truth."
+> "Conspiracy's evil influence is much closer than you think, and is always ready to deceive you!"
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
