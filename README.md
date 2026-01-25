@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, well, if it isn't the holy monk."
+> "Anyone can say that he likes himself best. When you say that you like someone, you just end up liking yourself in the moment of being with that person, right?"
 
-&mdash; [**Naraku**](https://myanimelist.net/character.php?q=Naraku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Yuusuke Kanda**](https://myanimelist.net/character.php?q=Yuusuke%20Kanda&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
