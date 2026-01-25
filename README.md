@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human beings are cruel. Even though it's heartbreaking, I feel hungry. Even though it's painful, I feel sleepy. And, even though it's painful for me, I still eat and sleep peacefully. I can't forgive myself, and hence it becomes even more painful."
+> "You can't ever win if you're always on the defensive. To win, you have to attack!"
 
-&mdash; [**Asou Renji**](https://myanimelist.net/character.php?q=Asou%20Renji&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
