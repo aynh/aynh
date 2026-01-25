@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you expect something in return, your good deed is no longer just a good deed."
+> "You're happy enough, so don't take away the happiness of others. You should share it."
 
-&mdash; [**Kayo Senju**](https://myanimelist.net/character.php?q=Kayo%20Senju&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Simon Brezhnev**](https://myanimelist.net/character.php?q=Simon%20Brezhnev&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
