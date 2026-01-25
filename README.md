@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyone can say that he likes himself best. When you say that you like someone, you just end up liking yourself in the moment of being with that person, right?"
+> "If you don't feel anything for me, just leave me alone. I don't want your tepid kindness."
 
-&mdash; [**Yuusuke Kanda**](https://myanimelist.net/character.php?q=Yuusuke%20Kanda&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
