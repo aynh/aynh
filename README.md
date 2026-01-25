@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you mean I use my sexual charm?!"
+> "If it's the army's job to end a war, it's the king's job to find a place for it to end."
 
-&mdash; [**Misa Amane**](https://myanimelist.net/character.php?q=Misa%20Amane&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
