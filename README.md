@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is the world too peaceful? Is the future bothersome? Is reality your enemy? Don't worry, even if it is - LIFE IS EPIC."
+> "[To Kyo] Being away from everyone else may be lonely, but being away from you will be even lonelier."
 
-&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
