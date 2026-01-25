@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter how good your armor is... if you can barely move!"
+> "It's okay not to feel 'whole'. Even if you feel only partly complete, if you repeat that enough, it'll eventually be 'whole'. A part... is better than zero."
 
-&mdash; [**Miguel Aiman**](https://myanimelist.net/character.php?q=Miguel%20Aiman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Elhaym Van Houten**](https://myanimelist.net/character.php?q=Elhaym%20Van%20Houten&cat=character), [**Xenogears**](https://myanimelist.net/search/all?q=Xenogears&cat=all)
