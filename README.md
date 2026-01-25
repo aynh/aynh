@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Kyo] Being away from everyone else may be lonely, but being away from you will be even lonelier."
+> "Revenge never does anyone any good. Killing the person you hate will never ease the pain. Always look forward! Follow the path of light!"
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Mikage**](https://myanimelist.net/character.php?q=Mikage&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
