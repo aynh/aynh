@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't ever win if you're always on the defensive. To win, you have to attack!"
+> "Even if you destroy the world, the world you wish for won't come."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Cho Hakkai**](https://myanimelist.net/character.php?q=Cho%20Hakkai&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
