@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's the army's job to end a war, it's the king's job to find a place for it to end."
+> "I'm going to kill you, have a beautiful laugh, then dance until I go mad."
 
-&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
+&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
