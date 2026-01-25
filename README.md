@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay not to feel 'whole'. Even if you feel only partly complete, if you repeat that enough, it'll eventually be 'whole'. A part... is better than zero."
+> "Human beings are cruel. Even though it's heartbreaking, I feel hungry. Even though it's painful, I feel sleepy. And, even though it's painful for me, I still eat and sleep peacefully. I can't forgive myself, and hence it becomes even more painful."
 
-&mdash; [**Elhaym Van Houten**](https://myanimelist.net/character.php?q=Elhaym%20Van%20Houten&cat=character), [**Xenogears**](https://myanimelist.net/search/all?q=Xenogears&cat=all)
+&mdash; [**Asou Renji**](https://myanimelist.net/character.php?q=Asou%20Renji&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
