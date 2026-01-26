@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care what normal people do anymore. I'm going to live my life the way that I want to."
+> "The choices we make in life have unlimited possibilities."
 
-&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Rem Saverem**](https://myanimelist.net/character.php?q=Rem%20Saverem&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
