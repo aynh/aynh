@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world...God's divine creation...Is so brimming with love...Yet there is no love in the hearts of men."
+> "When you feel your life's on the line, your true nature surfaces."
 
-&mdash; [**Canute**](https://myanimelist.net/character.php?q=Canute&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Shinichi Izumi**](https://myanimelist.net/character.php?q=Shinichi%20Izumi&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
