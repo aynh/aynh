@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why shouldn't you quit, if that's what you really want to do? Everything will work out somehow."
+> "That's right, I said destory it."
 
-&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
