@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to Jun* Look at her! Because she hasn't got any boyfriends around she fawns all over her guardian ghost."
+> "Why shouldn't you quit, if that's what you really want to do? Everything will work out somehow."
 
-&mdash; [**Tao Len**](https://myanimelist.net/character.php?q=Tao%20Len&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
