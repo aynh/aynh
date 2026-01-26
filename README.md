@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I really don't know what I should believe in anymore... Even if I believe I'm doing the right thing... Nothing goes well at all."
+> "It's not that I don't trust you all. It's the opposite. I'm going because I believe in you all. You all know this well, right? No matter who betrays me, I won't betray anyone."
 
-&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Tsubaki**](https://myanimelist.net/character.php?q=Tsubaki&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
