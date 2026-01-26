@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only idiots start fights they can't win."
+> "Attention, gun-toting extremists! Can you hear me all right, or did you blow your ears out playing target practice?"
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
