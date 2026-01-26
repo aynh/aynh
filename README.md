@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Enough. I've had enough. I'm dropping out."
+> "The world...God's divine creation...Is so brimming with love...Yet there is no love in the hearts of men."
 
-&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
+&mdash; [**Canute**](https://myanimelist.net/character.php?q=Canute&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
