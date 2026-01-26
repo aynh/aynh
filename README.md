@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The choices we make in life have unlimited possibilities."
+> "[talking about food] The last bite. It is the final one, and the most suitable one to enjoy the most. No matter what it costs, I will not give it up."
 
-&mdash; [**Rem Saverem**](https://myanimelist.net/character.php?q=Rem%20Saverem&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Chouji Akimichi**](https://myanimelist.net/character.php?q=Chouji%20Akimichi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
