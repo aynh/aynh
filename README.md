@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you feel your life's on the line, your true nature surfaces."
+> "Howl, Zabimaru."
 
-&mdash; [**Shinichi Izumi**](https://myanimelist.net/character.php?q=Shinichi%20Izumi&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
