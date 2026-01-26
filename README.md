@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Truly and deeply, thank you for giving, my life to me."
+> "I don't care what normal people do anymore. I'm going to live my life the way that I want to."
 
-&mdash; [**Kanade Tachibana**](https://myanimelist.net/character.php?q=Kanade%20Tachibana&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
