@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[talking about food] The last bite. It is the final one, and the most suitable one to enjoy the most. No matter what it costs, I will not give it up."
+> "I really don't know what I should believe in anymore... Even if I believe I'm doing the right thing... Nothing goes well at all."
 
-&mdash; [**Chouji Akimichi**](https://myanimelist.net/character.php?q=Chouji%20Akimichi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
