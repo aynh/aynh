@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are creatures that dream. Different from others, they want to be special. They want to be adored by others, just like the heroes in comics and games, achieving great things with unique powers. Of course, no one ever believes deep down it will happen. Everyone knows there's no magic in this world."
+> "Only idiots start fights they can't win."
 
-&mdash; [**Yoshiyuki Sakurai**](https://myanimelist.net/character.php?q=Yoshiyuki%20Sakurai&cat=character), [**Da Capo II**](https://myanimelist.net/search/all?q=Da%20Capo%20II&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
