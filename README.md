@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The true evil is becoming apathetic about other people."
+> "If there's an ugly truth, a beautiful truth must exist too. Stories aren't purely ugly. They're not purely tragic or sad either. There are tender things and beautiful things in there."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Konoha Inoue**](https://myanimelist.net/character.php?q=Konoha%20Inoue&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
