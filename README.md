@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Me? A liar? That's almost hurtful. I just don't feel like telling the whole truth."
+> "DON'T LEAVE ME!!"
 
-&mdash; [**William Macbeth**](https://myanimelist.net/character.php?q=William%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
