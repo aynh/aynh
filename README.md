@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If one really wants to change the world...they have to do it by their own hands!"
+> "Eternity is instantaneous, and an instant is eternal."
 
-&mdash; [**Lucy Ashley**](https://myanimelist.net/character.php?q=Lucy%20Ashley&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
