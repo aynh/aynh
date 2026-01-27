@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's my belief that powers aren't meant to hurt people. Nor are they meant to make others happy."
+> "Hope is harmony. A just heart, moving toward the light. That is all. Despair is hope's polar opposite. It is messy and confusing. Despair swallows up love, hatred, and everything else. Because not knowing where you will end up is despair. Despair is what even you cannot predict. Only despair's unpredictability will save you from a boring future."
 
-&mdash; [**Jurai Andou**](https://myanimelist.net/character.php?q=Jurai%20Andou&cat=character), [**Inou Battle wa Nichijou-kei no Naka de**](https://myanimelist.net/search/all?q=Inou%20Battle%20wa%20Nichijou-kei%20no%20Naka%20de&cat=all)
+&mdash; [**Junko Enoshima**](https://myanimelist.net/character.php?q=Junko%20Enoshima&cat=character), [**Danganronpa 3: The End of Kibougamine Gakuen - Zetsubou-hen**](https://myanimelist.net/search/all?q=Danganronpa%203%3A%20The%20End%20of%20Kibougamine%20Gakuen%20-%20Zetsubou-hen&cat=all)
