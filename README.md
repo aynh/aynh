@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are weak. For every cure found, another disease is uncovered. It's a game of chase."
+> "It is far more difficult to capture an enemy than to kill them. Capturing a soldier involves three times the effort and three times the danger. If you wish to save the life of an enemy soldier, remember that you'll lose three of your own in the process."
 
-&mdash; [**Kazutaka Muraki**](https://myanimelist.net/character.php?q=Kazutaka%20Muraki&cat=character), [**Yami no Matsuei**](https://myanimelist.net/search/all?q=Yami%20no%20Matsuei&cat=all)
+&mdash; [**Baldr**](https://myanimelist.net/character.php?q=Baldr&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
