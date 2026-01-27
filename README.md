@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop trying to change things that can't be changed. The past is the past and you have to let it go and embrace the future."
+> "In the long flow of time, living things know nothing of their ancestors, except for the genes they’ve inherited. Only mankind has history. Having a history differentiates mankind from all other living species. That’s why I wanted to be a historian."
 
-&mdash; [**Jack Atlas**](https://myanimelist.net/character.php?q=Jack%20Atlas&cat=character), [**Yu-Gi-Oh! 5D's**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%205D's&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
