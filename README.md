@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think Monster Beast Doughnut is a perfect name."
+> "I wasn't always fighting for love and justice. I was fighting for my friends and loved ones."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Usagi Tsukino**](https://myanimelist.net/character.php?q=Usagi%20Tsukino&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
