@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s only one difference between heroes and mad men. It’s whether they win or lose."
+> "Me? A liar? That's almost hurtful. I just don't feel like telling the whole truth."
 
-&mdash; [**Lambdadelta**](https://myanimelist.net/character.php?q=Lambdadelta&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**William Macbeth**](https://myanimelist.net/character.php?q=William%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
