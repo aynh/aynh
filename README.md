@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wasn't always fighting for love and justice. I was fighting for my friends and loved ones."
+> "Then, if he accepts who you are, it doesn't matter if you're perfect for him or not. Rather, he may prefer you just the way you are now."
 
-&mdash; [**Usagi Tsukino**](https://myanimelist.net/character.php?q=Usagi%20Tsukino&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
+&mdash; [**Tanaka**](https://myanimelist.net/character.php?q=Tanaka&cat=character), [**Tanaka-kun wa Itsumo Kedaruge**](https://myanimelist.net/search/all?q=Tanaka-kun%20wa%20Itsumo%20Kedaruge&cat=all)
