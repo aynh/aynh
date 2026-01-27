@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Actually... Ponytails turn me on... that ponytail you had back then, it looked so good it was criminal!"
+> "The ability to understand others just by touching definitely exists. There might not be any reason to be afraid of touching and being touched by others, or hugging and being hugged by others."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
