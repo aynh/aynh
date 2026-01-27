@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm actually a hardcore otaku who likes maids more than having three meals a day. And I only read books related to maids. Also, I only visit maid cafes. Of course, I also collect maid figurines. I play games which feature female maids and it turns me on so much. Then I wear maid uniforms and jump in joy. I'll take my leave now."
+> "You know… When something bad happens, I don’t like thinking it was someone else’s fault. See, if it’s someone else’s fault, then there’s nothing I, personally, can do about it. I want to think it’s all up to me. If that’s the case, then I can do something about the things that go wrong. Then I can always run and always fly."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Arata Kohata**](https://myanimelist.net/character.php?q=Arata%20Kohata&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
