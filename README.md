@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is far more difficult to capture an enemy than to kill them. Capturing a soldier involves three times the effort and three times the danger. If you wish to save the life of an enemy soldier, remember that you'll lose three of your own in the process."
+> "Urameshi, I'm gonna mess your face up so bad that kittens won't even look at you."
 
-&mdash; [**Baldr**](https://myanimelist.net/character.php?q=Baldr&cat=character), [**Broken Blade**](https://myanimelist.net/search/all?q=Broken%20Blade&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
