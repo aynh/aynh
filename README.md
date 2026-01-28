@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing good ever comes from a man interfering with women's problems."
+> "To know your sin is to have no sin."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Renmei Communicator**](https://myanimelist.net/character.php?q=Renmei%20Communicator&cat=character), [**Haibane Renmei**](https://myanimelist.net/search/all?q=Haibane%20Renmei&cat=all)
