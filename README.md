@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've always seen yourself as just a normal kid, and you're right, that's exactly what you are. You're normally caring, normally cheerful, and you're normally nosy. You've a strong moral compass, concern for your friends, and honor. I know you don't see this, but what's normal to you, well it's far from it. Everyone else would call it courageous and noble. It's because of the person you are that you don't think twice about your own safety when it comes to helping your friends. 'Cause that's just normal to you."
+> "In the world of sports, quickness doesn't necessarily mean having the fastest time. It could also mean the acceleration from zero to maximum speed or the deceleration from maximum speed to zero. This is known as agility."
 
-&mdash; [**Zed O'Brien**](https://myanimelist.net/character.php?q=Zed%20O'Brien&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
