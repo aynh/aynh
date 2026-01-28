@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cut off a wolf's head and it still has the power to bite."
+> "Hatred will never be erased! The only thing you can do... is erase the ones you hate!"
 
-&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Ren Hakuryuu**](https://myanimelist.net/character.php?q=Ren%20Hakuryuu&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
