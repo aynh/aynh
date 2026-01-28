@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything you've been taught is based on theories and logic. Soon, you'll come to realize how pointless they are."
+> "Let me tell you something about dying. It hurts like hell."
 
-&mdash; [**Tomomi Masaoka**](https://myanimelist.net/character.php?q=Tomomi%20Masaoka&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Heero Yuy**](https://myanimelist.net/character.php?q=Heero%20Yuy&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
