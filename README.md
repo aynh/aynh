@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the world of sports, quickness doesn't necessarily mean having the fastest time. It could also mean the acceleration from zero to maximum speed or the deceleration from maximum speed to zero. This is known as agility."
+> "Cheer up. No matter how hopeless you are, even if everyone else abandons you, I’ll always be here for you."
 
-&mdash; [**Midorima Shintarou**](https://myanimelist.net/character.php?q=Midorima%20Shintarou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Kousaka Kirino**](https://myanimelist.net/character.php?q=Kousaka%20Kirino&cat=character), [**Ore No Imouto Ga Konna Ni Kawaii Wake Ga Nai**](https://myanimelist.net/search/all?q=Ore%20No%20Imouto%20Ga%20Konna%20Ni%20Kawaii%20Wake%20Ga%20Nai&cat=all)
