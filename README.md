@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Eternity is instantaneous, and an instant is eternal."
+> "You've always seen yourself as just a normal kid, and you're right, that's exactly what you are. You're normally caring, normally cheerful, and you're normally nosy. You've a strong moral compass, concern for your friends, and honor. I know you don't see this, but what's normal to you, well it's far from it. Everyone else would call it courageous and noble. It's because of the person you are that you don't think twice about your own safety when it comes to helping your friends. 'Cause that's just normal to you."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Zed O'Brien**](https://myanimelist.net/character.php?q=Zed%20O'Brien&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
