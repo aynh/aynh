@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The country? the skies? You can have them. I'm busy just protecting what's right in front of me. I don't know what'll happen to me in the future, but if something has fallen at my feet, then the least I can do is pick it up."
+> "The first one to panic is the first one to lose. No matter if they're the hunter or the hunted."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Zarik Kajiwara**](https://myanimelist.net/character.php?q=Zarik%20Kajiwara&cat=character), [**Rakuen Tsuihō - Expelled from Paradise**](https://myanimelist.net/search/all?q=Rakuen%20Tsuih%C5%8D%20-%20Expelled%20from%20Paradise&cat=all)
