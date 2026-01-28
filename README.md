@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me tell you something about dying. It hurts like hell."
+> "Protect the one thing you want to protect until the very end."
 
-&mdash; [**Heero Yuy**](https://myanimelist.net/character.php?q=Heero%20Yuy&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
+&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
