@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The first one to panic is the first one to lose. No matter if they're the hunter or the hunted."
+> "Whether doing good or evil, I will be the boss."
 
-&mdash; [**Zarik Kajiwara**](https://myanimelist.net/character.php?q=Zarik%20Kajiwara&cat=character), [**Rakuen Tsuihō - Expelled from Paradise**](https://myanimelist.net/search/all?q=Rakuen%20Tsuih%C5%8D%20-%20Expelled%20from%20Paradise&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
