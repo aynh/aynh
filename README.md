@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Religion, ideology, resources, land, spite, love or just because. No matter how pathetic the reason, it's enough to start a war."
+> "Not all warriors fight on the battlefield with a sword in hand. A sailor makes his living battling the sea"
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Leif Ericson**](https://myanimelist.net/character.php?q=Leif%20Ericson&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
