@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not all warriors fight on the battlefield with a sword in hand. A sailor makes his living battling the sea"
+> "The country? the skies? You can have them. I'm busy just protecting what's right in front of me. I don't know what'll happen to me in the future, but if something has fallen at my feet, then the least I can do is pick it up."
 
-&mdash; [**Leif Ericson**](https://myanimelist.net/character.php?q=Leif%20Ericson&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
