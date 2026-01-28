@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Protect the one thing you want to protect until the very end."
+> "Religion, ideology, resources, land, spite, love or just because. No matter how pathetic the reason, it's enough to start a war."
 
-&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
