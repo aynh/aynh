@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's my turn to use you."
+> "On the internet, we only know each other's usernames. If we were talking face to face, I probably would never talk to them this way. They look at the 'Real Me'. They support me a lot... I wish there were more people like them."
 
-&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Sumino Hikage**](https://myanimelist.net/character.php?q=Sumino%20Hikage&cat=character), [**Koko Ni Iru Yo!**](https://myanimelist.net/search/all?q=Koko%20Ni%20Iru%20Yo!&cat=all)
