@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Keep reinventing and polishing yourself, and who you want to be can be reborn over and over."
+> "There is nothing less amusing than destroying those who have no will to live."
 
-&mdash; [**Su**](https://myanimelist.net/character.php?q=Su&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
