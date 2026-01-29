@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is important to draw wisdom from different places. If you take it from only one place, it becomes rigid and stale."
+> "I laugh at gravity all the time. Hahaha, gravity..."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
