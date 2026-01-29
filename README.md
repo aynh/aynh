@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll do what I can, because I'm desperate."
+> "Listen midget! I'm going to curse you and make you shrink 1 cm everyday, and in only 156 days you'll vanish completely!!"
 
-&mdash; [**Kai Miyagusuku**](https://myanimelist.net/character.php?q=Kai%20Miyagusuku&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
