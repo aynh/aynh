@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The final curtain falls at the very moment a person gives up."
+> "Our injuries will heal as long as we're alive. But the scars will remain."
 
-&mdash; [**Miwa Ichigen**](https://myanimelist.net/character.php?q=Miwa%20Ichigen&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
