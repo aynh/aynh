@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "On the internet, we only know each other's usernames. If we were talking face to face, I probably would never talk to them this way. They look at the 'Real Me'. They support me a lot... I wish there were more people like them."
+> "Humans are easily tempted. When they are poised on the edge of hellish despair, and a spider-thin thread of salvation presents itself, they will invariably grasp it. No matter the human."
 
-&mdash; [**Sumino Hikage**](https://myanimelist.net/character.php?q=Sumino%20Hikage&cat=character), [**Koko Ni Iru Yo!**](https://myanimelist.net/search/all?q=Koko%20Ni%20Iru%20Yo!&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
