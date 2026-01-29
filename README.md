@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is nothing less amusing than destroying those who have no will to live."
+> "Human emotions are ambiguous. A person can have contradicting feelings. I know how they are capable of creating lies and pain when reflected in the real world. That's why we have words. Words are brutally precise. They give form to feelings while mercilessly killing anything left unsaid."
 
-&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
