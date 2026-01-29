@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are easily tempted. When they are poised on the edge of hellish despair, and a spider-thin thread of salvation presents itself, they will invariably grasp it. No matter the human."
+> "People are weak. They have no fangs or claws. All they can do is cry. And yet, how was it that this world came into the possession of humans? That's because...  among all living things... they are... the cruelest!"
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Shinnou**](https://myanimelist.net/character.php?q=Shinnou&cat=character), [**Naruto Shippūden: Kizuna**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden%3A%20Kizuna&cat=all)
