@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human emotions are ambiguous. A person can have contradicting feelings. I know how they are capable of creating lies and pain when reflected in the real world. That's why we have words. Words are brutally precise. They give form to feelings while mercilessly killing anything left unsaid."
+> "Life happens wherever you are, whether you make it or not."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
