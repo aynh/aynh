@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our injuries will heal as long as we're alive. But the scars will remain."
+> "Keep reinventing and polishing yourself, and who you want to be can be reborn over and over."
 
-&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Su**](https://myanimelist.net/character.php?q=Su&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
