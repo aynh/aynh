@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's ridiculous. People usually have a stereotypical idea, or an assumption like that and that's what creates a blind spot"
+> "But maybe life isn't about counting all the things you've lost."
 
-&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Tsukamoto Tsukushi**](https://myanimelist.net/character.php?q=Tsukamoto%20Tsukushi&cat=character), [**Days TV**](https://myanimelist.net/search/all?q=Days%20TV&cat=all)
