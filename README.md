@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I may be unreliable, and I may not be able to do anything, but I’m here. I’ll always be with you. I’ll be always by your side."
+> "[to an arrogant projectile-specialist Shinigami] Apparently, on this side, 'ultimate master' means a windbag with diarrhea of the mouth."
 
-&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
