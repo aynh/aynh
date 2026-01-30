@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's because we don't unterstand! It's because we don't unterstand that we wonder what the other is thinking and try desperately to unterstand every word they say... You end up thinking too much about the other person, and being close to them becomes painful so you try to distance yourself... I believe you become friends with somebody by doing that over and over, and that's how... As much as I hate to admit it, it's how I became friends with these guys."
+> "You're a hero to other poor people, Fujioka. You've shown the world that even a poor person can excel at an elite private academy. It must be hard for you to constantly be looked down upon by others... Spurned, neglected, but that doesn't matter now. Long live the poor! We welcome you, poor man, to our world... of beauty!"
 
-&mdash; [**Maki Honoka**](https://myanimelist.net/character.php?q=Maki%20Honoka&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
