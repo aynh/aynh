@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Angels banished from heaven have no choice but to become devils."
+> "Sometimes feelings get tangled together with deductions, forming a veil that hides the truth."
 
-&mdash; [**Vicious**](https://myanimelist.net/character.php?q=Vicious&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
