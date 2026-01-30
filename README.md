@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn't talk to yourself. People will wonder."
+> "The fun things, the painful things, the things that happened, the things we've cried about, the things we've smiled about, when we remember them, everything will be glittering."
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Hirunaka no Ryuusei**](https://myanimelist.net/character.php?q=Hirunaka%20no%20Ryuusei&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
