@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to an arrogant projectile-specialist Shinigami] Apparently, on this side, 'ultimate master' means a windbag with diarrhea of the mouth."
+> "Yes, Children can be quite demanding about their games."
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
