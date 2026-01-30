@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everything happens for a reason. The daily tragedies and misfortunes are all meaningful events, leading toward an ideal conclusion. With that in mind, there probably isn't really any meaningless misfortune."
+> "I don’t want to waste a single second or meter. From your first step and second of the day, I want to be with you."
 
-&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
