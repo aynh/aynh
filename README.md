@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But maybe life isn't about counting all the things you've lost."
+> "No matter what may happen... As long as you walk by my side... There shall be no enemy that can stand before us."
 
-&mdash; [**Tsukamoto Tsukushi**](https://myanimelist.net/character.php?q=Tsukamoto%20Tsukushi&cat=character), [**Days TV**](https://myanimelist.net/search/all?q=Days%20TV&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
