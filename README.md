@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who wallow in power are destroyed by it."
+> "All things shine at their most brilliant when they're being broken."
 
-&mdash; [**Leon Sōryū**](https://myanimelist.net/character.php?q=Leon%20S%C5%8Dry%C5%AB&cat=character), [**Cardfight!! Vanguard**](https://myanimelist.net/search/all?q=Cardfight!!%20Vanguard&cat=all)
+&mdash; [**Urisu**](https://myanimelist.net/character.php?q=Urisu&cat=character), [**Selector Spread Wixoss**](https://myanimelist.net/search/all?q=Selector%20Spread%20Wixoss&cat=all)
