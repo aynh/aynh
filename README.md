@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one knows what the future holds in life.  We must take that endless bit of darkness and turn it to our advantage."
+> "Aang, this is my friend Foo-Foo Cuddly Poofs, Foo-Foo Cuddly Poofs, Aang."
 
-&mdash; [**Higuchi Seitarou**](https://myanimelist.net/character.php?q=Higuchi%20Seitarou&cat=character), [**Yojouhan Shinwa Taikei**](https://myanimelist.net/search/all?q=Yojouhan%20Shinwa%20Taikei&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
