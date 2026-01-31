@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want to be a loser who can't do anything but talk. I don't want to be somebody who can sacrifice others, but won't risk himself."
+> "Those stars look like they're close to each other, but they're actually very far away, aren't they? It's like Kitamura-kun and I. The things you see aren't always real. How hard must I try in order to understand the unseen truth?"
 
-&mdash; [**Ouka Kashima**](https://myanimelist.net/character.php?q=Ouka%20Kashima&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
