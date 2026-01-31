@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is my perception, that a true friend never relies on another's dream. A person with the potential to be my true friend, must be able to find his reason for life without my help. And, he would have to put his heart and soul into protecting his dream. He would never hesitate to fight for his dream, even against me. For me, a true friend is one who stands equal on those terms."
+> "Life is something that can never be lived twice. Even this pointless act will eventually end. And while thinking that one day, I'll surely regret its end..."
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
