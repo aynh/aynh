@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A guy who can't do what needs to be done today, definitely can't do it tomorrow."
+> "Everyone wants to think like this: 'It can't be helped if I lose against someone with talent'. Like that, be it consciously or unconsciously... People put a lid on their hearts. They want to protect their pride, self-esteem... or whatever."
 
-&mdash; [**Goro Shigeno**](https://myanimelist.net/character.php?q=Goro%20Shigeno&cat=character), [**Major**](https://myanimelist.net/search/all?q=Major&cat=all)
+&mdash; [**Jōichirō Yukihira**](https://myanimelist.net/character.php?q=J%C5%8Dichir%C5%8D%20Yukihira&cat=character), [**Shokugeki no Sōma**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma&cat=all)
