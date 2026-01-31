@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Orihime, when she refuses to eat] Shall I force it down your throat? Or would you rather be strapped down and given IV's?"
+> "It is called the memories of the body. When the mind forgets, the body remembers for it."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yūko Ichihara**](https://myanimelist.net/character.php?q=Y%C5%ABko%20Ichihara&cat=character), [**Tsubasa Reservoir Chronicles**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicles&cat=all)
