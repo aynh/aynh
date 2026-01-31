@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We cannot be satisfied until we have eliminated all others. It has nothing to do with reason. It is instinct."
+> "The reason we hurt others is because we don't understand their pain."
 
-&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
