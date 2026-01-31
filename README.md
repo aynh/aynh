@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So this is how...it feels... (After just being released from the curse)"
+> "There are two ways to escape: escape without a purpose, and escape with a purpose. I call the former 'floating', and the latter 'flight'. You are the only one that decides which of the two your view of the world from on high was. But you don't choose these paths because of the weight on your soul. We don't choose the path we take because of the sins we carry. But we carry our sins on the path we choose."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
