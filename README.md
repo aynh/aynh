@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder how you're suppose to give up... Do I just decide to give up and act accordingly? And move further and further away from what my heart really wants? Then will I forget everything one day?.. Everything including the pain in my heart? Everything? Without a trace as if nothing was there to begin with?"
+> "In this world, there are things you’re better off not knowing."
 
-&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Aizawa Yuuichi**](https://myanimelist.net/character.php?q=Aizawa%20Yuuichi&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
