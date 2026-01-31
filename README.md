@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are only two times when a man can cry in public: when he loses his wallet and when his mother dies. And even if you cry in private, there's a severe restriction. Shed tears for others. The only thing you should be shedding for yourself is sweat. Remember that."
+> "If you throw your life away, you won't even have the capacity to feel regret."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi Zoku Shou**](https://myanimelist.net/search/all?q=Mushishi%20Zoku%20Shou&cat=all)
