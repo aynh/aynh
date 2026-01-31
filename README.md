@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone wants to think like this: 'It can't be helped if I lose against someone with talent'. Like that, be it consciously or unconsciously... People put a lid on their hearts. They want to protect their pride, self-esteem... or whatever."
+> "It's just that I'm fighting the pain of lost love. I guess it's what you'd call a rude awakening... or, maybe... the weight of responsibility? But I'm fine. I'm fine. Caring for someone isn't based on logic. You can't really rationalize emotions. Once I think 'I like him'... it's all over."
 
-&mdash; [**Jōichirō Yukihira**](https://myanimelist.net/character.php?q=J%C5%8Dichir%C5%8D%20Yukihira&cat=character), [**Shokugeki no Sōma**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
