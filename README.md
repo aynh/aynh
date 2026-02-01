@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have my own method of bending spoons. (bends the spoon with his hands) Ha! Muscle over mind!"
+> "I am not going to kill you - I am going to break you."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Naraku**](https://myanimelist.net/character.php?q=Naraku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
