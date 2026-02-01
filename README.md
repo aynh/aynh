@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What could that creep possibly be thinking sending sexy underwear to his own daughter."
+> "Taking responsibility for yourself is the first condition for humanity. One who cannot do even that is less than human. Just a dog, Kariya."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Tohsaka Tokiomi**](https://myanimelist.net/character.php?q=Tohsaka%20Tokiomi&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
