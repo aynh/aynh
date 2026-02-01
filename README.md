@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone starts doing the right thing, the others will follow."
+> "Don't underestimate me! I don't quit and I don't run! You can act tough all you want! You're not gonna scare me off! No way! I don't care if I DO get stuck as a Genin for the rest of my life! I'll still be Hokage someday!"
 
-&mdash; [**Ronaldo Kuriki**](https://myanimelist.net/character.php?q=Ronaldo%20Kuriki&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
