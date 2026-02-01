@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't feel lonely if there's no one else around."
+> "If you live after giving up on the things you want to do and the world around you doesn't sparkle, it's the same thing as being dead. If you don't give up, even if it's short, it'll be a fantastic life!"
 
-&mdash; [**Kenji Yamaguchi**](https://myanimelist.net/character.php?q=Kenji%20Yamaguchi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Marga**](https://myanimelist.net/character.php?q=Marga&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
