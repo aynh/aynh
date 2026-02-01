@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's just that I'm fighting the pain of lost love. I guess it's what you'd call a rude awakening... or, maybe... the weight of responsibility? But I'm fine. I'm fine. Caring for someone isn't based on logic. You can't really rationalize emotions. Once I think 'I like him'... it's all over."
+> "Its ony one simple thing, but why do I feel like forever I cannot reach it. Only keep on and on, staying at the same spot."
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
