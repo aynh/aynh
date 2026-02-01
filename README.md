@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why do we have to be okay being friends with someone who won't treat us as friends?"
+> "However rough the waters in the outside world may be, to find your own lighthouse and swim for it is only logical, isn't it?"
 
-&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Hayabusa Shou**](https://myanimelist.net/character.php?q=Hayabusa%20Shou&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
