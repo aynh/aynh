@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things that we don't want to happen, but have to accept. Things that we don't want to know, but have to learn. And people that we can't live without, but have to let go."
+> "You can't feel lonely if there's no one else around."
 
-&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
+&mdash; [**Kenji Yamaguchi**](https://myanimelist.net/character.php?q=Kenji%20Yamaguchi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
