@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you live after giving up on the things you want to do and the world around you doesn't sparkle, it's the same thing as being dead. If you don't give up, even if it's short, it'll be a fantastic life!"
+> "Why do we have to be okay being friends with someone who won't treat us as friends?"
 
-&mdash; [**Marga**](https://myanimelist.net/character.php?q=Marga&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
+&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
