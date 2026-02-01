@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not going to kill you - I am going to break you."
+> "There are things that we don't want to happen, but have to accept. Things that we don't want to know, but have to learn. And people that we can't live without, but have to let go."
 
-&mdash; [**Naraku**](https://myanimelist.net/character.php?q=Naraku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
