@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I get reincarnated... I wanna become a clam."
+> "There's no knowing how others are feeling unless you ask them. And your feelings can't get through to others unless you tell them directly."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
