@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To have the one you think is your ideal self standing in front of you, it's tough..."
+> "The double grief of a lost bliss is to recall its happy hour in pain."
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Shuichiro Keido**](https://myanimelist.net/character.php?q=Shuichiro%20Keido&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
