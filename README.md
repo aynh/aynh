@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rule breakers should be punished. If you go easy on them, they'll think explaining their circumstances will get them forgiven, and the same thing will only happen again."
+> "If there's something you don't understand, learn to understand it."
 
-&mdash; [**Myouri Unzen**](https://myanimelist.net/character.php?q=Myouri%20Unzen&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
