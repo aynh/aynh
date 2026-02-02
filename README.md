@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there's something you don't understand, learn to understand it."
+> "Pretending to get along is just hypocritical. If you don't like me, that's fine. People are free to like and hate what they want."
 
-&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
