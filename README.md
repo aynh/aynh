@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no knowing how others are feeling unless you ask them. And your feelings can't get through to others unless you tell them directly."
+> "Rule breakers should be punished. If you go easy on them, they'll think explaining their circumstances will get them forgiven, and the same thing will only happen again."
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Myouri Unzen**](https://myanimelist.net/character.php?q=Myouri%20Unzen&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
