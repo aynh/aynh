@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does math bring out your wrath?"
+> "There once was a boy, who dreamed of being a hero, who sincerely believed in the battle to banish darkness from a world of light. But light and darkness are equals and where one exists, so too must the other. When the boy finally realized this, that was when he started the path to becoming a true hero."
 
-&mdash; [**Shun Izuki**](https://myanimelist.net/character.php?q=Shun%20Izuki&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Record of Lodoss War**](https://myanimelist.net/character.php?q=Record%20of%20Lodoss%20War&cat=character), [**Record of Lodoss War**](https://myanimelist.net/search/all?q=Record%20of%20Lodoss%20War&cat=all)
