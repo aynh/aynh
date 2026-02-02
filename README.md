@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Good and bad are human concepts, so something that is not human cannot be classified as neither good nor bad."
+> "A lone warrior surviving hundreds of battles, when it comes to losing, I'm the strongest."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Comedy wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Comedy%20wa%20Machigatteiru&cat=all)
