@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is absurd to divide people into good and bad. People are either charming or tedious."
+> "In general, men prefer to let their actions speak instead of words. When they're in pain, they don't want to burden anyone with it, not if they can help it. They don't want anyone to worry about them. That's how they are. Even so, there may come a time when they'll ask for your help. And when they do, I know that you'll be there for them. Isn't that enough?"
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
