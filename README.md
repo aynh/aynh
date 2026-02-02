@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Heroes might be lonely, but they aren't fighting alone."
+> "It is absurd to divide people into good and bad. People are either charming or tedious."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
