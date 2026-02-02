@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The double grief of a lost bliss is to recall its happy hour in pain."
+> "Good and bad are human concepts, so something that is not human cannot be classified as neither good nor bad."
 
-&mdash; [**Shuichiro Keido**](https://myanimelist.net/character.php?q=Shuichiro%20Keido&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
