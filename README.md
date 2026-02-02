@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Chubbies rule!"
+> "People say that if you fight, it means you're close to someone; but in the end, a fight is just a collision of egos. People don't learn to understand each other just by laying bare their feelings."
 
-&mdash; [**Chouji Akimichi**](https://myanimelist.net/character.php?q=Chouji%20Akimichi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Nana Osaki**](https://myanimelist.net/character.php?q=Nana%20Osaki&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
