@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In my room at the palace, right before I go to sleep... I always think to myself, 'What's Syaoran doing right now? Is he thinking about me?'."
+> "Does math bring out your wrath?"
 
-&mdash; [**Sakura Kinomoto**](https://myanimelist.net/character.php?q=Sakura%20Kinomoto&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Shun Izuki**](https://myanimelist.net/character.php?q=Shun%20Izuki&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
