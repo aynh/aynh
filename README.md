@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's exactly the way it should be. Doing only unexpected things, otherwise, I'll lose my reputation as a perverted outer-space human."
+> "Heroes might be lonely, but they aren't fighting alone."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
