@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we love someone, we need to tell them about it. That way, we'll feel relieved and a lot stronger."
+> "What do you think a truly unusual life would be like? Something really unique. It'd be the kind of life where every single day, nothing new ever happened. Nothing changed. That kind of a life is truly unusual."
 
-&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Anri Sonohara**](https://myanimelist.net/character.php?q=Anri%20Sonohara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
