@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The scars that you can't see are the hardest to heal."
+> "Pum, Pumkins, Smashing Pumkins!"
 
-&mdash; [**Nao Tomori**](https://myanimelist.net/character.php?q=Nao%20Tomori&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
+&mdash; [**Blair**](https://myanimelist.net/character.php?q=Blair&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
