@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are walls that can't be broken through power alone. But if there is a power that can break through those walls, it is the power of feelings."
+> "The harder you try to see the good in people the easier it is to fake you out."
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2 Ten**](https://myanimelist.net/search/all?q=Durarara!!%C3%972%20Ten&cat=all)
