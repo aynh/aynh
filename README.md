@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is better to be hated for what you are. Than to be loved for what you are not."
+> "Compared to one million proverbs, just one word from your heart can prove victorious!"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Rabat**](https://myanimelist.net/character.php?q=Rabat&cat=character), [**Vandread**](https://myanimelist.net/search/all?q=Vandread&cat=all)
