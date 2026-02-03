@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think I'd like to dissect you now!"
+> "Believe in yourself... If you don’t have that... it doesn’t matter how many talents you have, you still won’t be able to hold your head up high..."
 
-&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Chiaki Nanami**](https://myanimelist.net/character.php?q=Chiaki%20Nanami&cat=character), [**Super Dangan Ronpa 2**](https://myanimelist.net/search/all?q=Super%20Dangan%20Ronpa%202&cat=all)
