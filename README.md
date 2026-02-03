@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no way someone who can't even protect himself can protect anyone else, is there?"
+> "Instead of sighing about the past, I'd rather be happy to face the present."
 
-&mdash; [**Touka Kirishima**](https://myanimelist.net/character.php?q=Touka%20Kirishima&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
