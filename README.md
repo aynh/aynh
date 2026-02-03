@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey... They say it's five centimeters per second. *Takaki asks her what she means by that* The speed at which the sakura blossom petals fall... Five centimeters per second."
+> "People who can see get to choose... if you want them to know you can see. To pretend to be able to see, even when you can't... Or to pretend that you can't see even when you can."
 
-&mdash; [**Akari Shinohara**](https://myanimelist.net/character.php?q=Akari%20Shinohara&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
+&mdash; [**Akagi Shigeru**](https://myanimelist.net/character.php?q=Akagi%20Shigeru&cat=character), [**Touhai Densetsu Akagi: Yami Ni Maiorita Tensai**](https://myanimelist.net/search/all?q=Touhai%20Densetsu%20Akagi%3A%20Yami%20Ni%20Maiorita%20Tensai&cat=all)
