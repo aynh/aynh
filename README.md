@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Believe in yourself... If you don’t have that... it doesn’t matter how many talents you have, you still won’t be able to hold your head up high..."
+> "There's no way someone who can't even protect himself can protect anyone else, is there?"
 
-&mdash; [**Chiaki Nanami**](https://myanimelist.net/character.php?q=Chiaki%20Nanami&cat=character), [**Super Dangan Ronpa 2**](https://myanimelist.net/search/all?q=Super%20Dangan%20Ronpa%202&cat=all)
+&mdash; [**Touka Kirishima**](https://myanimelist.net/character.php?q=Touka%20Kirishima&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
