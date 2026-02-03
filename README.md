@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A lone warrior surviving hundreds of battles, when it comes to losing, I'm the strongest."
+> "Hey... They say it's five centimeters per second. *Takaki asks her what she means by that* The speed at which the sakura blossom petals fall... Five centimeters per second."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Comedy wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Comedy%20wa%20Machigatteiru&cat=all)
+&mdash; [**Akari Shinohara**](https://myanimelist.net/character.php?q=Akari%20Shinohara&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
