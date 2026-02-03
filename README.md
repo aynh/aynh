@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Instead of sighing about the past, I'd rather be happy to face the present."
+> "Don't tell me what to do, you seaweed head."
 
-&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
