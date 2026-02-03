@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Toboe] I wanted to take you to paradise."
+> "When a person lies, what is important is not the lie itself. No, it is their reason. Their why."
 
-&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
