@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Compared to one million proverbs, just one word from your heart can prove victorious!"
+> "The scars that you can't see are the hardest to heal."
 
-&mdash; [**Rabat**](https://myanimelist.net/character.php?q=Rabat&cat=character), [**Vandread**](https://myanimelist.net/search/all?q=Vandread&cat=all)
+&mdash; [**Nao Tomori**](https://myanimelist.net/character.php?q=Nao%20Tomori&cat=character), [**Charlotte**](https://myanimelist.net/search/all?q=Charlotte&cat=all)
