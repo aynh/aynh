@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Instead of humans who lie and cheat each other to get richer, I prefer animals who hunt to survive."
+> "Until just recently, the stars were something I only saw by myself."
 
-&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
