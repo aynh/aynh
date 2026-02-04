@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It must make you sick to know an underling like me is going to kill you."
+> "The smell of blood, gunpowder and iron. This is what humanity's all about. Well then, the man in charge must always lead from the front. And yet be the last one to die."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sougetsu Ootori**](https://myanimelist.net/character.php?q=Sougetsu%20Ootori&cat=character), [**Taimadou Gakuen 35 Shiken Shoutai**](https://myanimelist.net/search/all?q=Taimadou%20Gakuen%2035%20Shiken%20Shoutai&cat=all)
