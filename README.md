@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The smell of blood, gunpowder and iron. This is what humanity's all about. Well then, the man in charge must always lead from the front. And yet be the last one to die."
+> "Listen up, Cookie. Summer break is a break. We forget about homework. That's common sense. Understand?"
 
-&mdash; [**Sougetsu Ootori**](https://myanimelist.net/character.php?q=Sougetsu%20Ootori&cat=character), [**Taimadou Gakuen 35 Shiken Shoutai**](https://myanimelist.net/search/all?q=Taimadou%20Gakuen%2035%20Shiken%20Shoutai&cat=all)
+&mdash; [**Himeki Chifuyu**](https://myanimelist.net/character.php?q=Himeki%20Chifuyu&cat=character), [**Inou Battle wa Nichijou-kei no Naka de**](https://myanimelist.net/search/all?q=Inou%20Battle%20wa%20Nichijou-kei%20no%20Naka%20de&cat=all)
