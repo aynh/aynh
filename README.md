@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, Oz. what are you lazing around for?"
+> "All humans die the same, the place they go after death isn't decided upon by a god it is Mu (nothingness)."
 
-&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
