@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, it's necessary to look back at the past in order to move on to the future."
+> "Everything you've been taught is based on theories and logic. Soon, you'll come to realize how pointless they are."
 
-&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Tomomi Masaoka**](https://myanimelist.net/character.php?q=Tomomi%20Masaoka&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
