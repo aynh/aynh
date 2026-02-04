@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He turned a room full of strangers into a room full of enemies with just one sentence."
+> "Hey! Don't you know the rules!? When heroes transform, ride in their machine, or stand in their main pose, no one should attack them!"
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Da Cider**](https://myanimelist.net/character.php?q=Da%20Cider&cat=character), [**NG Knight Ramune & 40**](https://myanimelist.net/search/all?q=NG%20Knight%20Ramune%20%26%2040&cat=all)
