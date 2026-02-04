@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Talking about peace whilst spilling blood, it's something that only humans can do."
+> "I'm gonna take you out in one giant bug blitzkrieg!"
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Underwood Weevil**](https://myanimelist.net/character.php?q=Underwood%20Weevil&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
