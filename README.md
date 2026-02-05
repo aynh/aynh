@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn't talk. It makes you sound stupid."
+> "I'm not very good at sensing people's boundaries. Without knowing how far is too far, I gradually get closer and closer. It's terrifying. Being unable to sense that is terrifying."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
