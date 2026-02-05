@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How rude! You knocked his block off, and you didn't even have the courtesy to yell 'Heads up'!"
+> "To Grell Sutcliff: Then, it's fine if you don't be careful on your way home. Rather, I'd prefer you walk through dangerous roads with your eyes closed."
 
-&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
