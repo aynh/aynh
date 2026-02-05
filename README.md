@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nobody can take anybody's place. There isn't a person in this world that could take your place. It doesn't matter if you were based on me or have the same face."
+> "It's just like changes in the notes and passports. You may find it hard to adjust to at the beginning, but you get used to it eventually. Time is very depressing after all... Both happiness and sadness fade away with time."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
