@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What keeps me alive in this world is neither bodily organs, nor muscles - it's my soul!"
+> "Resenting the past won't change anything. It just makes me want to kill myself! I have some control over my future, but there's no changing the past! I'll simply do what I can right now."
 
-&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Tomoko Kuroki**](https://myanimelist.net/character.php?q=Tomoko%20Kuroki&cat=character), [**WATAMOTE**](https://myanimelist.net/search/all?q=WATAMOTE&cat=all)
