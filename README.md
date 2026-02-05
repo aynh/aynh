@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's just like changes in the notes and passports. You may find it hard to adjust to at the beginning, but you get used to it eventually. Time is very depressing after all... Both happiness and sadness fade away with time."
+> "To Mello, it's like playing a videogame against me, I think. 'See who gets to Kira, the last boss, first.'"
 
-&mdash; [**Detective Conan**](https://myanimelist.net/character.php?q=Detective%20Conan&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
