@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[thinking] Step awaaaay from the psycho..."
+> "You want to keep everyone from dying? That's naive. It's war. People die."
 
-&mdash; [**Manta Oyamada**](https://myanimelist.net/character.php?q=Manta%20Oyamada&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
