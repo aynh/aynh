@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want what another man can give me. If he grants me anything, then it's his to give and not my own."
+> "What keeps me alive in this world is neither bodily organs, nor muscles - it's my soul!"
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
