@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To Grell Sutcliff: Then, it's fine if you don't be careful on your way home. Rather, I'd prefer you walk through dangerous roads with your eyes closed."
+> "[thinking] Step awaaaay from the psycho..."
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Manta Oyamada**](https://myanimelist.net/character.php?q=Manta%20Oyamada&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
