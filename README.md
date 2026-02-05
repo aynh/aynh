@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't cry. It will make your face even uglier."
+> "We humans are miserable creatures. We reject what we fear. We attack because we don' t understand. Human cowardice... breeds war."
 
-&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Biba Amatori**](https://myanimelist.net/character.php?q=Biba%20Amatori&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
