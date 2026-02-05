@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To Mello, it's like playing a videogame against me, I think. 'See who gets to Kira, the last boss, first.'"
+> "How rude! You knocked his block off, and you didn't even have the courtesy to yell 'Heads up'!"
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
