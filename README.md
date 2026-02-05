@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how gifted you are... You, alone, cannot change the world."
+> "Don't cry. It will make your face even uglier."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
