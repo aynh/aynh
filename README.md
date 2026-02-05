@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't lose against myself. There's no element that would make me lose if our powers are equal. To admit defeat against such an enemy is to declare that I'm wrong."
+> "No matter how gifted you are... You, alone, cannot change the world."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
