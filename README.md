@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We humans are miserable creatures. We reject what we fear. We attack because we don' t understand. Human cowardice... breeds war."
+> "After everything I've faced.... Having a future with you snatched away from me ...is definitely the most terrifying thing I've ever had to endure...."
 
-&mdash; [**Biba Amatori**](https://myanimelist.net/character.php?q=Biba%20Amatori&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
+&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
