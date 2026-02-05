@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A girlfriend isn't something you get just because you want one. You meet someone you like, and you want to spend time together. That's why you'd want that person as your girlfriend, right?"
+> "You shouldn't talk. It makes you sound stupid."
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
