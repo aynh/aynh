@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Weak humans are sly and irresponsible, they always put the blame on and hurt others."
+> "Death may be my only freedom."
 
-&mdash; [**Toto Sakigami**](https://myanimelist.net/character.php?q=Toto%20Sakigami&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
