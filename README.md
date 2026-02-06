@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Glory lies beyond the horizon. Challenge it because it is unreachable. Speak of conquest and demonstrate it."
+> "He who lies to make things beautiful is probably someone who admires pure feelings much more than anybody else."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
