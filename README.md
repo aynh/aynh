@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't just leave a crying girl alone and go home. I'm too wimpy to carry you, but I can lend you a shoulder, and get you down the stairs."
+> "You can train a dog with food. You can buy a person with money. But there isn't a man alive able to influence the wolves of Mibu! Some things will never change. A wolf will always be a wolf."
 
-&mdash; [**Ooga Kazuomi**](https://myanimelist.net/character.php?q=Ooga%20Kazuomi&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Hajime Saitou**](https://myanimelist.net/character.php?q=Hajime%20Saitou&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
