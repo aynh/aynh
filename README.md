@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ruin Myself, huh? I like it."
+> "Wherever there is hope, there is most definitely despair."
 
-&mdash; [**Ohana Matsumae**](https://myanimelist.net/character.php?q=Ohana%20Matsumae&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
+&mdash; [**Junko Enoshima**](https://myanimelist.net/character.php?q=Junko%20Enoshima&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
