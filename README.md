@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He who lies to make things beautiful is probably someone who admires pure feelings much more than anybody else."
+> "There are two things people fear... those are death and embarrassment. Those who try to overcome death are just idiots, but I won't laugh at those who try to overcome their embarrassment. I like those kind of idiots."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
