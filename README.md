@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "These days, I feel more comfortable in dark places.  I look at these shadows as a part of you.  They absorb all the light.  There's no one in the world who has this color but you."
+> "We believe that God exists. And he exists because we exist."
 
-&mdash; [**Shinra Kishitani**](https://myanimelist.net/character.php?q=Shinra%20Kishitani&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Itsuki Koizumi**](https://myanimelist.net/character.php?q=Itsuki%20Koizumi&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
