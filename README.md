@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our relationship has already been formed. No matter how trivial a meeting and the incidents that follow may seem, a relationship is made. Even if it is just for a short amount of time, a knot that has been tied does not unravel. It means that during your lifetime, every incident that passes has meaning. The meeting between you and I also has meaning, so remember it."
+> "If you don't trust the boy who cries wolf - in other words, a child who lies, your sheep and goats will all get eaten. But who gives a damn about moral lectures. The important part is that because the boy believed in his lies, he really brought a wolf to the village. You can't deny that! *to Niwa Makoto*"
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Yashiro Hoshimiya**](https://myanimelist.net/character.php?q=Yashiro%20Hoshimiya&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
