@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Wherever there is hope, there is most definitely despair."
+> "There's no lack of painful things in this world, but hunger and loneliness must surely be two of the worst. Thanks to you, I didn't know a moment of either of them."
 
-&mdash; [**Junko Enoshima**](https://myanimelist.net/character.php?q=Junko%20Enoshima&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Sakae Jinnouchi**](https://myanimelist.net/character.php?q=Sakae%20Jinnouchi&cat=character), [**Summer Wars**](https://myanimelist.net/search/all?q=Summer%20Wars&cat=all)
