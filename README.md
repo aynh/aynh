@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This might come a little late but... you people make me sick."
+> "The scar of my past will determine my future!"
 
-&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
