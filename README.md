@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What must triumph here is the knight's path of chivalry that we champion. Is that not so, Heroic Spirit Arturia?"
+> "Apparently Goku hasn't eaten in 500 years, his body's making up for lost time."
 
-&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
