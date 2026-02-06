@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An eye for an eye, a tooth for a tooth, evil for evil."
+> "This might come a little late but... you people make me sick."
 
-&mdash; [**Ogami Rei**](https://myanimelist.net/character.php?q=Ogami%20Rei&cat=character), [**Code:Breaker**](https://myanimelist.net/search/all?q=Code%3ABreaker&cat=all)
+&mdash; [**Galatea**](https://myanimelist.net/character.php?q=Galatea&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
