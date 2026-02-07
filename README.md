@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever I get up in the morning, I always think to myself, 'Am I really the same person I was yesterday?' For example, just as a computer loads its OS into memory and boots up each time it restarts, is it possible I'm just booting up the person called 'Saikawa Sohuei' each morning and trying to play that role?"
+> "Our differences are what let us understand each other. We've worked together to come this far, there are no doubts or regret anymore. I'll overcome this fight and prove that even we can come to an understanding."
 
-&mdash; [**Souhei Saikawa**](https://myanimelist.net/character.php?q=Souhei%20Saikawa&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
+&mdash; [**Tsukune Aono**](https://myanimelist.net/character.php?q=Tsukune%20Aono&cat=character), [**Rosario Vampire**](https://myanimelist.net/search/all?q=Rosario%20Vampire&cat=all)
