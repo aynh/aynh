@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never had anything this good before. I guess everything tastes good when I'm with you."
+> "If the being casting judgment is perfect, then it has to judge itself as well."
 
-&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Jouji Saiga**](https://myanimelist.net/character.php?q=Jouji%20Saiga&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
