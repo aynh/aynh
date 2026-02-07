@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no such thing as no such thing."
+> "Whenever I get up in the morning, I always think to myself, 'Am I really the same person I was yesterday?' For example, just as a computer loads its OS into memory and boots up each time it restarts, is it possible I'm just booting up the person called 'Saikawa Sohuei' each morning and trying to play that role?"
 
-&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Souhei Saikawa**](https://myanimelist.net/character.php?q=Souhei%20Saikawa&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
