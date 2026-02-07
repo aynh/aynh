@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the being casting judgment is perfect, then it has to judge itself as well."
+> "The strong one doesn't win. The one who wins is strong."
 
-&mdash; [**Jouji Saiga**](https://myanimelist.net/character.php?q=Jouji%20Saiga&cat=character), [**Psycho-Pass 2**](https://myanimelist.net/search/all?q=Psycho-Pass%202&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
