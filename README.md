@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say that we should love ourselves first, before other people learn to love us, but it's not as easy as it seems. Sometimes, we need someone to accept us and love us first, then we would learn to see ourselves through that person's eyes and learn to love our-self."
+> "I never had anything this good before. I guess everything tastes good when I'm with you."
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
