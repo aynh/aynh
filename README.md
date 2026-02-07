@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is the first and last time I bring a dude to my bed."
+> "Even when the sky's so dark you can't see a thing, there are still stars shining out there. So if she can learn to shine brighter, we'll be able to see her."
 
-&mdash; [**Sha Gojyo**](https://myanimelist.net/character.php?q=Sha%20Gojyo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
