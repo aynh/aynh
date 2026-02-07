@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even crabs have to go on a journey sometime."
+> "The fact that you consider yourself as an equal to me, is being arrogant in itself."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
