@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Be selfish, say what you want once in a while. It's okay to let yourself be sad."
+> "Stop pouting! You learned something valuable. Remember the lesson, not the disappointment."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
