@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Chad and Orihime] Your transformation is not a disease. You were just given the key to the door in front of you. There's no need to know the cause. No need for sorrow or sadness. What comes next is up to you. You can use your keys to open the door...or lock it tight. And if you do choose to open it... You can still decide not to pass through."
+> "Being kind to everyone, simply means there's no one special."
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
