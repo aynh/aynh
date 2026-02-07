@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think running a restaurant would fit you better than being an assassin."
+> "Be selfish, say what you want once in a while. It's okay to let yourself be sad."
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
