@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I used to think that eating was only consuming needed nutrients. I never thought it could fill the emptiness in me."
+> "Even crabs have to go on a journey sometime."
 
-&mdash; [**Teito Klein**](https://myanimelist.net/character.php?q=Teito%20Klein&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
