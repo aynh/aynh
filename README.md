@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Instead of sighing about the past, I'd rather be happy to face the present."
+> "When people have an overwhelming advantage, they sometimes take on a little risk to try and show off their superiority over the losers."
 
-&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Ushiromiya Kyrie**](https://myanimelist.net/character.php?q=Ushiromiya%20Kyrie&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
