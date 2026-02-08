@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "MAKA CHOP!"
+> "But that's why I can't let myself be weighed down by fuckin' regrets. A bitch lives as free as a bird that can never be caught."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Anarchy Panty**](https://myanimelist.net/character.php?q=Anarchy%20Panty&cat=character), [**Panty And Stocking With Gaterbelt**](https://myanimelist.net/search/all?q=Panty%20And%20Stocking%20With%20Gaterbelt&cat=all)
