@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But don't forget... as long as you're in my division, I'm on your side until death and beyond."
+> "i'm on a little boat. I'm going against the current of the river, downstream to upstream. If you want something more, you move forward with all your might. If you try to stop, you fall behind. Humans can never stop moving. If they do not yearn for something... Right! Nothing begins without action! You gain nothing if you do nothing! Satisfaction is stagnation! Stagnation is death! I want to know! See! Feel! Experience! Understand! This monster is amazing, but we know nothing about him! This monster strength was amazing. He won every battle he fought! The ultimate soldier! Now it's a war between vampires? I have to thank the Servamp of Melancholy! In every era, wars have created progress!"
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Johannes Mimir Faustus**](https://myanimelist.net/character.php?q=Johannes%20Mimir%20Faustus&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
