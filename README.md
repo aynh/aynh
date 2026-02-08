@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Always the same... Every age, every generation. Human beings are infinitely more cruel and selfish than any demon in hell."
+> "Mom, dad, Risa became a delinquent!"
 
-&mdash; [**Dantalion**](https://myanimelist.net/character.php?q=Dantalion&cat=character), [**Makai Ouji : Devils And Realist**](https://myanimelist.net/search/all?q=Makai%20Ouji%20%3A%20Devils%20And%20Realist&cat=all)
+&mdash; [**Riku Harada**](https://myanimelist.net/character.php?q=Riku%20Harada&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
