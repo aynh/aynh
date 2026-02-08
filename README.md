@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah, my most ugly heart. I hate, hate, hate it, so I can’t help but sneer all the time."
+> "MAKA CHOP!"
 
-&mdash; [**Kano Shuuya**](https://myanimelist.net/character.php?q=Kano%20Shuuya&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
