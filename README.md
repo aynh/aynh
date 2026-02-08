@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Come on, scribbles on the bathroom wall, please show me the path that I must follow!"
+> "It's over when you give up."
 
-&mdash; [**Excel**](https://myanimelist.net/character.php?q=Excel&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
+&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
