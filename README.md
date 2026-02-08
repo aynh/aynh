@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But that's why I can't let myself be weighed down by fuckin' regrets. A bitch lives as free as a bird that can never be caught."
+> "However rough the waters in the outside world may be, to find your own lighthouse and swim for it is only logical, isn't it?"
 
-&mdash; [**Anarchy Panty**](https://myanimelist.net/character.php?q=Anarchy%20Panty&cat=character), [**Panty And Stocking With Gaterbelt**](https://myanimelist.net/search/all?q=Panty%20And%20Stocking%20With%20Gaterbelt&cat=all)
+&mdash; [**Hayabusa Shou**](https://myanimelist.net/character.php?q=Hayabusa%20Shou&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
