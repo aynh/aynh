@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's over when you give up."
+> "Dreams, ambition, love, hope; in this world, could the glories of a youthful heart be.. forbidden?"
 
-&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Berserk**](https://myanimelist.net/character.php?q=Berserk&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
