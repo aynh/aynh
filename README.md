@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love means money these days."
+> "It's something that appear on the chests of illegal contractees."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Gilbert Nightray**](https://myanimelist.net/character.php?q=Gilbert%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
