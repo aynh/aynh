@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Courage is the mindset of not surrendering even if you lack the strength."
+> "Love means money these days."
 
-&mdash; [**Chun-Woo Han**](https://myanimelist.net/character.php?q=Chun-Woo%20Han&cat=character), [**The Breaker**](https://myanimelist.net/search/all?q=The%20Breaker&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
