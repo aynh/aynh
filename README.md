@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Peace under an illusion is not true peace. It's only meaningful if the real world manages to accomplish it."
+> "Life is basically like a soap bubble. It rides on the wind, flying here and there... and before you realize it - pop! It's gone. When it's about to disappear, you think that you could've flown a little higher. But by the time, it's already too late."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
