@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A traveler does not leave regret behind in a village, but good memories."
+> "Peace under an illusion is not true peace. It's only meaningful if the real world manages to accomplish it."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
