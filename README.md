@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are right. I have not yet introduced myself. I am Captain of the Seventh Division Komamura Sajin. And though it shames me, I am just as you say -- A meager worm of a man."
+> "If a man will not work, he shall not eat."
 
-&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Olivier Mira Armstrong**](https://myanimelist.net/character.php?q=Olivier%20Mira%20Armstrong&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
