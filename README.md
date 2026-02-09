@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is basically like a soap bubble. It rides on the wind, flying here and there... and before you realize it - pop! It's gone. When it's about to disappear, you think that you could've flown a little higher. But by the time, it's already too late."
+> "A left... and then a right. Or is it a right and then a left? Hmm... maybe the postcard's upside-down."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Hikari**](https://myanimelist.net/character.php?q=Hikari&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
