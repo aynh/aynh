@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can see through you, you're lying, you want to gobble up my hot body!"
+> "When you meet your God tell him to leave me alone."
 
-&mdash; [**Elizabeth Thompson**](https://myanimelist.net/character.php?q=Elizabeth%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
