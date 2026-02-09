@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your own path is for you to find out on your own."
+> "A traveler does not leave regret behind in a village, but good memories."
 
-&mdash; [**Subaru**](https://myanimelist.net/character.php?q=Subaru&cat=character), [**.hack//SIGN**](https://myanimelist.net/search/all?q=.hack%2F%2FSIGN&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
