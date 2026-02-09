@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You really don't know what happened, do you? It doesn't matter. By all means, stay in this cozy coffin of yours and continue to play prince. But I have to go now. She's not gone at all, she merely vanished form your world. Farewell."
+> "[To Sarutobi] What nonsense! In the grand scheme of time, you're nothing more than a trivial footnote in the brief history of a cluster of huts called the 'Leaf Village'! In time, the Hokage Stone Faces will crumble and be worn down to nothing..."
 
-&mdash; [**Anthy Himemiya**](https://myanimelist.net/character.php?q=Anthy%20Himemiya&cat=character), [**Revolutionary Girl Utena**](https://myanimelist.net/search/all?q=Revolutionary%20Girl%20Utena&cat=all)
+&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
