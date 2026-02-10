@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He may seem cold-blooded, but he's more human and his heart is more brittle than anyone else... so much so that if you filled it with human love or betrayal, it'd break easily... which is why I think he chose to avoid it all from the start: to love humanity. Do you understand? Not to accept it, not to face it, but he chose to avoid it."
+> "The best way to live a full life is to be a child, no matter your age."
 
-&mdash; [**Shinra Kishitani**](https://myanimelist.net/character.php?q=Shinra%20Kishitani&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
