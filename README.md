@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The best way to live a full life is to be a child, no matter your age."
+> "It's when things are tough that you have to keep your head up high. You won't find hope lying on the ground."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Inspector Sayama**](https://myanimelist.net/character.php?q=Inspector%20Sayama&cat=character), [**Zetman**](https://myanimelist.net/search/all?q=Zetman&cat=all)
