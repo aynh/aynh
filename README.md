@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A city far away from my homeland.  There, after becoming acquainted with strangers, have I changed, perhaps?  That uncontrollable impulse I harbored within me...Has it faded away now, I wonder? What exactly am I doing here in this city?"
+> "He may seem cold-blooded, but he's more human and his heart is more brittle than anyone else... so much so that if you filled it with human love or betrayal, it'd break easily... which is why I think he chose to avoid it all from the start: to love humanity. Do you understand? Not to accept it, not to face it, but he chose to avoid it."
 
-&mdash; [**Vorona**](https://myanimelist.net/character.php?q=Vorona&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Shinra Kishitani**](https://myanimelist.net/character.php?q=Shinra%20Kishitani&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
