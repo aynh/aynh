@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We’re always serious. We’re seriously joking around."
+> "[To Tohru] Ever since you left I've been getting pissed off about everything, and because I couldn't understand why, it just pissed me off even more!"
 
-&mdash; [**Anarchy Stocking**](https://myanimelist.net/character.php?q=Anarchy%20Stocking&cat=character), [**Panty And Stocking With Gaterbelt**](https://myanimelist.net/search/all?q=Panty%20And%20Stocking%20With%20Gaterbelt&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
