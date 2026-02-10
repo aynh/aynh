@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's when things are tough that you have to keep your head up high. You won't find hope lying on the ground."
+> "Oh, immortality. Heh, I gave that to the snake."
 
-&mdash; [**Inspector Sayama**](https://myanimelist.net/character.php?q=Inspector%20Sayama&cat=character), [**Zetman**](https://myanimelist.net/search/all?q=Zetman&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
