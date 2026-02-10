@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Protecting a man’s pride… is a woman’s duty."
+> "You know, isn't it said that life has its ups and downs? It's fun because downs come after ups, but if life was full of downs, wouldn't it get boring?"
 
-&mdash; [**Saeko Busujima**](https://myanimelist.net/character.php?q=Saeko%20Busujima&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
