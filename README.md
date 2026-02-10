@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your friend thinks he can win the prize crown, but he has no hope whatsoever. He is a mere shadow of a true shaman and he will be the first in a long line to perish in my hands."
+> "Protecting a man’s pride… is a woman’s duty."
 
-&mdash; [**Tao Len**](https://myanimelist.net/character.php?q=Tao%20Len&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Saeko Busujima**](https://myanimelist.net/character.php?q=Saeko%20Busujima&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
