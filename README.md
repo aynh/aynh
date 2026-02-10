@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, you know what I'm talking about. That stupid line that all you Quincies keep saying up until the moment you die. By the honor of the Quincy I cannot do this, by the honor of the Quincy I won't allow that. Quincy this, Quincy that! Every last one of you! It's so annoying!"
+> "No one would intentionally set an easily accessible place as their goal. It's a challenge, because it's difficult. It is a dream because it can't be achieved easily."
 
-&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Isashiki Jun**](https://myanimelist.net/character.php?q=Isashiki%20Jun&cat=character), [**Diamond No Ace**](https://myanimelist.net/search/all?q=Diamond%20No%20Ace&cat=all)
