@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, isn't it said that life has its ups and downs? It's fun because downs come after ups, but if life was full of downs, wouldn't it get boring?"
+> "Embrace that feeling. Love’s never rational."
 
-&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Suzuura Natsuki**](https://myanimelist.net/character.php?q=Suzuura%20Natsuki&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
