@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Embrace that feeling. Love’s never rational."
+> "A city far away from my homeland.  There, after becoming acquainted with strangers, have I changed, perhaps?  That uncontrollable impulse I harbored within me...Has it faded away now, I wonder? What exactly am I doing here in this city?"
 
-&mdash; [**Suzuura Natsuki**](https://myanimelist.net/character.php?q=Suzuura%20Natsuki&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
+&mdash; [**Vorona**](https://myanimelist.net/character.php?q=Vorona&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
