@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate waiting, but if waiting means being able to be with you I'll wait for as long as forever."
+> "I will do what I can, even if my chance of passing is minuscule, if that will allow me to move forward."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
