@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hold your tongue, the dead don't speak."
+> "I hate waiting, but if waiting means being able to be with you I'll wait for as long as forever."
 
-&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
