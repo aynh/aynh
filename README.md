@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yes, I'm the nice twin, but this conversation bores me. Go play in traffic, please."
+> "Violence, greed, slaughter, corruption, defeat, failure, immorality, humiliation… These are everywhere. As long as you live, you will face them."
 
-&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Hampnie Hambart**](https://myanimelist.net/character.php?q=Hampnie%20Hambart&cat=character), [**Kamisama no Inai Nichiyoubi**](https://myanimelist.net/search/all?q=Kamisama%20no%20Inai%20Nichiyoubi&cat=all)
