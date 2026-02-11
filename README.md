@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe there’s only a dark road up ahead. But you still have to believe and keep going. Believe that the stars will light your path, even a little bit."
+> "Rarely does one have the chance to exchange blows with heroes from another age. And with the chance to fight as many as six, I can't allow one of them to fall right now. Look at Saber and Lancer. Both are valiant warriors I would love to duel with. It'd be a pity to let either die."
 
-&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
