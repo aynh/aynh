@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Mugen* Do you want to go through all the trouble of causing an uproar to expose the level of your idiocy? Try to moderate your self-importance."
+> "The earth's rowdier than a group of five high school guys living under the same roof."
 
-&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
