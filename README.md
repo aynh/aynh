@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Falsity' is changing the truth. 'Ignorance' is not realizing the truth. 'Incompetence' is being unable to fully grasp the truth."
+> "*to Mugen* Do you want to go through all the trouble of causing an uproar to expose the level of your idiocy? Try to moderate your self-importance."
 
-&mdash; [**Laetitia**](https://myanimelist.net/character.php?q=Laetitia&cat=character), [**Madlax**](https://myanimelist.net/search/all?q=Madlax&cat=all)
+&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
