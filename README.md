@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will do what I can, even if my chance of passing is minuscule, if that will allow me to move forward."
+> "If you make fiction just as valuable as reality, then any reality you don't need can be a delusion."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Erika Karisawa**](https://myanimelist.net/character.php?q=Erika%20Karisawa&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
