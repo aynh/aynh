@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll make you so in love with me, that every time our lips touch you'll die a little."
+> "'Falsity' is changing the truth. 'Ignorance' is not realizing the truth. 'Incompetence' is being unable to fully grasp the truth."
 
-&mdash; [**Koizumi George**](https://myanimelist.net/character.php?q=Koizumi%20George&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
+&mdash; [**Laetitia**](https://myanimelist.net/character.php?q=Laetitia&cat=character), [**Madlax**](https://myanimelist.net/search/all?q=Madlax&cat=all)
