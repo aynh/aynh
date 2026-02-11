@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Songs are good. Singing brings us joy. It is the highest point in the culture that Lilims have created."
+> "Yes, I'm the nice twin, but this conversation bores me. Go play in traffic, please."
 
-&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Hikaru Hitachiin**](https://myanimelist.net/character.php?q=Hikaru%20Hitachiin&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
