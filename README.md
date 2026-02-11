@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Simplicity is the easiest path to true beauty."
+> "You know, with talented people... They draw people to themselves, and without even trying to, they tear them to shreds. The closer you are to them, the more viciously you'll be torn apart. They're living in a completely different world above us. One that us normal people can't reach. In a world that we'll never see. A world above the clouds. That's the kind of world they live in."
 
-&mdash; [**Handa Seishū**](https://myanimelist.net/character.php?q=Handa%20Seish%C5%AB&cat=character), [**Barakamon**](https://myanimelist.net/search/all?q=Barakamon&cat=all)
+&mdash; [**Jin Mitaka**](https://myanimelist.net/character.php?q=Jin%20Mitaka&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
