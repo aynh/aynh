@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They are more like “people who don’t follow rules…” There are different kinds of people in different worlds! … Between you two and them, what is the difference? It isn’t unusual… to put it to an extreme… A hero during a war would be just another murderer in peaceful times."
+> "Ah, I'm sorry, I guess this is farewell. Let Tohru find happiness. Please by many people let her be loved. If you become perplexed or make errors, in the end have the kind of life that you can have pride in living. The kind where you can say, 'I persevered'. Repeating delightful things and sad things. And in that way keep getting older. I persevered. (Part of Kyoko's last words that were never said)"
 
-&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
