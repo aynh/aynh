@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah, I'm sorry, I guess this is farewell. Let Tohru find happiness. Please by many people let her be loved. If you become perplexed or make errors, in the end have the kind of life that you can have pride in living. The kind where you can say, 'I persevered'. Repeating delightful things and sad things. And in that way keep getting older. I persevered. (Part of Kyoko's last words that were never said)"
+> "FOOL! As someone who is unaware of the vital role that singing has played in the cultural history of mankind you are in no position to question me. Remember that the next time you stop to consider your place in this world. You do not possess the power to deny a singer his song. Do you understand what I'm telling you?"
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
