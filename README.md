@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In general, men prefer to let their actions speak instead of words. When they're in pain, they don't want to burden anyone with it, not if they can help it. They don't want anyone to worry about them. That's how they are. Even so, there may come a time when they'll ask for your help. And when they do, I know that you'll be there for them. Isn't that enough?"
+> "Regret is a different beast when you live for centuries."
 
-&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
