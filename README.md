@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "FOOL! As someone who is unaware of the vital role that singing has played in the cultural history of mankind you are in no position to question me. Remember that the next time you stop to consider your place in this world. You do not possess the power to deny a singer his song. Do you understand what I'm telling you?"
+> "It’s dangerous for them to grow up without experiencing true competition. Because they’ll keep whining, even without taking the matter seriously. For those with a high level of aptitude... The sooner they know the frustration of defeat, the greater their growth will be."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
