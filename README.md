@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't do any good to pretend you can't see what's going on."
+> "The rain, the wind, the sun... you bring them all with you. Every time our eyes meet. You bring the world to me."
 
-&mdash; [**Yuuya Mochizuki**](https://myanimelist.net/character.php?q=Yuuya%20Mochizuki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
