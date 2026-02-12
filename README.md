@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you make fiction just as valuable as reality, then any reality you don't need can be a delusion."
+> "There are only two professions in the whole world that give meaning to those who have died and what have been lost... They're writers and detectives. Writers are the only ones able to revive what was lost through their visions. Detectives are the only ones able to dig up the grave and bring back lost information. But the information us detectives dig up is nothing more than the truth as recorded in Heaven's Memo Pad."
 
-&mdash; [**Erika Karisawa**](https://myanimelist.net/character.php?q=Erika%20Karisawa&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
