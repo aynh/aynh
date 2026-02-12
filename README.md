@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Other Side of the Other Side of the Other Side would be the Other Side."
+> "It doesn't do any good to pretend you can't see what's going on."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Yuuya Mochizuki**](https://myanimelist.net/character.php?q=Yuuya%20Mochizuki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
