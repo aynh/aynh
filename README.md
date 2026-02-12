@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The rain, the wind, the sun... you bring them all with you. Every time our eyes meet. You bring the world to me."
+> "I don't want to be anyone's burden. I don't want you to be my dad if it's going to hurt you. (thinking about Kazuma)"
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
