@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no Strength, but I want it all. I have no Knowledge, but all I do is dream. There's nothing I can do, but I struggle in vain"
+> "Heroic Spirits... I want you to find a path to victory."
 
-&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
