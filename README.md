@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Memories - they can sometimes become vague and foggy and there are times when they disappear altogether. Therefore, because there are many things I don't want to lose track of, I will record everything in here (his diary) for the sake of those moments that should not be forgotten."
+> "If we all reacted the same way, we'd be predictable, and there's always more than one way to view a situation. What's true for the group is also true for the individual. It's simple: overspecialize, and you breed in weakness. It's slow death."
 
-&mdash; [**Keisuke Urashima**](https://myanimelist.net/character.php?q=Keisuke%20Urashima&cat=character), [**Love Hina**](https://myanimelist.net/search/all?q=Love%20Hina&cat=all)
+&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
