@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Heroic Spirits... I want you to find a path to victory."
+> "You're absolutely right. I can't do anything alone.  Everyone has their flaws and imperfections, but that's what drives us to work together... To make up for those flaws. Together, we make the perfect main character."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
