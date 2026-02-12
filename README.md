@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Keeping all the wealth for yourself may make your rich, but it won’t make you prosperous. You give people money, and they spend it. True prosperity comes from a free flow of wealth and goods."
+> "In general, men prefer to let their actions speak instead of words. When they're in pain, they don't want to burden anyone with it, not if they can help it. They don't want anyone to worry about them. That's how they are. Even so, there may come a time when they'll ask for your help. And when they do, I know that you'll be there for them. Isn't that enough?"
 
-&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
