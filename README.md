@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Entire civilizations were built and destroyed between now and the last time you said 'we'll go soon'! I'll have rotted and turned to ash by the time this 'soon' of yours comes!!"
+> "Power is not will, it is the phenomenon of physically making things happen."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
