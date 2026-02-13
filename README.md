@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What could be more beautiful than doing work that puts your soul at risk, because that's what it means to be alive!"
+> "You were always there for me, and that’s all I needed. Just you. For some reason, I didn't feel sad or broken up, it just didn't seem real. But slowly I realized it was real – that you were gone. And little by little, I slowly felt something inside me go numb."
 
-&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Jet Black**](https://myanimelist.net/character.php?q=Jet%20Black&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
