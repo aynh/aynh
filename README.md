@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you act only on what you should do without heed for what you want to do, you're nothing more than a machine, a phenomenon."
+> "Hope brings me pain... if I didn't have any hope at all, I might never have known such agony."
 
-&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Minato**](https://myanimelist.net/character.php?q=Minato&cat=character), [**Houkago no Pleiades**](https://myanimelist.net/search/all?q=Houkago%20no%20Pleiades&cat=all)
