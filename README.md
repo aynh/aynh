@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how many good deeds you perform, your past sins cannot be erased."
+> "If I feel lonely when someone is leaving, it means that the person is very close to me."
 
-&mdash; [**Sheele**](https://myanimelist.net/character.php?q=Sheele&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
