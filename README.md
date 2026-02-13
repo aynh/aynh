@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You were always there for me, and that’s all I needed. Just you. For some reason, I didn't feel sad or broken up, it just didn't seem real. But slowly I realized it was real – that you were gone. And little by little, I slowly felt something inside me go numb."
+> "Is being silent and suppressing  your own feelings really being thoughtful of the other person?"
 
-&mdash; [**Jet Black**](https://myanimelist.net/character.php?q=Jet%20Black&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Tsukushi Makino**](https://myanimelist.net/character.php?q=Tsukushi%20Makino&cat=character), [**Boys Over Flowers**](https://myanimelist.net/search/all?q=Boys%20Over%20Flowers&cat=all)
