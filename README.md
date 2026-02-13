@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't use such strong words -- It makes your weakness all the more apparent."
+> "Power isn't determined by your size, but the size of your heart and dreams!"
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
