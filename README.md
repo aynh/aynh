@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want to be anyone's burden. I don't want you to be my dad if it's going to hurt you. (thinking about Kazuma)"
+> "Don't use such strong words -- It makes your weakness all the more apparent."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
