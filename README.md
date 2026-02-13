@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it is because of what you call a heart, then it is the heart that causes you humans pain. It is because of your heart that you will die."
+> "[to the Sound Ninja Four] Which do you prefer? To die, or to obey?"
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
