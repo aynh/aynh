@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is being silent and suppressing  your own feelings really being thoughtful of the other person?"
+> "When people are protecting something truly special to them, they truly can become... as strong as they can be."
 
-&mdash; [**Tsukushi Makino**](https://myanimelist.net/character.php?q=Tsukushi%20Makino&cat=character), [**Boys Over Flowers**](https://myanimelist.net/search/all?q=Boys%20Over%20Flowers&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
