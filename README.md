@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Huh? What are you doing falling into a hole? Some genius you are. Serves you right!"
+> "Having too many bonds causes one to lose focus, weakening their strongest wish, their greatest desire."
 
-&mdash; [**Silver**](https://myanimelist.net/character.php?q=Silver&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
