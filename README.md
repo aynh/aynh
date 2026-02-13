@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people are protecting something truly special to them, they truly can become... as strong as they can be."
+> "Romance is like an extra in life. I don't mind having it, but I'm not in the mood to chase it."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
