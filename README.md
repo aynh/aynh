@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's people for you. Trusting one another, helping one another- it's all a fantasy. Humans are creatures that will always betray."
+> "If you act only on what you should do without heed for what you want to do, you're nothing more than a machine, a phenomenon."
 
-&mdash; [**Yokoya Norihiko**](https://myanimelist.net/character.php?q=Yokoya%20Norihiko&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
