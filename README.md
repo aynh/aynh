@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's quite basic actually, perhaps the simplest of tricks there is. True it may not seem so simple from an ordinary persons point of view, some people may even consider it a baffling, utterly perplexing problem. Things will often appear complicated on the outside while in truth they are simplicity itself. Of course how one sees these things depends on the person, many people find there is a fine line separating the complex to the very simple."
+> "No matter how many good deeds you perform, your past sins cannot be erased."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sheele**](https://myanimelist.net/character.php?q=Sheele&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
