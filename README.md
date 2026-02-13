@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's my belief that powers aren't meant to hurt people. Nor are they meant to make others happy."
+> "Huh? What are you doing falling into a hole? Some genius you are. Serves you right!"
 
-&mdash; [**Jurai Andou**](https://myanimelist.net/character.php?q=Jurai%20Andou&cat=character), [**Inou Battle wa Nichijou-kei no Naka de**](https://myanimelist.net/search/all?q=Inou%20Battle%20wa%20Nichijou-kei%20no%20Naka%20de&cat=all)
+&mdash; [**Silver**](https://myanimelist.net/character.php?q=Silver&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
