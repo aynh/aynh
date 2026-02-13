@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I feel lonely when someone is leaving, it means that the person is very close to me."
+> "That's people for you. Trusting one another, helping one another- it's all a fantasy. Humans are creatures that will always betray."
 
-&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Yokoya Norihiko**](https://myanimelist.net/character.php?q=Yokoya%20Norihiko&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
