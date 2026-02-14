@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Failing doesn't give you a reason to give up as long as you believe."
+> "When I began thinking of him as I fell asleep, I stopped having nightmares. I began to look forward to seeing him. For the first time since I arrived here, I was happy."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
