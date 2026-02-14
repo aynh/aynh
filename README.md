@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Relationships do not always improve... Sometimes they decline... But... it still counts as a victory if it all works out in the end... Let’s keep it at that..."
+> "Talent is something you make bloom, instinct is something you polish."
 
-&mdash; [**The Will of the Whole Misaka Network**](https://myanimelist.net/character.php?q=The%20Will%20of%20the%20Whole%20Misaka%20Network&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Tooru Oikawa**](https://myanimelist.net/character.php?q=Tooru%20Oikawa&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
