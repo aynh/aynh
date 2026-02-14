@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our hearts beat in the same rhythm, so why does time flow differently for the two of us?"
+> "Relationships do not always improve... Sometimes they decline... But... it still counts as a victory if it all works out in the end... Let’s keep it at that..."
 
-&mdash; [**Saya Otonashi**](https://myanimelist.net/character.php?q=Saya%20Otonashi&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
+&mdash; [**The Will of the Whole Misaka Network**](https://myanimelist.net/character.php?q=The%20Will%20of%20the%20Whole%20Misaka%20Network&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
