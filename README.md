@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I left Syrup Village, I left everything behind! Tranquility… Safety… They face hardships every day, and they laugh like they’re really having fun! That’s why I decided to go out to sea! I want to laugh ’til I cry, too! But if I don’t fight with everything I’ve got, there’s no way I deserve to be on the same boat as them! There’s no way I can laugh with them!"
+> "You - Idiot! Go ahead and cry! When I'm with you, you don't have to hold back. *Usagi runs into his arms, sobbing*"
 
-&mdash; [**Usopp**](https://myanimelist.net/character.php?q=Usopp&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Mamoru Chiba**](https://myanimelist.net/character.php?q=Mamoru%20Chiba&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
