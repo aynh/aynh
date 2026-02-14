@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You - Idiot! Go ahead and cry! When I'm with you, you don't have to hold back. *Usagi runs into his arms, sobbing*"
+> "I never like to work based on trust. It takes hard work to build up trust, but only an instant to lose it. There's no less profitable investment."
 
-&mdash; [**Mamoru Chiba**](https://myanimelist.net/character.php?q=Mamoru%20Chiba&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
+&mdash; [**Ushiromiya Kyrie**](https://myanimelist.net/character.php?q=Ushiromiya%20Kyrie&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
