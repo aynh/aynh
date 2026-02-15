@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing can stay unchanged. Fun things… Happy things… They can’t possibly remain the same."
+> "Assassins Rule Number One - Silence: Dissolve in the darkness and erase your breath. Wait for an opening to attack your target."
 
-&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
