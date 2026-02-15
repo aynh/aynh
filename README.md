@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there is a pure wish in this world, it must be the desire to be born."
+> "[To Waver] The path of devotion is a great labor. Do not ever mar it."
 
-&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
