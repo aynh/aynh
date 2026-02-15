@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more I concentrate, the more I get consumed by my performance. The sounds I play fade away from my reach, tangling up like flowers seized by the spring wind and vanish."
+> "If there is a pure wish in this world, it must be the desire to be born."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
