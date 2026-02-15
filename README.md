@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Accept that your life will be painful, bite back your grief and find the power to stand again."
+> "A sinner once passed away will never return, but sins will never vanish and the love will never die."
 
-&mdash; [**Nakiami**](https://myanimelist.net/character.php?q=Nakiami&cat=character), [**Bounen No Zamned**](https://myanimelist.net/search/all?q=Bounen%20No%20Zamned&cat=all)
+&mdash; [**Les Soldats**](https://myanimelist.net/character.php?q=Les%20Soldats&cat=character), [**Noir**](https://myanimelist.net/search/all?q=Noir&cat=all)
