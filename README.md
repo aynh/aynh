@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The spell always breaks in the end. Girls will always transform back into their original shabby form. After that, you only have your own strength to rely on to accomplish anything."
+> "Love is... care and devotion you feel for the precious ones around you."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Yashamaru**](https://myanimelist.net/character.php?q=Yashamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
