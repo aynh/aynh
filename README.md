@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Living your life to the fullest 'til the moment of your death, this is the rule to live by in any world."
+> "That may be so. What is right from wrong? What is good from evil? Nobody can truly distinguish between them. Even if there was a god. Now, supposing a god and his world existed, even then I'd stop and think for myself. I'd decide for myself whether his teachings are right or wrong. After all, I am just the same as you. I put faith in my own convictions as to what I believe is right, and consider them to be righteous."
 
-&mdash; [**Crusty**](https://myanimelist.net/character.php?q=Crusty&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
