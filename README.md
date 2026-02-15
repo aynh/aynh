@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is nothing left to believe in."
+> "If you cling to life, you live in fear of death. And that fear will cloud your judgment."
 
-&mdash; [**Vicious**](https://myanimelist.net/character.php?q=Vicious&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
