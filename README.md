@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a man of the sea falls in love, he dives in head first!"
+> "The spell always breaks in the end. Girls will always transform back into their original shabby form. After that, you only have your own strength to rely on to accomplish anything."
 
-&mdash; [**Wave**](https://myanimelist.net/character.php?q=Wave&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
