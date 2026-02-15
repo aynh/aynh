@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Waver] The path of devotion is a great labor. Do not ever mar it."
+> "The world is a dark place... because you have a gloomy look on your face."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**No-Sense**](https://myanimelist.net/character.php?q=No-Sense&cat=character), [**Coppelion**](https://myanimelist.net/search/all?q=Coppelion&cat=all)
