@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Assassins Rule Number One - Silence: Dissolve in the darkness and erase your breath. Wait for an opening to attack your target."
+> "The melody of logic always plays the notes of truth."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ayumi Narumi**](https://myanimelist.net/character.php?q=Ayumi%20Narumi&cat=character), [**Spiral**](https://myanimelist.net/search/all?q=Spiral&cat=all)
