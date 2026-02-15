@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right now, we're all really only taking it day by day. Even if we can't get used to things, even if we can't win at something, even if we don't have any excess...In order to live day by day, we work, we fail, and we succeed. Sometimes we laugh. For the blessing before our very eyes, for our friends, we're thankful. Who knew that people could feel happiness just from living?"
+> "There were a lot of people who were kind to begin with. No, they were probably good people but, I don't want to see the disappointment in their eyes anymore. I don't really want to meet kind of people anymore."
 
-&mdash; [**Sei**](https://myanimelist.net/character.php?q=Sei&cat=character), [**Suicide Island**](https://myanimelist.net/search/all?q=Suicide%20Island&cat=all)
+&mdash; [**Natsume Takeshi**](https://myanimelist.net/character.php?q=Natsume%20Takeshi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
