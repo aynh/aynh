@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The melody of logic always plays the notes of truth."
+> "Living your life to the fullest 'til the moment of your death, this is the rule to live by in any world."
 
-&mdash; [**Ayumi Narumi**](https://myanimelist.net/character.php?q=Ayumi%20Narumi&cat=character), [**Spiral**](https://myanimelist.net/search/all?q=Spiral&cat=all)
+&mdash; [**Crusty**](https://myanimelist.net/character.php?q=Crusty&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
