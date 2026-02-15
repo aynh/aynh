@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To a girl, a man who’s nice to everyone... hm, I suppose that works as an example, to a man, it would be like a woman who opens her legs to anyone. People want companions so they can swiftly satisfy their need for love and affection. A woman wants a man who only shows his love to her."
+> "Accept that your life will be painful, bite back your grief and find the power to stand again."
 
-&mdash; [**Rory Mercury**](https://myanimelist.net/character.php?q=Rory%20Mercury&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Nakiami**](https://myanimelist.net/character.php?q=Nakiami&cat=character), [**Bounen No Zamned**](https://myanimelist.net/search/all?q=Bounen%20No%20Zamned&cat=all)
