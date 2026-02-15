@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A sinner once passed away will never return, but sins will never vanish and the love will never die."
+> "There is nothing left to believe in."
 
-&mdash; [**Les Soldats**](https://myanimelist.net/character.php?q=Les%20Soldats&cat=character), [**Noir**](https://myanimelist.net/search/all?q=Noir&cat=all)
+&mdash; [**Vicious**](https://myanimelist.net/character.php?q=Vicious&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
