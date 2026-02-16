@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there's something you want to go through with, you should stick to it without keeping up appearances."
+> "Our souls, together till the end!"
 
-&mdash; [**Arato Hisako**](https://myanimelist.net/character.php?q=Arato%20Hisako&cat=character), [**Shokugeki no Sōma**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma&cat=all)
+&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
