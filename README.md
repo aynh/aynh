@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[thinking] If I'm still sane by the time I finish their training it'll be a miracle!"
+> "[sounding like Marlon Brando] I'm the Godfather of Games. Capsice?"
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Joey Wheeler**](https://myanimelist.net/character.php?q=Joey%20Wheeler&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
