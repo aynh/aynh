@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I envy you people. What I sought, but could not obtain. What I obtained, but could not obtain. Many things slipped out between my fingers, no matter what commandment I used."
+> "[thinking] If I'm still sane by the time I finish their training it'll be a miracle!"
 
-&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
