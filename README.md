@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ready or not, Spirit, this is where you take over."
+> "If there's something you want to go through with, you should stick to it without keeping up appearances."
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Arato Hisako**](https://myanimelist.net/character.php?q=Arato%20Hisako&cat=character), [**Shokugeki no Sōma**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma&cat=all)
