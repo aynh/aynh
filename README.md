@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What a terrible story. But appropriate for our world. Sometimes I feel like I'm walking over a giant pile of shit. Morality and justice don't really suit me. Words like that and what comes out of asses are surprisingly similar."
+> "You came without fear. Don't have any regrets, no matter what happens. This is the duel you wanted."
 
-&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
