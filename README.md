@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our souls, together till the end!"
+> "It is absurd to divide people into good and bad. People are either charming or tedious."
 
-&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
