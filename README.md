@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world is a dark place... because you have a gloomy look on your face."
+> "What a terrible story. But appropriate for our world. Sometimes I feel like I'm walking over a giant pile of shit. Morality and justice don't really suit me. Words like that and what comes out of asses are surprisingly similar."
 
-&mdash; [**No-Sense**](https://myanimelist.net/character.php?q=No-Sense&cat=character), [**Coppelion**](https://myanimelist.net/search/all?q=Coppelion&cat=all)
+&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
