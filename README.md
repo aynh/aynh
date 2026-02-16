@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[sounding like Marlon Brando] I'm the Godfather of Games. Capsice?"
+> "Ready or not, Spirit, this is where you take over."
 
-&mdash; [**Joey Wheeler**](https://myanimelist.net/character.php?q=Joey%20Wheeler&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
