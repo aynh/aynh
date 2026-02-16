@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’m not going to apologize. This is an absurd, unfair world."
+> "A mystery... (Haru says this a lot, usually when it's not a mystery at all)"
 
-&mdash; [**Yahiro Samukawa**](https://myanimelist.net/character.php?q=Yahiro%20Samukawa&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
