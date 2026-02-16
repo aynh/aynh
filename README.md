@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You came without fear. Don't have any regrets, no matter what happens. This is the duel you wanted."
+> "I haven't lived all that long yet, but there is something I firmly believe in. The people who have the ability to change something in this world, all without exception, have the guts to abandon things important to them if they have to. They are those who can abandon even their humanity."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
