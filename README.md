@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There're too many people who worry about the things I don't worry about."
+> "Everyone Makes Mistakes. But people's feelings can manifest through the most subtle of expressions."
 
-&mdash; [**Takeshi Nanase**](https://myanimelist.net/character.php?q=Takeshi%20Nanase&cat=character), [**Magical Warfare**](https://myanimelist.net/search/all?q=Magical%20Warfare&cat=all)
+&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
