@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If dying is the only way to get my freedom... Then I'm willing to die right now. And then I'll stop caring about people around me. Because they didn't care about me from the very start anyway."
+> "It was just a rebound! Don't make a big deal over one or two arms!"
 
-&mdash; [**Aoyagi Ritsuka**](https://myanimelist.net/character.php?q=Aoyagi%20Ritsuka&cat=character), [**Loveless**](https://myanimelist.net/search/all?q=Loveless&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
