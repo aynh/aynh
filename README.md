@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Using a simple method to accomplish something impressive, far outshines using a complex method to achieve the same thing."
+> "If you keep trying to reason with yourself instead of listening to your feelings, you'll never be able to feel true happiness."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Hiroomi Nase**](https://myanimelist.net/character.php?q=Hiroomi%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
