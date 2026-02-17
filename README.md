@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans will wither away if they're always alone. The only remedy would be to seek out other people."
+> "Actually... Ponytails turn me on... that ponytail you had back then, it looked so good it was criminal!"
 
-&mdash; [**Misawa Kyouko**](https://myanimelist.net/character.php?q=Misawa%20Kyouko&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
