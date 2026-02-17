@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Actually... Ponytails turn me on... that ponytail you had back then, it looked so good it was criminal!"
+> "I'm just a dude who's way ahead of his time you know? Does that mean I was born too early because time can't keep up with me?"
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
