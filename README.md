@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever I counted on someone, I ended up getting hurt."
+> "Is fighting right, or wrong? Does winning in the end mean justice? Truthfully, I don't know. But I know we must fight this battle! Or we will never save the world."
 
-&mdash; [**Ohana Matsumae**](https://myanimelist.net/character.php?q=Ohana%20Matsumae&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
+&mdash; [**Haru Glory**](https://myanimelist.net/character.php?q=Haru%20Glory&cat=character), [**Rave Master**](https://myanimelist.net/search/all?q=Rave%20Master&cat=all)
