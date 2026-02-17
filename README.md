@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A smile is the best way to get oneself out of a tight spot, even if it is a fake one. Surprisingly enough, everyone takes it at face value."
+> "What a laughable attempt. You should just stay where you are, groveling at my feet."
 
-&mdash; [**Sai**](https://myanimelist.net/character.php?q=Sai&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
