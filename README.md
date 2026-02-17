@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how many years it's been since they met, brothers are brothers, aren't they? Even without having seen, I can tell."
+> "Don't make it sound so easy! Don't you realize how hard I had to study? I worked hard... I worked so hard!"
 
-&mdash; [**Matahachi Hon'iden**](https://myanimelist.net/character.php?q=Matahachi%20Hon'iden&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
+&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
