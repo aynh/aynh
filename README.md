@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wasn't always fighting for love and justice. I was fighting for my friends and loved ones."
+> "We want the ones we can't have and ignore the ones that want us but then, we end up with none in the end."
 
-&mdash; [**Usagi Tsukino**](https://myanimelist.net/character.php?q=Usagi%20Tsukino&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
+&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
