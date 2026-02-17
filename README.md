@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don't have the courage to change things then you might as well just die!!!"
+> "God's not at home. He's on vacation at Vegas."
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Eda**](https://myanimelist.net/character.php?q=Eda&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
