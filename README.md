@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is fighting right, or wrong? Does winning in the end mean justice? Truthfully, I don't know. But I know we must fight this battle! Or we will never save the world."
+> "If you think about it, death really isn't so frightening. Who knows, you might actually enjoy it."
 
-&mdash; [**Haru Glory**](https://myanimelist.net/character.php?q=Haru%20Glory&cat=character), [**Rave Master**](https://myanimelist.net/search/all?q=Rave%20Master&cat=all)
+&mdash; [**Karasu**](https://myanimelist.net/character.php?q=Karasu&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
