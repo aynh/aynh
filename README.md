@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We want the ones we can't have and ignore the ones that want us but then, we end up with none in the end."
+> "No matter how many years it's been since they met, brothers are brothers, aren't they? Even without having seen, I can tell."
 
-&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Matahachi Hon'iden**](https://myanimelist.net/character.php?q=Matahachi%20Hon'iden&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
