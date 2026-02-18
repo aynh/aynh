@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I find it hard to believe that my cells are in your body. How could you have turned out so ugly? What a waste. Although, it’s obvious where you’ve gotten most of your strength."
+> "If you let anger and revenge consume you... You'll find yourself unable to behold the beautiful sights right before your eyes."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
