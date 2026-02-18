@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just walk the path you believe in. And don't forget, you're the main character of your own life story!"
+> "I wanted to be saved too..."
 
-&mdash; [**Glenn Radars**](https://myanimelist.net/character.php?q=Glenn%20Radars&cat=character), [**Rokudenashi Majutsu Koushi to Akashic Records**](https://myanimelist.net/search/all?q=Rokudenashi%20Majutsu%20Koushi%20to%20Akashic%20Records&cat=all)
+&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
