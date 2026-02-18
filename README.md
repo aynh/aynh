@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe you have the potential to bloom into something even more beautiful than the cosmos."
+> "The only times we're fated to lose are in fictional stories. This is our drama! We decide what the plot will be!"
 
-&mdash; [**Ino Yamanaka**](https://myanimelist.net/character.php?q=Ino%20Yamanaka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
