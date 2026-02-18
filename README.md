@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a couple curses stopped me, what kind of hero would I be?!"
+> "I do...want to be with you...I want to be with you...! (To Tohru and Arisa)"
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Saki Hanajima**](https://myanimelist.net/character.php?q=Saki%20Hanajima&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
