@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even saying they were just a bunch of fools would suffice. So why can't you? Were it me... I would be angry at the ignorance of those who would enter Hueco Mundo... without even testing their own power."
+> "You wont be laughing once you taste our power of friendship!"
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
