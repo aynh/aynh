@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only times we're fated to lose are in fictional stories. This is our drama! We decide what the plot will be!"
+> "It is actually more difficult to trust those who have no talent for scheming."
 
-&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Lemrina Vers Envers**](https://myanimelist.net/character.php?q=Lemrina%20Vers%20Envers&cat=character), [**Aldnoah.Zero 2nd Season**](https://myanimelist.net/search/all?q=Aldnoah.Zero%202nd%20Season&cat=all)
