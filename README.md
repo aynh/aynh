@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do...want to be with you...I want to be with you...! (To Tohru and Arisa)"
+> "Even if the world line changes, as long as you don't forget me, I'm there."
 
-&mdash; [**Saki Hanajima**](https://myanimelist.net/character.php?q=Saki%20Hanajima&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
