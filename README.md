@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if the world line changes, as long as you don't forget me, I'm there."
+> "Even saying they were just a bunch of fools would suffice. So why can't you? Were it me... I would be angry at the ignorance of those who would enter Hueco Mundo... without even testing their own power."
 
-&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
