@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're helping someone and expecting something in return, you're doing business not kindness."
+> "If a couple curses stopped me, what kind of hero would I be?!"
 
-&mdash; [**Shirayuki**](https://myanimelist.net/character.php?q=Shirayuki&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
