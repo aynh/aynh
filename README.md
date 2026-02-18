@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I vowed that earth would forever remain in peace. Since I made that vow, not a single threat has been made against earth. That’s all thanks to the fact that my name is known through the entire galaxy."
+> "I really don't get it. Why don't you tell her how you feel if you care for her so much? Why would you lie like that and keep yourself from pursuing her?"
 
-&mdash; [**Hercule**](https://myanimelist.net/character.php?q=Hercule&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Soutarou Kanou**](https://myanimelist.net/character.php?q=Soutarou%20Kanou&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
