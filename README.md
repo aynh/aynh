@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world...what a glorious place! Seek freedom, and it will lie stretched out before your eyes. If the endless dream guides your restless spirit, seize it! Raise your flag, and stand tall!"
+> "There are two kinds of people in this world. Those who eat the things they hate first, and those who eat them last."
 
-&mdash; [**Gol D. Roger**](https://myanimelist.net/character.php?q=Gol%20D.%20Roger&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Fukuda Nanjirou**](https://myanimelist.net/character.php?q=Fukuda%20Nanjirou&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
