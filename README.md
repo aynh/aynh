@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...The act of taking is equally evil. We, from the moment of birth, continue to take. Food, connections, even fellow blood. Living to utmost. Continuing to slaughter, kill, take. Life is to constantly sin. Life is evil itself. I am aware I am evil... And so are you all. Now, come kill me. And I shall do the same!"
+> "Fine! You heard fox boy, there's nothing we can do for the old hag if she's already limp. Just gotta keep on truckin, yes sir! I'm gonna go outside and make myself a nice, big, shiny first-place medal, sit in the sun, and have a stupendous friggin day, dammit!"
 
-&mdash; [**Yoshimura**](https://myanimelist.net/character.php?q=Yoshimura&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
