@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are two kinds of people in this world. Those who eat the things they hate first, and those who eat them last."
+> "...The act of taking is equally evil. We, from the moment of birth, continue to take. Food, connections, even fellow blood. Living to utmost. Continuing to slaughter, kill, take. Life is to constantly sin. Life is evil itself. I am aware I am evil... And so are you all. Now, come kill me. And I shall do the same!"
 
-&mdash; [**Fukuda Nanjirou**](https://myanimelist.net/character.php?q=Fukuda%20Nanjirou&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Yoshimura**](https://myanimelist.net/character.php?q=Yoshimura&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
