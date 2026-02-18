@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People bring the small flames of their wishes together... since they don't want to extinguish the small flame... they'll bring that small flame to a bigger fire. A big flame named Griffith. But you know... I didn't bring a flame with me. I think I just stopped by to warm myself by the bonfire."
+> "If you're helping someone and expecting something in return, you're doing business not kindness."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Shirayuki**](https://myanimelist.net/character.php?q=Shirayuki&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
