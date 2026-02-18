@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I really don't get it. Why don't you tell her how you feel if you care for her so much? Why would you lie like that and keep yourself from pursuing her?"
+> "I believe you have the potential to bloom into something even more beautiful than the cosmos."
 
-&mdash; [**Soutarou Kanou**](https://myanimelist.net/character.php?q=Soutarou%20Kanou&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Ino Yamanaka**](https://myanimelist.net/character.php?q=Ino%20Yamanaka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
