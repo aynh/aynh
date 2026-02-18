@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fine! You heard fox boy, there's nothing we can do for the old hag if she's already limp. Just gotta keep on truckin, yes sir! I'm gonna go outside and make myself a nice, big, shiny first-place medal, sit in the sun, and have a stupendous friggin day, dammit!"
+> "People bring the small flames of their wishes together... since they don't want to extinguish the small flame... they'll bring that small flame to a bigger fire. A big flame named Griffith. But you know... I didn't bring a flame with me. I think I just stopped by to warm myself by the bonfire."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
