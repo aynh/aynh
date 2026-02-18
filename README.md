@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you let anger and revenge consume you... You'll find yourself unable to behold the beautiful sights right before your eyes."
+> "The world...what a glorious place! Seek freedom, and it will lie stretched out before your eyes. If the endless dream guides your restless spirit, seize it! Raise your flag, and stand tall!"
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Gol D. Roger**](https://myanimelist.net/character.php?q=Gol%20D.%20Roger&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
