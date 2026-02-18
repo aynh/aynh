@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You wont be laughing once you taste our power of friendship!"
+> "I vowed that earth would forever remain in peace. Since I made that vow, not a single threat has been made against earth. That’s all thanks to the fact that my name is known through the entire galaxy."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Hercule**](https://myanimelist.net/character.php?q=Hercule&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
