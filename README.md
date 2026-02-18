@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is actually more difficult to trust those who have no talent for scheming."
+> "Just walk the path you believe in. And don't forget, you're the main character of your own life story!"
 
-&mdash; [**Lemrina Vers Envers**](https://myanimelist.net/character.php?q=Lemrina%20Vers%20Envers&cat=character), [**Aldnoah.Zero 2nd Season**](https://myanimelist.net/search/all?q=Aldnoah.Zero%202nd%20Season&cat=all)
+&mdash; [**Glenn Radars**](https://myanimelist.net/character.php?q=Glenn%20Radars&cat=character), [**Rokudenashi Majutsu Koushi to Akashic Records**](https://myanimelist.net/search/all?q=Rokudenashi%20Majutsu%20Koushi%20to%20Akashic%20Records&cat=all)
