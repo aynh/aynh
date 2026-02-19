@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You taught me what it means to love, and for that I will be eternally grateful."
+> "I am not so grand, not as a god. I am Horo, and Horo is all that I am."
 
-&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
