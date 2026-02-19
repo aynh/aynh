@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When the hunger seemed to kill me, I was wondering if the world hates me. I can't explain it, but I still love the world."
+> "I would be nothing without you."
 
-&mdash; [**Johnathan Mar**](https://myanimelist.net/character.php?q=Johnathan%20Mar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
