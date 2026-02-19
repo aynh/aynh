@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's the point of magic to begin with... if I can't use it to protect my friends?"
+> "Sasuke! Sasuke! Sasuke! What does he have that I don't have?!"
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
