@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not so grand, not as a god. I am Horo, and Horo is all that I am."
+> "You're so silly. Even adults cry from a broken heart. It's okay to cry."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Sana Hidaka**](https://myanimelist.net/character.php?q=Sana%20Hidaka&cat=character), [**Myself ; Yourself**](https://myanimelist.net/search/all?q=Myself%20%3B%20Yourself&cat=all)
