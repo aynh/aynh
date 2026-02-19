@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're so silly. Even adults cry from a broken heart. It's okay to cry."
+> "What's the point of magic to begin with... if I can't use it to protect my friends?"
 
-&mdash; [**Sana Hidaka**](https://myanimelist.net/character.php?q=Sana%20Hidaka&cat=character), [**Myself ; Yourself**](https://myanimelist.net/search/all?q=Myself%20%3B%20Yourself&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
