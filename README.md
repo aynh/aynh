@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rumors, at times, can be more severe than the truth."
+> "*when Lady Eboshi asks him what he's here for* To see with eyes unclouded by hate."
 
-&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Prince Ashitaka**](https://myanimelist.net/character.php?q=Prince%20Ashitaka&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
