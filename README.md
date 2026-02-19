@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*when Lady Eboshi asks him what he's here for* To see with eyes unclouded by hate."
+> "You taught me what it means to love, and for that I will be eternally grateful."
 
-&mdash; [**Prince Ashitaka**](https://myanimelist.net/character.php?q=Prince%20Ashitaka&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
