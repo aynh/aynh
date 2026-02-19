@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When do you think people die? When they are shot through the heart by the bullet of a pistol? No. When they are ravaged by an incurable disease? No. When they drink a soup made from a poisonous mushroom!? No! It’s when... they are forgotten."
+> "It's okay, no need to thank me or say anything else. I will always be there for you, I will make you fall for me over and over again."
 
-&mdash; [**Dr hiluluk**](https://myanimelist.net/character.php?q=Dr%20hiluluk&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
