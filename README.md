@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Live well, Ichigo. Live well, age well, go bald well, and die after me. And... if you can, die smiling."
+> "Whether your words...are lies created to deceive me... or the truth that I have sought all my life... It makes no difference. You will rot."
 
-&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sephiroth**](https://myanimelist.net/character.php?q=Sephiroth&cat=character), [**Final Fantasy VII: Advent Children**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Advent%20Children&cat=all)
