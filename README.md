@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sasuke! Sasuke! Sasuke! What does he have that I don't have?!"
+> "People have to save themselves. One person saving another is impossible."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
