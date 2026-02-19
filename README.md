@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether your words...are lies created to deceive me... or the truth that I have sought all my life... It makes no difference. You will rot."
+> "A world created through oppresing others with brute force has no meaning!"
 
-&mdash; [**Sephiroth**](https://myanimelist.net/character.php?q=Sephiroth&cat=character), [**Final Fantasy VII: Advent Children**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Advent%20Children&cat=all)
+&mdash; [**Yuzu Hiiragi**](https://myanimelist.net/character.php?q=Yuzu%20Hiiragi&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
