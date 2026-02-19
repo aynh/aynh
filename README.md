@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A world created through oppresing others with brute force has no meaning!"
+> "Hey Nana, if Cinderella's glass slipper fits so perfectly, I wonder why it fell off along the way? I can't help but think that it was on purpose, to attract the prince's affections. No matter what I do, I'll still have the fate of a girl who just keeps getting hurt, wondering if she can be happy in this pointless, one man show?"
 
-&mdash; [**Yuzu Hiiragi**](https://myanimelist.net/character.php?q=Yuzu%20Hiiragi&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
+&mdash; [**Nana Komatsu**](https://myanimelist.net/character.php?q=Nana%20Komatsu&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
