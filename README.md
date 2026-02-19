@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay, no need to thank me or say anything else. I will always be there for you, I will make you fall for me over and over again."
+> "When the hunger seemed to kill me, I was wondering if the world hates me. I can't explain it, but I still love the world."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Johnathan Mar**](https://myanimelist.net/character.php?q=Johnathan%20Mar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
