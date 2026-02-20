@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me tell you something about dying. It hurts like hell."
+> "I'm a man who makes precise choices about time, place, and people. Pleople call me Master of Choices. I'm gonna be the King of the Choices!"
 
-&mdash; [**Heero Yuy**](https://myanimelist.net/character.php?q=Heero%20Yuy&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
+&mdash; [**Ranta**](https://myanimelist.net/character.php?q=Ranta&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
