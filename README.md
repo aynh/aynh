@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The truth is everyone is going to hurt you, you just got to find the ones worth suffering for."
+> "How can you not see the beauty of our evil?!"
 
-&mdash; [**Hei**](https://myanimelist.net/character.php?q=Hei&cat=character), [**Darker than Black - Kuro no Keiyakusha: Gaiden**](https://myanimelist.net/search/all?q=Darker%20than%20Black%20-%20Kuro%20no%20Keiyakusha%3A%20Gaiden&cat=all)
+&mdash; [**Rocket Grunt**](https://myanimelist.net/character.php?q=Rocket%20Grunt&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
