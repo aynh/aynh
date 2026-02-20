@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a simple formula. The greater the tragedy, the greater the emotional effect."
+> "There are two kinds of girls in this world. Lovely girls who can get along with me. And all the bitches who can't"
 
-&mdash; [**Legato Bluesummers**](https://myanimelist.net/character.php?q=Legato%20Bluesummers&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Sena Kashiwazaki**](https://myanimelist.net/character.php?q=Sena%20Kashiwazaki&cat=character), [**Boku wa Tomodachi ga Sukunai NEXT**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai%20NEXT&cat=all)
