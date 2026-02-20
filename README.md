@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are two kinds of girls in this world. Lovely girls who can get along with me. And all the bitches who can't"
+> "I told you, anything is OK, like saying you want me to end all my sentences with 'nyu' for a week. Or that you want me to not wear underwear to school for a week. Or that you want me to wake you up every morning for a week, wearing nothing but an apron."
 
-&mdash; [**Sena Kashiwazaki**](https://myanimelist.net/character.php?q=Sena%20Kashiwazaki&cat=character), [**Boku wa Tomodachi ga Sukunai NEXT**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai%20NEXT&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
