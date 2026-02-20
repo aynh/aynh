@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tell me, do you feel my presence? Do you sense it the same way that I sense yours? A rather unfortunate twist of fate, wouldn't you say... Mu La Flaga?"
+> "Don't cry; it's pathetic. Crying won't change anything. The world is never kind to anyone."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji: Book of Circus**](https://myanimelist.net/search/all?q=Kuroshitsuji%3A%20Book%20of%20Circus&cat=all)
