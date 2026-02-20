@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rules exist to make the game more interesting. You, who don't know basic things like that, have no right to create the systems people play by."
+> "Hey! Don't you know the rules!? When heroes transform, ride in their machine, or stand in their main pose, no one should attack them!"
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Da Cider**](https://myanimelist.net/character.php?q=Da%20Cider&cat=character), [**NG Knight Ramune & 40**](https://myanimelist.net/search/all?q=NG%20Knight%20Ramune%20%26%2040&cat=all)
