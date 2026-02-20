@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I told you, anything is OK, like saying you want me to end all my sentences with 'nyu' for a week. Or that you want me to not wear underwear to school for a week. Or that you want me to wake you up every morning for a week, wearing nothing but an apron."
+> "Tell me, do you feel my presence? Do you sense it the same way that I sense yours? A rather unfortunate twist of fate, wouldn't you say... Mu La Flaga?"
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
