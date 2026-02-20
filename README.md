@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having someone saying you're okay as you are and being needed by that person... It was nice to have someone like that."
+> "(In Gamma worldline, to Okabe) Look, even if we were enemies in the world you were before, right now I'm your only ally. Even if the whole world turned against you, I would continue to be your only ally."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Moeka Kiryū**](https://myanimelist.net/character.php?q=Moeka%20Kiry%C5%AB&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
