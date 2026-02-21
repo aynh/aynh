@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it’s possible for one person to be hurt by another, then it’s possible for that person to be healed by another."
+> "It’s natural that men have things they need to protect."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Furukawa Akio**](https://myanimelist.net/character.php?q=Furukawa%20Akio&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
