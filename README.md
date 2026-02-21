@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are two types of people in this world - those who do what they're told and those who stay true to themselves. Most people think you're supposed to follow a predetermined path, keep your head down, obey the rules, do whatever's popular. But some prefer to follow their own path in life."
+> "My name is Dracule Mihawk! Find your self, true world, become stronger! No matter how long it may take, I will wait for you in my strongest form! Surpass this sword! Surpass me! Roronoa Zoro!"
 
-&mdash; [**Yuji Sakurai**](https://myanimelist.net/character.php?q=Yuji%20Sakurai&cat=character), [**Beck**](https://myanimelist.net/search/all?q=Beck&cat=all)
+&mdash; [**Dracule Mihawk**](https://myanimelist.net/character.php?q=Dracule%20Mihawk&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
