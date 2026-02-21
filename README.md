@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You think I'm making demons simply as weapons, but demons are created by the human soul."
+> "If you run now, you will be running for the rest of your life."
 
-&mdash; [**Millenium Earl**](https://myanimelist.net/character.php?q=Millenium%20Earl&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Reborn**](https://myanimelist.net/character.php?q=Reborn&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
