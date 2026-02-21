@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you pity my existence, please eat me."
+> "This is straining my heartstrings."
 
-&mdash; [**Loaf**](https://myanimelist.net/character.php?q=Loaf&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
