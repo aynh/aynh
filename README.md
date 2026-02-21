@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In a real fight, there is no next time. You can't choose your opponent's strength. Losing would mean death. If a duty-bound person dies, a hundred more innocent people would die. We exorcists cannot die easily, and that is a responsibility."
+> "If you pity my existence, please eat me."
 
-&mdash; [**Tsuchimiya Kagura**](https://myanimelist.net/character.php?q=Tsuchimiya%20Kagura&cat=character), [**Ga-Rei:Zero**](https://myanimelist.net/search/all?q=Ga-Rei%3AZero&cat=all)
+&mdash; [**Loaf**](https://myanimelist.net/character.php?q=Loaf&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
