@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I said she's not an Angel. She's a human, just like us. Didn't you notice?"
+> "That's ridiculous. People usually have a stereotypical idea, or an assumption like that and that's what creates a blind spot"
 
-&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
