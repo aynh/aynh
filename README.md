@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In order to escape a road of solitude, one has to work hard, and forge a new path with their own power."
+> "You think I'm making demons simply as weapons, but demons are created by the human soul."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Millenium Earl**](https://myanimelist.net/character.php?q=Millenium%20Earl&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
