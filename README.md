@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because I wished for everyone to live, I did everything I could."
+> "There are two types of people in this world - those who do what they're told and those who stay true to themselves. Most people think you're supposed to follow a predetermined path, keep your head down, obey the rules, do whatever's popular. But some prefer to follow their own path in life."
 
-&mdash; [**Sakura Kinomoto**](https://myanimelist.net/character.php?q=Sakura%20Kinomoto&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Yuji Sakurai**](https://myanimelist.net/character.php?q=Yuji%20Sakurai&cat=character), [**Beck**](https://myanimelist.net/search/all?q=Beck&cat=all)
