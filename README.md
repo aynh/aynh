@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every moment hesitated is a moment gone from life."
+> "By the time I noticed, so much time had passed that even my little sister would have died naturally already."
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Sunako Kirishiki**](https://myanimelist.net/character.php?q=Sunako%20Kirishiki&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
