@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Choose the best thing you can do now, in order to get a step closer to your dream."
+> "In order to escape a road of solitude, one has to work hard, and forge a new path with their own power."
 
-&mdash; [**Tsukitachi**](https://myanimelist.net/character.php?q=Tsukitachi&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
