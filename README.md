@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey sis, I've been wondering. How come everyone always closes their eyes when they sneeze? Is it to keep their eyes from popping out of their heads?"
+> "In a real fight, there is no next time. You can't choose your opponent's strength. Losing would mean death. If a duty-bound person dies, a hundred more innocent people would die. We exorcists cannot die easily, and that is a responsibility."
 
-&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Tsuchimiya Kagura**](https://myanimelist.net/character.php?q=Tsuchimiya%20Kagura&cat=character), [**Ga-Rei:Zero**](https://myanimelist.net/search/all?q=Ga-Rei%3AZero&cat=all)
