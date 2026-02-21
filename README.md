@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Somewhere inside of me?! Take a good look, there's nothing inside of me anymore!!! I don't feel pain, I don't feel anything! You need to let that guilt go Kakashi. This wind hole wasn't your doing... It was made by this evil, cruel world."
+> "Hey sis, I've been wondering. How come everyone always closes their eyes when they sneeze? Is it to keep their eyes from popping out of their heads?"
 
-&mdash; [**Obito Uchiha**](https://myanimelist.net/character.php?q=Obito%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
