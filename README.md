@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am the alienated, the ridiculed, the despised. No need to praise my name. No need to envy my body. I am the shadow under the radiance of heroic spirits. Birthed of the darkness of glorious legend. And so, I hate, I resent. Nourished by the sighs of the people precipitated within the darkness, people that curse the light. This is my disgrace. Because of her unsullied glory, I must forever be belittled. You are, the sacrifice. Good, give me more, your blood and flesh, your life. Let them ignite my hatred!!"
+> "It's too bad I don't think of you as anything. If you get in my way... I'll kill you."
 
-&mdash; [**Berserker**](https://myanimelist.net/character.php?q=Berserker&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
