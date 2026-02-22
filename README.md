@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A brat who is afraid to be hurt isn't qualified to love someone."
+> "The cold tears of a vampire, whose body is without warmth..."
 
-&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
+&mdash; [**Yuuki Natsuno**](https://myanimelist.net/character.php?q=Yuuki%20Natsuno&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
