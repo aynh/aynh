@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there are crimes too depraved to ever be forgiven."
+> "Hide the truth. Manipulate information. Use intimidation."
 
-&mdash; [**Tomio Ookawa**](https://myanimelist.net/character.php?q=Tomio%20Ookawa&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
