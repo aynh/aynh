@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, with talented people... They draw people to themselves, and without even trying to, they tear them to shreds. The closer you are to them, the more viciously you'll be torn apart. They're living in a completely different world above us. One that us normal people can't reach. In a world that we'll never see. A world above the clouds. That's the kind of world they live in."
+> "So stupid! Stupid, Stupid! You're so stupid! You want to live your life scared of being ratted out?! Screw that! I'd rather let everyone know everything!! (to Yuki, Tohru, Kyo, and Momiji while destroying a classroom)"
 
-&mdash; [**Jin Mitaka**](https://myanimelist.net/character.php?q=Jin%20Mitaka&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
