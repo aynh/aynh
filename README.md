@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is not the end of life, it's the completion of life."
+> "Come with me. Overwhelming madness and power await."
 
-&mdash; [**Irina**](https://myanimelist.net/character.php?q=Irina&cat=character), [**Akuma no Riddle**](https://myanimelist.net/search/all?q=Akuma%20no%20Riddle&cat=all)
+&mdash; [**Little Demon**](https://myanimelist.net/character.php?q=Little%20Demon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
