@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Resignation is what kills people. Once they've rejected resignation, humans gain the privilege of making humanity their footpath."
+> "Stop making me repeat myself! Its bad for my health!"
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Duo Maxwell**](https://myanimelist.net/character.php?q=Duo%20Maxwell&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
