@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are all sorts of mysteries in this world, like snacks and candy and sweets falling from the sky!"
+> "We can't live if we don't keep running forward."
 
-&mdash; [**Komari Kamikita**](https://myanimelist.net/character.php?q=Komari%20Kamikita&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
