@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hide the truth. Manipulate information. Use intimidation."
+> "Resignation is what kills people. Once they've rejected resignation, humans gain the privilege of making humanity their footpath."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
