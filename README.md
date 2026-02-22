@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People normally say that mood and body have a close relationship. As the heart becomes weaker, the body will fall ill; and as the body falls ill, the heart becomes weaker. Thus, when humans are weak, they will have negative thoughts."
+> "There are all sorts of mysteries in this world, like snacks and candy and sweets falling from the sky!"
 
-&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Komari Kamikita**](https://myanimelist.net/character.php?q=Komari%20Kamikita&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
