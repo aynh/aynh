@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Come with me. Overwhelming madness and power await."
+> "If I feel lonely when someone is leaving, it means that the person is very close to me."
 
-&mdash; [**Little Demon**](https://myanimelist.net/character.php?q=Little%20Demon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
