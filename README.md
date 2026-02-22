@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no Strength, but I want it all. I have no Knowledge, but all I do is dream. There's nothing I can do, but I struggle in vain"
+> "I am the alienated, the ridiculed, the despised. No need to praise my name. No need to envy my body. I am the shadow under the radiance of heroic spirits. Birthed of the darkness of glorious legend. And so, I hate, I resent. Nourished by the sighs of the people precipitated within the darkness, people that curse the light. This is my disgrace. Because of her unsullied glory, I must forever be belittled. You are, the sacrifice. Good, give me more, your blood and flesh, your life. Let them ignite my hatred!!"
 
-&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
+&mdash; [**Berserker**](https://myanimelist.net/character.php?q=Berserker&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
