@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop making me repeat myself! Its bad for my health!"
+> "The person you like the most, likes you back the most. It seems so simple. But why is it? It feels like it will never come together...forever like this..."
 
-&mdash; [**Duo Maxwell**](https://myanimelist.net/character.php?q=Duo%20Maxwell&cat=character), [**Mobile Suit Gundam Wing**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Wing&cat=all)
+&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
