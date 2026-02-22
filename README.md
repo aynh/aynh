@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time flows constantly, it doesn't care about the people who are struggling."
+> "Death is not the end of life, it's the completion of life."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Irina**](https://myanimelist.net/character.php?q=Irina&cat=character), [**Akuma no Riddle**](https://myanimelist.net/search/all?q=Akuma%20no%20Riddle&cat=all)
