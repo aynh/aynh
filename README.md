@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[about 500 feet behind InuYasha] I can see why being called a mutt by Koga would upset him... but now that I see him sitting there sniffing the ground he does look like a dog."
+> "I don't really like people who go around brandishing the banner of justice. No matter the reason, where human's are involved, there is no black or white, no justice or evil. There is only our will."
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
