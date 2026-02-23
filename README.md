@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "May those who accept their fate be granted Happiness, may those who defy their fate be granted Glory."
+> "Ah, you're awake. I was hoping you'd cry out in your sleep, then I would have bitten your head off to silence you."
 
-&mdash; [**Edel**](https://myanimelist.net/character.php?q=Edel&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
+&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
