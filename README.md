@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To you, life was just something you acted out and ended, all according to someone else's script. That's why you were always quoting Shakespeare. However, Aika, I say that you were wrong! You did what you shouldn't have, and didn't do as you should have. Because you relied on someone else's script, you were wrong. I won't live my life by another person's script. Not by Hamlet or The Tempest. I don't know how many years in the future it will be... but I'll write and act my own ending."
+> "[thinking at the grave of Tosen's friend] O' anonymous friend of Tousen... If you had been there...What would you have said to stop him?"
 
-&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Komamura Sajin**](https://myanimelist.net/character.php?q=Komamura%20Sajin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
