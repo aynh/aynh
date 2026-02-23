@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why is it that I'm anxious when I love him?.. No. I love him, that's why I'm anxious. It's because I love you that even if I take off the armor I've worn all my life, I'll still chase after you."
+> "To you, life was just something you acted out and ended, all according to someone else's script. That's why you were always quoting Shakespeare. However, Aika, I say that you were wrong! You did what you shouldn't have, and didn't do as you should have. Because you relied on someone else's script, you were wrong. I won't live my life by another person's script. Not by Hamlet or The Tempest. I don't know how many years in the future it will be... but I'll write and act my own ending."
 
-&mdash; [**Yoh Miyagi**](https://myanimelist.net/character.php?q=Yoh%20Miyagi&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
