@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And to think, I could kill every man, woman and child here in the blink of an eye if I wanted to. The power of death is intoxicating."
+> "There were two kinds of strength. One was the strength that came with having something to protect. The other was the strength of having nothing to lose."
 
-&mdash; [**Legato Bluesummers**](https://myanimelist.net/character.php?q=Legato%20Bluesummers&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
