@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't really like people who go around brandishing the banner of justice. No matter the reason, where human's are involved, there is no black or white, no justice or evil. There is only our will."
+> "(To Ichigo Kurosaki before getting shot point-blank by his Cero) I see. So you show no mercy. Just like a true Hollow. I care not. Defeated by you as I stand, my existence holds no further meaning. Do it."
 
-&mdash; [**Oz Vessalius**](https://myanimelist.net/character.php?q=Oz%20Vessalius&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
