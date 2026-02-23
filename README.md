@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It must make you sick to know an underling like me is going to kill you."
+> "And to think, I could kill every man, woman and child here in the blink of an eye if I wanted to. The power of death is intoxicating."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Legato Bluesummers**](https://myanimelist.net/character.php?q=Legato%20Bluesummers&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
