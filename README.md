@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The fact that you consider yourself as an equal to me, is being arrogant in itself."
+> "It must make you sick to know an underling like me is going to kill you."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
