@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Happiness is only happiness when everyone shares it."
+> "May those who accept their fate be granted Happiness, may those who defy their fate be granted Glory."
 
-&mdash; [**Ryuugajou Nanana**](https://myanimelist.net/character.php?q=Ryuugajou%20Nanana&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
+&mdash; [**Edel**](https://myanimelist.net/character.php?q=Edel&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
