@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If this is all it takes to tear us apart, then maybe we weren't all that close to begin with."
+> "Stop being such a bitch, Sweden!"
 
-&mdash; [**Yukino Yukinoshita**](https://myanimelist.net/character.php?q=Yukino%20Yukinoshita&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Poland**](https://myanimelist.net/character.php?q=Poland&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
