@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Always skillfully manipulate your pieces, that's how you survive. Use me and madam red, any piece within your reach. Even if the bodies of your pawns pile up in front of your thrown. Because if the king falls - this game is over."
+> "Why won't human emotions, not even my own, work out the way we want?"
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
