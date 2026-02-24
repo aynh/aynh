@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The fake is of far greater value. In its deliberate attempt to be real, it's more real than the real thing."
+> "Sadistic? I don't mind you calling me that. If you don't want to get hurt, don't attack me when I say not to."
 
-&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
