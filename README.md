@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've got nowhere to go back to. So all I can do is move forward."
+> "Yeah, so I don’t appear to be the brightest crayon in the box but I still look down on the rest of the world."
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Kei Kurono**](https://myanimelist.net/character.php?q=Kei%20Kurono&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
