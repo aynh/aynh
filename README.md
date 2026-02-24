@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop being such a bitch, Sweden!"
+> "I've got nowhere to go back to. So all I can do is move forward."
 
-&mdash; [**Poland**](https://myanimelist.net/character.php?q=Poland&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
