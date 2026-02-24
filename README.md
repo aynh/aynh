@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, so I don’t appear to be the brightest crayon in the box but I still look down on the rest of the world."
+> "Relax, Sokka. Where we're going, you won't need any pants!"
 
-&mdash; [**Kei Kurono**](https://myanimelist.net/character.php?q=Kei%20Kurono&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
