@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you said that you hate yourself, it made me want to tell you all the wonderful things I know about you."
+> "If it is because of what you call a heart, then it is the heart that causes you humans pain. It is because of your heart that you will die."
 
-&mdash; [**Rem (re:zero)**](https://myanimelist.net/character.php?q=Rem%20(re%3Azero)&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
