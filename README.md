@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because someone is important to you, it doesn't necessarily mean that, that person is good. Even if you knew that person was evil... People cannot win against their loneliness."
+> "You were like a bomb, one wrong move and I might have lost you again."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Hayashida Nana**](https://myanimelist.net/character.php?q=Hayashida%20Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
