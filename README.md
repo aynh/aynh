@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oddities are the world itself. They're linked to the world, unlike living beings. Science alone cannot shed light upon them, as there will always be people who'll be afraid of vampires. Although all forms of darkness could be lit up, darkness will never cease to exist."
+> "Always skillfully manipulate your pieces, that's how you survive. Use me and madam red, any piece within your reach. Even if the bodies of your pawns pile up in front of your thrown. Because if the king falls - this game is over."
 
-&mdash; [**Bakemonogatari**](https://myanimelist.net/character.php?q=Bakemonogatari&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
