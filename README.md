@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...There are two ways to change a country. Destroy it from the outside, or correct it from the inside."
+> "Killing one man won't change anything. Kill every last person in the world. If you could do that, it might be possible."
 
-&mdash; [**Run**](https://myanimelist.net/character.php?q=Run&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
