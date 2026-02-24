@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fine. I'll correct myself. I have no experience. I'm a virgin. More to the point, the only kind of girl who'd talk to an unappealing virgin like you are late-bloomer virgins like me!"
+> "The fake is of far greater value. In its deliberate attempt to be real, it's more real than the real thing."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
