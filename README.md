@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it is because of what you call a heart, then it is the heart that causes you humans pain. It is because of your heart that you will die."
+> "...There are two ways to change a country. Destroy it from the outside, or correct it from the inside."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Run**](https://myanimelist.net/character.php?q=Run&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
