@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A localized, non-corrosive amalgamation of asynchronous space is independently occurring in restricted condition mode."
+> "Open your eyes. 'God' is nothing more than a construct created by man to inspire fear and promote order."
 
-&mdash; [**Yuki Nagato**](https://myanimelist.net/character.php?q=Yuki%20Nagato&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
