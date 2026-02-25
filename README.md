@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Making someone I hate suffer feels really great!!"
+> "Dedication is a talent all on its own."
 
-&mdash; [**Megumi Shimizu**](https://myanimelist.net/character.php?q=Megumi%20Shimizu&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
