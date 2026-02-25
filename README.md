@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am Justice! I protect the innocent and those who fear evil. I'm the one that will become the god of a new world that every one desires!"
+> "All I need is the power to be able to protect my comrades. So long as I can have the strength to do that, I don't care if I'm weaker than everyone else in the world."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
