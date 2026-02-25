@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's impossible for humans to forget their emotions."
+> "After all the hiding your true self, even if you eventually become popular, won't you just feel exhausted by it in the end?"
 
-&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Mikoto Kujou**](https://myanimelist.net/character.php?q=Mikoto%20Kujou&cat=character), [**Last Game**](https://myanimelist.net/search/all?q=Last%20Game&cat=all)
