@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Open your eyes. 'God' is nothing more than a construct created by man to inspire fear and promote order."
+> "Even children are forced to grow up in the face of pain."
 
-&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
