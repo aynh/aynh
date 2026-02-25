@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time might separate us some day. But, even still, until then, let's stay together."
+> "The beginning of a story is a sudden event; the start, a happy accident, the end, the fate for which it's meant. A story that never ends is a sad fate."
 
-&mdash; [**Hotaru Takegawa**](https://myanimelist.net/character.php?q=Hotaru%20Takegawa&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
+&mdash; [**Edel**](https://myanimelist.net/character.php?q=Edel&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
