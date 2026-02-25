@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even children are forced to grow up in the face of pain."
+> "Choosing your calling based solely on your talents won't always guarantee you happiness."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
