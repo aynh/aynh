@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a programmer's job to make the most of limited resources to turn an impractical idea into reality."
+> "Stay the fuck back, you freak!"
 
-&mdash; [**Akasaka Ryuunosuke**](https://myanimelist.net/character.php?q=Akasaka%20Ryuunosuke&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Saya Takagi**](https://myanimelist.net/character.php?q=Saya%20Takagi&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
