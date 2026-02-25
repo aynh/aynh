@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stay the fuck back, you freak!"
+> "A localized, non-corrosive amalgamation of asynchronous space is independently occurring in restricted condition mode."
 
-&mdash; [**Saya Takagi**](https://myanimelist.net/character.php?q=Saya%20Takagi&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Yuki Nagato**](https://myanimelist.net/character.php?q=Yuki%20Nagato&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
