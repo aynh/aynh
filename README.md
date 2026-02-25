@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "After all the hiding your true self, even if you eventually become popular, won't you just feel exhausted by it in the end?"
+> "It's a programmer's job to make the most of limited resources to turn an impractical idea into reality."
 
-&mdash; [**Mikoto Kujou**](https://myanimelist.net/character.php?q=Mikoto%20Kujou&cat=character), [**Last Game**](https://myanimelist.net/search/all?q=Last%20Game&cat=all)
+&mdash; [**Akasaka Ryuunosuke**](https://myanimelist.net/character.php?q=Akasaka%20Ryuunosuke&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
