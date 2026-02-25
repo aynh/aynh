@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know why people stress over things? Because there aren't any easy answers."
+> "Well, you sure have weird ways of doing things. The one who taught me how to give your name out to he whom you are about to kill also said... that it was always the last lesson he taught his students. That way, if you do end a person's life... at the very least, they will know the name of the one who slashed their mortal coil. I'm of the 11th Division, 3rd seat, Madarame Ikkaku! You're right, there's no reason for me to hear your name, because the most important thing is that you know mine. After all, it is the name of the man... who will send you to your death!"
 
-&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
