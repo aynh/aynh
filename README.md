@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, you sure have weird ways of doing things. The one who taught me how to give your name out to he whom you are about to kill also said... that it was always the last lesson he taught his students. That way, if you do end a person's life... at the very least, they will know the name of the one who slashed their mortal coil. I'm of the 11th Division, 3rd seat, Madarame Ikkaku! You're right, there's no reason for me to hear your name, because the most important thing is that you know mine. After all, it is the name of the man... who will send you to your death!"
+> "Even if this is a twisted way to go about it, even if a guaranteed way to save our hearts cannot be found, even so, it doesn't mean that people like us don't try and struggle."
 
-&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
