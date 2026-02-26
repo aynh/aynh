@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I think too much, my brains get itchy."
+> "All these things you guys seek....hard work, guts, faith....I'll crush them all."
 
-&mdash; [**Kanako Sasa**](https://myanimelist.net/character.php?q=Kanako%20Sasa&cat=character), [**Hourou Musuko**](https://myanimelist.net/search/all?q=Hourou%20Musuko&cat=all)
+&mdash; [**Atsushi Murasakibara**](https://myanimelist.net/character.php?q=Atsushi%20Murasakibara&cat=character), [**Kuroko's Basketball**](https://myanimelist.net/search/all?q=Kuroko's%20Basketball&cat=all)
