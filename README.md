@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kyon-kun. If I become ruined for marriage will you take me?"
+> "Don't just follow orders! You're men, not machines! In your hearts, you know what's right, the answer is sitting there, waiting for you. Are you brave enough to look inside yourselves?"
 
-&mdash; [**Mikuru Asahina**](https://myanimelist.net/character.php?q=Mikuru%20Asahina&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
