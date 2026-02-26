@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's stupid to talk about things you're not. Be yourself and you'll be fine."
+> "Here, my armies once rode across the land. The place all the heroes who stood with me, through joy and sorrow, will never forget. I can make this world real because it still exists within our hearts! Behold my endless armies! Their bodies destroyed, and their souls offered to the world as Heroic Spirits. And still, these legendary heroes pledge their loyalty to me! My bond with them is my greatest treasure, my path of kingship! The ultimate Noble Phantasm that I, Iskandar, possess. Ionian Hetairoi!"
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
