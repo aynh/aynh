@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I strive for something beyond the strongest, that challenging me would be the most ridiculous thought ever, that fighting me would be a sin! *To Imouto 10032*"
+> "I'mma... I'm not very good at talking with girls. They make me nervous."
 
-&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
