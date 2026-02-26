@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's just a game, at least be brave enough to run towards the guns and die!"
+> "When you pick the only option you have to choose from, can you really call that your own decision?"
 
-&mdash; [**Asada Shino**](https://myanimelist.net/character.php?q=Asada%20Shino&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
+&mdash; [**Hayato Hayama**](https://myanimelist.net/character.php?q=Hayato%20Hayama&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
