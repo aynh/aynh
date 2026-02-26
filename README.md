@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things you can't see unless you change your standing."
+> "Just because it's illogical, that doesn't make it wrong."
 
-&mdash; [**Trafalgar Law**](https://myanimelist.net/character.php?q=Trafalgar%20Law&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
