@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will see the truth of this world... LORD OROCHIMARU WILL SHOW ME!!!"
+> "Do you know why you are making the mistake of sacrificing yourself? It’s because you’re weak. It’s because you can’t face reality."
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Otonashi Maria**](https://myanimelist.net/character.php?q=Otonashi%20Maria&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
