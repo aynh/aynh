@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The night is in its darkest just before dawn. But keep your eyes open. If you avert your eyes from the dark, you'll be blinded by the rays of a new day. So keep your eyes open, no matter how dark the night ahead may be."
+> "The world is lucky! Despite of how much I hate the world, I have decided to mend it rather than destroy it."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
