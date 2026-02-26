@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just because it's illogical, that doesn't make it wrong."
+> "When I think too much, my brains get itchy."
 
-&mdash; [**Aika Fuwa**](https://myanimelist.net/character.php?q=Aika%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Kanako Sasa**](https://myanimelist.net/character.php?q=Kanako%20Sasa&cat=character), [**Hourou Musuko**](https://myanimelist.net/search/all?q=Hourou%20Musuko&cat=all)
