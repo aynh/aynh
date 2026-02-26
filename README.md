@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Here, my armies once rode across the land. The place all the heroes who stood with me, through joy and sorrow, will never forget. I can make this world real because it still exists within our hearts! Behold my endless armies! Their bodies destroyed, and their souls offered to the world as Heroic Spirits. And still, these legendary heroes pledge their loyalty to me! My bond with them is my greatest treasure, my path of kingship! The ultimate Noble Phantasm that I, Iskandar, possess. Ionian Hetairoi!"
+> "If it's just a game, at least be brave enough to run towards the guns and die!"
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Asada Shino**](https://myanimelist.net/character.php?q=Asada%20Shino&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
