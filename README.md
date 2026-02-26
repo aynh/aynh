@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Man fears death and yet, at the same time, man is drawn to death. Death is endlessly consumed by men in cities and in literature. It is a singular event in one's life that none may reverse. That is what I desire."
+> "Kyon-kun. If I become ruined for marriage will you take me?"
 
-&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
+&mdash; [**Mikuru Asahina**](https://myanimelist.net/character.php?q=Mikuru%20Asahina&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
