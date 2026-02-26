@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't just follow orders! You're men, not machines! In your hearts, you know what's right, the answer is sitting there, waiting for you. Are you brave enough to look inside yourselves?"
+> "What use is strength in modern society? You have to be smart."
 
-&mdash; [**Wolfgang Grimmer**](https://myanimelist.net/character.php?q=Wolfgang%20Grimmer&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Han Jee-Han**](https://myanimelist.net/character.php?q=Han%20Jee-Han&cat=character), [**The Gamer**](https://myanimelist.net/search/all?q=The%20Gamer&cat=all)
