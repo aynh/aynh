@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All these things you guys seek....hard work, guts, faith....I'll crush them all."
+> "When in doubt, don't worry about what's right. You'll run out of time. Don't use your head, you'll find the answer lower. Your heart knows what's right. Choose the answer that will be fun."
 
-&mdash; [**Atsushi Murasakibara**](https://myanimelist.net/character.php?q=Atsushi%20Murasakibara&cat=character), [**Kuroko's Basketball**](https://myanimelist.net/search/all?q=Kuroko's%20Basketball&cat=all)
+&mdash; [**Sharon Kaneko**](https://myanimelist.net/character.php?q=Sharon%20Kaneko&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
