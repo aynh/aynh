@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When in doubt, don't worry about what's right. You'll run out of time. Don't use your head, you'll find the answer lower. Your heart knows what's right. Choose the answer that will be fun."
+> "I strive for something beyond the strongest, that challenging me would be the most ridiculous thought ever, that fighting me would be a sin! *To Imouto 10032*"
 
-&mdash; [**Sharon Kaneko**](https://myanimelist.net/character.php?q=Sharon%20Kaneko&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
