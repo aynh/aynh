@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're about to find out what it's like to fight a real super saiyan...and I'm not talking about Goku."
+> "I can't lose weight, I don't know how to deal with being any skinnier than I already am."
 
-&mdash; [**Trunks Brief**](https://myanimelist.net/character.php?q=Trunks%20Brief&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
