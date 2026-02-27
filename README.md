@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In fairy tales, when the protagonists end up in a different world, they do their best to get back home, right? But who would want to go back to a world like that?"
+> "It wasn't the pain that hurt me. Rather, it was the feeling of me being ripped apart, and the sound of the knife plunging deep, deep into my heart. That incomparably bittersweet fear. My body shook and trembled at the thought of it. My silent weeping contained my uneasiness, my loneliness, my will to live. My tears aren't from the pain either, or from the fear of the encounter. It was for the brush of death that I had never before experienced, but had now fallen in love with, even though I pray every night for the strength to live."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Fujou Kirie**](https://myanimelist.net/character.php?q=Fujou%20Kirie&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
