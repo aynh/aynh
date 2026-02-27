@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weather's nice and the breeze feels good. The little birds are making their cute chirping sounds. Perhaps people nowadays have forgotten how wonderful nature is... Yes, don't you think it's a waste to not feel it with your entire body like this?"
+> "Such a cruel boy. Telling me to dream one more time. I thought I was satisfied because my dream had come true... And I'd told myself it was enough... Yet here you are, watering this withered heart again."
 
-&mdash; [**Tanaka**](https://myanimelist.net/character.php?q=Tanaka&cat=character), [**Tanaka-kun wa Itsumo Kedaruge**](https://myanimelist.net/search/all?q=Tanaka-kun%20wa%20Itsumo%20Kedaruge&cat=all)
+&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
