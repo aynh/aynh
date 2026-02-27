@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oddities are the world itself. They're linked to the world, unlike living beings. Science alone cannot shed light upon them, as there will always be people who'll be afraid of vampires. Although all forms of darkness could be lit up, darkness will never cease to exist."
+> "What's the use of looking towards the past? If past data dictates reality... then our 33,1 winning percentage last year means we shouldn't even be playing the Mariners and their 66,7 winning percentage."
 
-&mdash; [**Bakemonogatari**](https://myanimelist.net/character.php?q=Bakemonogatari&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
