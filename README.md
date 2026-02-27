@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's the use of looking towards the past? If past data dictates reality... then our 33,1 winning percentage last year means we shouldn't even be playing the Mariners and their 66,7 winning percentage."
+> "You're about to find out what it's like to fight a real super saiyan...and I'm not talking about Goku."
 
-&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
+&mdash; [**Trunks Brief**](https://myanimelist.net/character.php?q=Trunks%20Brief&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
