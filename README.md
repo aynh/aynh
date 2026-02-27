@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Doing what one likes is the right of the powerful."
+> "Hmmm...how do I put this? My first impression of this group...you're a bunch of idiots!"
 
-&mdash; [**Yakumo Oomori**](https://myanimelist.net/character.php?q=Yakumo%20Oomori&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
