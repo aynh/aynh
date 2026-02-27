@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't lose weight, I don't know how to deal with being any skinnier than I already am."
+> "Don't judge me unless you have looked through my eyes, experienced what I went through and cried as many tears as me. Until then back-off, cause you have no idea."
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
