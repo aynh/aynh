@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you’ve got time to point fingers, then how about using your head to figure out what you want to do about it?"
+> "I don’t know what you’re aiming at, but you can’t expect to be perfect right off the bat. You have to build up your confidence… by achieving small tasks one by one."
 
-&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
