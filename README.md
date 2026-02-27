@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Such a cruel boy. Telling me to dream one more time. I thought I was satisfied because my dream had come true... And I'd told myself it was enough... Yet here you are, watering this withered heart again."
+> "If you’ve got time to point fingers, then how about using your head to figure out what you want to do about it?"
 
-&mdash; [**Kaori Miyazono**](https://myanimelist.net/character.php?q=Kaori%20Miyazono&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Karma Akabane**](https://myanimelist.net/character.php?q=Karma%20Akabane&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
