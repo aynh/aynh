@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I always cursed my own life. The anxiety, anger and hatred I couldn't suppress. However, when I stopped to look at the sky... I realized just how small I am. There is an endless world spreading before me."
+> "Ah, that's right. Me hating that her hard work wouldn't be rewarded was just my secondary reason. My motivation was actually much simpler-- from the first time I met this girl, I just wanted to see her smiling face."
 
-&mdash; [**Ultear Milkovich**](https://myanimelist.net/character.php?q=Ultear%20Milkovich&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
