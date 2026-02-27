@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah, that's right. Me hating that her hard work wouldn't be rewarded was just my secondary reason. My motivation was actually much simpler-- from the first time I met this girl, I just wanted to see her smiling face."
+> "If there's something you want to go through with, you should stick to it without keeping up appearances."
 
-&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Arato Hisako**](https://myanimelist.net/character.php?q=Arato%20Hisako&cat=character), [**Shokugeki no Sōma**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma&cat=all)
