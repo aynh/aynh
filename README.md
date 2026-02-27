@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Compared to failing without even trying, I'd rather take action, even at the risk of a mistake."
+> "If you hurt somebody or if someone hurts you, - the same red blood will be shed."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
