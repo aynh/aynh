@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can stand not eating or sleeping, but I absolutely would not be able to live without my computer."
+> "C'mon, there is no such thing as gross stuff in this world...  Except for GROSSLY CUTE things."
 
-&mdash; [**Kisaragi Shintaro**](https://myanimelist.net/character.php?q=Kisaragi%20Shintaro&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Fuura Kafuka**](https://myanimelist.net/character.php?q=Fuura%20Kafuka&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
