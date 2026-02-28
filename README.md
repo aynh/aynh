@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know about it, don't you, Witch Medusa? About the Kishin beneath the DWMA."
+> "I can stand not eating or sleeping, but I absolutely would not be able to live without my computer."
 
-&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kisaragi Shintaro**](https://myanimelist.net/character.php?q=Kisaragi%20Shintaro&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
