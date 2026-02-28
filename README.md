@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The earth's rowdier than a group of five high school guys living under the same roof."
+> "I hate the fox, but the boy - I don't hate the boy."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
