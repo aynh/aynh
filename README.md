@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "C'mon, there is no such thing as gross stuff in this world...  Except for GROSSLY CUTE things."
+> "When you fall in love with someone, you want everything from them. Its only natural to feel that way... but real love can only happen when you want what's best for the other person and never ask for anything in return."
 
-&mdash; [**Fuura Kafuka**](https://myanimelist.net/character.php?q=Fuura%20Kafuka&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
+&mdash; [**Nobuo Terashima**](https://myanimelist.net/character.php?q=Nobuo%20Terashima&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
