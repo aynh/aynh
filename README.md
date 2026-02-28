@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as I exist, I don't care if there's hell, or if only suffering exists there."
+> "However, I can't be happy. I feel I can't have that experience, I can't assume I will have that experience. I'm free, but feeling lonely and disheartened. I hope there's happiness out there. Besides, the future is approaching and waiting for me. In the future, I will be a part of the world. I will finally live my life."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
