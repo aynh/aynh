@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Come on. I don't like this trend of explaining anything and everything about my love life. It's impossible."
+> "You did it because you had to protect someone else. In medicine, there are times when you must pick who lives and who dies. Of course, that doesn't mean it's okay to kill someone if you have a good reason. But everyone involved has the right to consider the lives they saved. You have the right. You have the right to save yourself, by thinking of the people you've saved."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Aki Natsuki**](https://myanimelist.net/character.php?q=Aki%20Natsuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
