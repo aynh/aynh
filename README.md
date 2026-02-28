@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there's something you want to go through with, you should stick to it without keeping up appearances."
+> "Do you know what's the most important thing about climbing mountains is? It's not about having the courage to challenge it, It's about having the courage to back down."
 
-&mdash; [**Arato Hisako**](https://myanimelist.net/character.php?q=Arato%20Hisako&cat=character), [**Shokugeki no Sōma**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma&cat=all)
+&mdash; [**Nozomi Tōjō**](https://myanimelist.net/character.php?q=Nozomi%20T%C5%8Dj%C5%8D&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
