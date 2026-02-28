@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one would intentionally set an easily accessible place as their goal. It's a challenge, because it's difficult. It is a dream because it can't be achieved easily."
+> "Trunks, I never hugged you as a baby… let me hug you."
 
-&mdash; [**Isashiki Jun**](https://myanimelist.net/character.php?q=Isashiki%20Jun&cat=character), [**Diamond No Ace**](https://myanimelist.net/search/all?q=Diamond%20No%20Ace&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
