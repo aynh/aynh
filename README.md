@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I know you'll reject me, even if I'm afraid you won't accept me, even if I know it will really hurt if you dump me - I still have to tell you how I feel!"
+> "As long as I exist, I don't care if there's hell, or if only suffering exists there."
 
-&mdash; [**Kousaka Kyousuke**](https://myanimelist.net/character.php?q=Kousaka%20Kyousuke&cat=character), [**Ore No Imouto Ga Konna Ni Kawaii Wake Ga Nai**](https://myanimelist.net/search/all?q=Ore%20No%20Imouto%20Ga%20Konna%20Ni%20Kawaii%20Wake%20Ga%20Nai&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
