@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you cling to life, you live in fear of death. And that fear will cloud your judgment."
+> "Come on. I don't like this trend of explaining anything and everything about my love life. It's impossible."
 
-&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
