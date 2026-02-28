@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm a devilish and talented butler."
+> "If you cling to life, you live in fear of death. And that fear will cloud your judgment."
 
-&mdash; [**Gian Carlo**](https://myanimelist.net/character.php?q=Gian%20Carlo&cat=character), [**Lucky Dog**](https://myanimelist.net/search/all?q=Lucky%20Dog&cat=all)
+&mdash; [**Revy**](https://myanimelist.net/character.php?q=Revy&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
