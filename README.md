@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you were to write a story with me in the lead role, it would certainly be... a tragedy."
+> "Life and death come and go like marionettes dancing on a table. Once their stings are cut, they easily crumble."
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Ghost in the Shell 2: Innocence**](https://myanimelist.net/character.php?q=Ghost%20in%20the%20Shell%202%3A%20Innocence&cat=character), [**Ghost in the Shell 2: Innocence**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell%202%3A%20Innocence&cat=all)
