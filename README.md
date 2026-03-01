@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bare emotions tell the truth much eloquently than any justification."
+> "Hundreds of gallons of blood from all the people I've killed in the past, have seeped into this body."
 
-&mdash; [**Konan**](https://myanimelist.net/character.php?q=Konan&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
+&mdash; [**Holland Novak**](https://myanimelist.net/character.php?q=Holland%20Novak&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
