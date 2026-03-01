@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a person you love doesn't love you back, you're worthless. That's what I always told myself."
+> "It's over when you give up."
 
-&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
