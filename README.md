@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think being able to openly take away the most important thing people have... 'life'... is the best thing that ever happened!"
+> "One thing I'm especially good at is finding Yano, whenever or wherever he may be. Because he's the one I love."
 
-&mdash; [**Luciano Bradley**](https://myanimelist.net/character.php?q=Luciano%20Bradley&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
