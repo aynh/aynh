@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes your biggest effort will be ignored, but your smallest mistake will be judged."
+> "I think being able to openly take away the most important thing people have... 'life'... is the best thing that ever happened!"
 
-&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Luciano Bradley**](https://myanimelist.net/character.php?q=Luciano%20Bradley&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
