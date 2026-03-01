@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In my memory, I link fragments of the past when we were together, to create a clear image of him in my mind. But I no longer know if that image is really him. The moment I see in my mind, may have never existed."
+> "Their mistakes were simple ones. Gouki's mistake was being overconfident and Kurama's... sympathy for his human prey."
 
-&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
