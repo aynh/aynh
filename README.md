@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Necessary murder. Man must kill to live. That hasn't changed, even with humanity's decline. The situation has reached the point in which escape and refusal are no longer options, so I must act."
+> "Little Hellsing chicky, I'm coming to find you. Come out and play, little Hellsing. It's going to be a lot of fun. We just want to torture you, kill you, maybe skullfuck your corpse a couple of times, burn your house to the ground, go home, and masturbate, okay?"
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Jan Valentine**](https://myanimelist.net/character.php?q=Jan%20Valentine&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
