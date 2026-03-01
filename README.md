@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Does becoming adult mean you lose a lot of things?"
+> "Maybe everything you wish for won't become stars, but if you have a dream to believe in, they'll be thousands of the most glittering jewels in the night sky."
 
-&mdash; [**Chisaki Hiradaira**](https://myanimelist.net/character.php?q=Chisaki%20Hiradaira&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
+&mdash; [**Ichinose Hayato**](https://myanimelist.net/character.php?q=Ichinose%20Hayato&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
