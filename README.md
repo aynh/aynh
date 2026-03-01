@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Their mistakes were simple ones. Gouki's mistake was being overconfident and Kurama's... sympathy for his human prey."
+> "Bare emotions tell the truth much eloquently than any justification."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Konan**](https://myanimelist.net/character.php?q=Konan&cat=character), [**Gekkou**](https://myanimelist.net/search/all?q=Gekkou&cat=all)
