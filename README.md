@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life and death come and go like marionettes dancing on a table. Once their stings are cut, they easily crumble."
+> "Does becoming adult mean you lose a lot of things?"
 
-&mdash; [**Ghost in the Shell 2: Innocence**](https://myanimelist.net/character.php?q=Ghost%20in%20the%20Shell%202%3A%20Innocence&cat=character), [**Ghost in the Shell 2: Innocence**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell%202%3A%20Innocence&cat=all)
+&mdash; [**Chisaki Hiradaira**](https://myanimelist.net/character.php?q=Chisaki%20Hiradaira&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
