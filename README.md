@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how hard you try, you cannot exceed your true capabilities."
+> "Humans are easily tempted. When they are poised on the edge of hellish despair, and a spider-thin thread of salvation presents itself, they will invariably grasp it. No matter the human."
 
-&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
