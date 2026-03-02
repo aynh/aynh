@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is never an apology."
+> "Between dreams and reality is the vault of your soul. No one could see the “Dream World” without this path."
 
-&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
