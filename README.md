@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Every experience is a tool to clear your path.' It was none other than those students who taught me that."
+> "Just what is right and what is wrong...? To begin with, just who is the enemy I must defeat?"
 
-&mdash; [**Karasuma Tadaomi**](https://myanimelist.net/character.php?q=Karasuma%20Tadaomi&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Rentaro Satomi**](https://myanimelist.net/character.php?q=Rentaro%20Satomi&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
