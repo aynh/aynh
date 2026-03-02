@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*talking about a nosebleed* And why would a girl your age pick hard enough to get a nosebleed?!"
+> "When you're upset, try making the intelligent decision. And then, you might actually get something you want for a change."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Tōdō Kaoru**](https://myanimelist.net/character.php?q=T%C5%8Dd%C5%8D%20Kaoru&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
