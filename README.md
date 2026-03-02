@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "However far I fall as long as there's so much as a thread left I will use it to climb. I'll take hold of it. I refuse to give up while I'm still human I can do that much. But every person must decide on his own whether to grab it."
+> "Humans love hurting others when they can´t be hurt themselves. Like killing animals, or flaming people online. And if the target makes a mistake, it fans the flames even more, and the bully gets even more fun out of it."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Yozora Mikazuki**](https://myanimelist.net/character.php?q=Yozora%20Mikazuki&cat=character), [**Boku wa Tomodachi ga Sukunai**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai&cat=all)
