@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Between dreams and reality is the vault of your soul. No one could see the “Dream World” without this path."
+> "Those who win are not strong. It is those who lose and crawl back up who are strong."
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
