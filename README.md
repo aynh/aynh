@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you're upset, try making the intelligent decision. And then, you might actually get something you want for a change."
+> "I think you and I have different concepts of beauty. I was taught that it's beautiful to survive, unsightly or not."
 
-&mdash; [**Tōdō Kaoru**](https://myanimelist.net/character.php?q=T%C5%8Dd%C5%8D%20Kaoru&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Ganju Shiba**](https://myanimelist.net/character.php?q=Ganju%20Shiba&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
