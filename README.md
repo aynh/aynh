@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans can lie with words. And they can deceive with actions. You can't trust their eyes, voices, or expressions. But when they're about to die, their faces show the truth, no matter what."
+> "Time is not money. You can't buy time, now can you?"
 
-&mdash; [**Hans Humpty**](https://myanimelist.net/character.php?q=Hans%20Humpty&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
+&mdash; [**Kirisaki Hana**](https://myanimelist.net/character.php?q=Kirisaki%20Hana&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
