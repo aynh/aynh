@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All humans die the same, the place they go after death isn't decided upon by a god it is Mu (nothingness)."
+> "Death is never an apology."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
