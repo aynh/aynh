@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's when I realized! That I had become a child who would be found. So I broke into tears of happiness. No matter how far we're separated, you two would definitely find me. It's nice knowing someone will find you."
+> "Humans who would dare to play God must pay a steep price for their arrogance, that is Truth."
 
-&mdash; [**Himari Takakura**](https://myanimelist.net/character.php?q=Himari%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Father**](https://myanimelist.net/character.php?q=Father&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
