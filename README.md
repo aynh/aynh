@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time is not money. You can't buy time, now can you?"
+> "The spring of my heart surges upon the sight of your fresh smile, my love."
 
-&mdash; [**Kirisaki Hana**](https://myanimelist.net/character.php?q=Kirisaki%20Hana&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
