@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Little Hellsing chicky, I'm coming to find you. Come out and play, little Hellsing. It's going to be a lot of fun. We just want to torture you, kill you, maybe skullfuck your corpse a couple of times, burn your house to the ground, go home, and masturbate, okay?"
+> "However far I fall as long as there's so much as a thread left I will use it to climb. I'll take hold of it. I refuse to give up while I'm still human I can do that much. But every person must decide on his own whether to grab it."
 
-&mdash; [**Jan Valentine**](https://myanimelist.net/character.php?q=Jan%20Valentine&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
