@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a person continues killing, their heart changes into that of a demon without them even noticing."
+> "My happiness can only be made by my own hands. My happiness doesn't depend on anyone but me!"
 
-&mdash; [**Gensei**](https://myanimelist.net/character.php?q=Gensei&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
