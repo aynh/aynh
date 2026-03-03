@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just what is right and what is wrong...? To begin with, just who is the enemy I must defeat?"
+> "Are you ready now to witness a power not seen for thousands of years?"
 
-&mdash; [**Rentaro Satomi**](https://myanimelist.net/character.php?q=Rentaro%20Satomi&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
