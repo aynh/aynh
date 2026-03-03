@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you're hiding a secret from the whole world, it puts a weight on your shoulders."
+> "It is a poor knight indeed who slays one who defies him. The key is to show yourself to be superior that they will not defy you in the first place."
 
-&mdash; [**Taichi Yaegashi**](https://myanimelist.net/character.php?q=Taichi%20Yaegashi&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Slaine Troyard**](https://myanimelist.net/character.php?q=Slaine%20Troyard&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
