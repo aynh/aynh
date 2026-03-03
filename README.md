@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care if it's a girl, a baby or someone's grandma. I'm gonna fight her anyway."
+> "I don't let anyone in my sight get away, and my bullets never miss their mark. Especially if it's the heart of a beautiful lady... BANG."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
