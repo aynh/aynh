@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Swords exists for just judging and killing. They can never save others."
+> "People who think that they can make up their past follies with regret, cannot be forgiven."
 
-&mdash; [**Kourin Shimizu**](https://myanimelist.net/character.php?q=Kourin%20Shimizu&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
