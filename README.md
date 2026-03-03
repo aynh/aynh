@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[When she hops into the bath with Ichigo, but in cat form] What? Are you a little disappointed? Come on, be honest. You are, aren't you? You little pervert!"
+> "Didn't your mother ever tell you that mentioning a woman's age will get you killed?"
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shizuka Hiratsuka**](https://myanimelist.net/character.php?q=Shizuka%20Hiratsuka&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
