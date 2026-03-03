@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I left Syrup Village, I left everything behind! Tranquility… Safety… They face hardships every day, and they laugh like they’re really having fun! That’s why I decided to go out to sea! I want to laugh ’til I cry, too! But if I don’t fight with everything I’ve got, there’s no way I deserve to be on the same boat as them! There’s no way I can laugh with them!"
+> "My existence was nothing more to her than a stone by the side of the road. I wasn't enough to fill her belly. Or perhaps I didn't even get reflected in her eyes. I couldn't even hate the beast that killed Teresa. It was me, overcome by fear, that I could not forgive."
 
-&mdash; [**Usopp**](https://myanimelist.net/character.php?q=Usopp&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Clare**](https://myanimelist.net/character.php?q=Clare&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
