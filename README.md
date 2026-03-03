@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't let anyone in my sight get away, and my bullets never miss their mark. Especially if it's the heart of a beautiful lady... BANG."
+> "The things I had to tell her...The things I hoped she would listen to...There were so many of them."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Takaki Toono**](https://myanimelist.net/character.php?q=Takaki%20Toono&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
