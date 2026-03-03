@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The things I had to tell her...The things I hoped she would listen to...There were so many of them."
+> "The sorrows of life...To not be able to live like yourself. The joys of life...To be able to die like yourself."
 
-&mdash; [**Takaki Toono**](https://myanimelist.net/character.php?q=Takaki%20Toono&cat=character), [**5 Centimeters per Second**](https://myanimelist.net/search/all?q=5%20Centimeters%20per%20Second&cat=all)
+&mdash; [**Karren von Rosewald**](https://myanimelist.net/character.php?q=Karren%20von%20Rosewald&cat=character), [**Tokyo Ghoul:re**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3Are&cat=all)
