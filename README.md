@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is when it isn't fun to be with that person. It's when nothing goes the way you want. When you're not having fun... and yet you still want to be with that person."
+> "Your emotions have nothing to do with winning or losing,  but they're motivating us more than you might expect."
 
-&mdash; [**Taichi Mashima**](https://myanimelist.net/character.php?q=Taichi%20Mashima&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Makishima Yuusuke**](https://myanimelist.net/character.php?q=Makishima%20Yuusuke&cat=character), [**Yowamushi Pedal Grande Road**](https://myanimelist.net/search/all?q=Yowamushi%20Pedal%20Grande%20Road&cat=all)
