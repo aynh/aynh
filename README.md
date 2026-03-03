@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Helping other people is the best way to make up for your mistakes."
+> "Swords exists for just judging and killing. They can never save others."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Kourin Shimizu**](https://myanimelist.net/character.php?q=Kourin%20Shimizu&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
