@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who think that they can make up their past follies with regret, cannot be forgiven."
+> "When you're hiding a secret from the whole world, it puts a weight on your shoulders."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Taichi Yaegashi**](https://myanimelist.net/character.php?q=Taichi%20Yaegashi&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
