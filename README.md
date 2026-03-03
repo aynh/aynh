@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, you sure have weird ways of doing things. The one who taught me how to give your name out to he whom you are about to kill also said... that it was always the last lesson he taught his students. That way, if you do end a person's life... at the very least, they will know the name of the one who slashed their mortal coil. I'm of the 11th Division, 3rd seat, Madarame Ikkaku! You're right, there's no reason for me to hear your name, because the most important thing is that you know mine. After all, it is the name of the man... who will send you to your death!"
+> "When I left Syrup Village, I left everything behind! Tranquility… Safety… They face hardships every day, and they laugh like they’re really having fun! That’s why I decided to go out to sea! I want to laugh ’til I cry, too! But if I don’t fight with everything I’ve got, there’s no way I deserve to be on the same boat as them! There’s no way I can laugh with them!"
 
-&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Usopp**](https://myanimelist.net/character.php?q=Usopp&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
