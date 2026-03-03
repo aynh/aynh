@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The sorrows of life...To not be able to live like yourself. The joys of life...To be able to die like yourself."
+> "If you truly have the nerve to feel that way... then you should give yourself up to the order Headquarters, or just die please."
 
-&mdash; [**Karren von Rosewald**](https://myanimelist.net/character.php?q=Karren%20von%20Rosewald&cat=character), [**Tokyo Ghoul:re**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3Are&cat=all)
+&mdash; [**Yukio Okumura**](https://myanimelist.net/character.php?q=Yukio%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
