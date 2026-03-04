@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say you never know when a bullet you fired in battle will find its way back to you."
+> "No matter how you look, as long as your judgement is clouded you won't find the truth."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Meikyuu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Meikyuu&cat=all)
+&mdash; [**Igor Neuhaus**](https://myanimelist.net/character.php?q=Igor%20Neuhaus&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
