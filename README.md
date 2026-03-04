@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was only able to get back to being a real doctor by saving your life! I realized that human lives have equal value by saving you! Nobody has the right to take another's life! I've been living as a doctor with that engraved upon my heart for years!"
+> "They say you never know when a bullet you fired in battle will find its way back to you."
 
-&mdash; [**Kenzo Tenma**](https://myanimelist.net/character.php?q=Kenzo%20Tenma&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Meikyuu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Meikyuu&cat=all)
