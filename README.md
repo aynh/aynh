@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not fat, I'm pleasingly plump!"
+> "I don't care if no one likes me. I wasn't created in this world to entertain everyone."
 
-&mdash; [**Chouji Akimichi**](https://myanimelist.net/character.php?q=Chouji%20Akimichi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
