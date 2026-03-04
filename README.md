@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Family? Let me tell you what kind of link I have with them. They are just lumps of meat linked by hatred and murderous intent!"
+> "[after finding his stolen boomerang] Boomerang! You do always come back!"
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
