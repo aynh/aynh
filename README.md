@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are days when nothing goes right. There are days when you stumble and fall. There are days when you just want to cry. To cry a lot. To sleep a lot. Or even eat a lot. It's alright, as long as you pick yourself up again."
+> "Family? Let me tell you what kind of link I have with them. They are just lumps of meat linked by hatred and murderous intent!"
 
-&mdash; [**Yuki Takeya**](https://myanimelist.net/character.php?q=Yuki%20Takeya&cat=character), [**Gakkou Gurashi!**](https://myanimelist.net/search/all?q=Gakkou%20Gurashi!&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
