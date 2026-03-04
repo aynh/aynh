@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how you look, as long as your judgement is clouded you won't find the truth."
+> "You brake the law and I'll punish you, there is no room for discussion."
 
-&mdash; [**Igor Neuhaus**](https://myanimelist.net/character.php?q=Igor%20Neuhaus&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
