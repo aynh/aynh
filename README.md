@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you married someone, that means you love every side of your significant other that you already know. So if you find a new side after to love, doesn't that mean you'll love your partner even more?"
+> "People only have substance within the memories of other people. And that's why there were all kinds of mes. There weren't a lot of mes per se, I was just inside all sorts of people, that's all."
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Lain Iwakura**](https://myanimelist.net/character.php?q=Lain%20Iwakura&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
