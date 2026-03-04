@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do your best, no matter how many times you fail!"
+> "I've always lived in a world of deceit. And amidst the lies, I was able to find my true treasure."
 
-&mdash; [**Takeshi Tatsumi**](https://myanimelist.net/character.php?q=Takeshi%20Tatsumi&cat=character), [**Giant Killing**](https://myanimelist.net/search/all?q=Giant%20Killing&cat=all)
+&mdash; [**Teito Klein**](https://myanimelist.net/character.php?q=Teito%20Klein&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
