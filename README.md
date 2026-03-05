@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think people should try to ignore their race, and just treat each other as equals."
+> "If I wasn't prepared to be flexible as the situations demands, I wouldn't have become a teacher."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
