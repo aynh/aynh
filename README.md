@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you lovingly collect every last piece of a shattered cup, pieces are still pieces. Once something breaks, it can never return."
+> "There are times when there's a great pleasure waiting at the end of laments, pains, and near-death experiences."
 
-&mdash; [**Ryuuguu Rena**](https://myanimelist.net/character.php?q=Ryuuguu%20Rena&cat=character), [**Higurashi no Naku Koro ni Rei**](https://myanimelist.net/search/all?q=Higurashi%20no%20Naku%20Koro%20ni%20Rei&cat=all)
+&mdash; [**Hinagiku Katsura**](https://myanimelist.net/character.php?q=Hinagiku%20Katsura&cat=character), [**Hayate the Combat Butler**](https://myanimelist.net/search/all?q=Hayate%20the%20Combat%20Butler&cat=all)
