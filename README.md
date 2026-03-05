@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Talent is a key factor, of course, but without some luck on your side you're likely to fail."
+> "When people are protecting something truly special to them, they truly can become... as strong as they can be."
 
-&mdash; [**Reiko Mikami**](https://myanimelist.net/character.php?q=Reiko%20Mikami&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
