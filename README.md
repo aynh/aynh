@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I wasn't prepared to be flexible as the situations demands, I wouldn't have become a teacher."
+> "Just as water can overfill a container. Madness is all the same."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Ryōhei Arisu**](https://myanimelist.net/character.php?q=Ry%C5%8Dhei%20Arisu&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
