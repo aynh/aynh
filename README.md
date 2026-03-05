@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times when there's a great pleasure waiting at the end of laments, pains, and near-death experiences."
+> "I think people should try to ignore their race, and just treat each other as equals."
 
-&mdash; [**Hinagiku Katsura**](https://myanimelist.net/character.php?q=Hinagiku%20Katsura&cat=character), [**Hayate the Combat Butler**](https://myanimelist.net/search/all?q=Hayate%20the%20Combat%20Butler&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
