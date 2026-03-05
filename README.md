@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have a swimsuit tan. You could jump in the pool naked and no one would know you weren't wearing anything."
+> "There's nothing more boring than a perfect heroine!"
 
-&mdash; [**Ayumu Kasuga**](https://myanimelist.net/character.php?q=Ayumu%20Kasuga&cat=character), [**Azumanga Daioh**](https://myanimelist.net/search/all?q=Azumanga%20Daioh&cat=all)
+&mdash; [**Drosselmeyer**](https://myanimelist.net/character.php?q=Drosselmeyer&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
