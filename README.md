@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't perform the same trick twice with one audience. If performed only once, the magic leaves a strong impression. It will then blossom into a beautiful miracle in their hearts. But, when used twice, rather than the audience enjoying the magic, they focus on unraveling the trick. As such, the chance of it being unveiled is high."
+> "[to Kenpachi Zaraki] I did not say that I hate you. What I mean to say is that you are unforgivable!!"
 
-&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
