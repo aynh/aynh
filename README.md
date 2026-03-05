@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only two kinds of people exist in this world, those who steal and those who are stolen from."
+> "You can't perform the same trick twice with one audience. If performed only once, the magic leaves a strong impression. It will then blossom into a beautiful miracle in their hearts. But, when used twice, rather than the audience enjoying the magic, they focus on unraveling the trick. As such, the chance of it being unveiled is high."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
