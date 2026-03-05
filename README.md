@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no desire to kill you. In fact, you're not worth killing. Killing you, would only tarnish my blade."
+> "How rude! You knocked his block off, and you didn't even have the courtesy to yell 'Heads up'!"
 
-&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
