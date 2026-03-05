@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just as water can overfill a container. Madness is all the same."
+> "You have a swimsuit tan. You could jump in the pool naked and no one would know you weren't wearing anything."
 
-&mdash; [**Ryōhei Arisu**](https://myanimelist.net/character.php?q=Ry%C5%8Dhei%20Arisu&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Ayumu Kasuga**](https://myanimelist.net/character.php?q=Ayumu%20Kasuga&cat=character), [**Azumanga Daioh**](https://myanimelist.net/search/all?q=Azumanga%20Daioh&cat=all)
