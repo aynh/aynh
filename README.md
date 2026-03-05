@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people are protecting something truly special to them, they truly can become... as strong as they can be."
+> "Even if you lovingly collect every last piece of a shattered cup, pieces are still pieces. Once something breaks, it can never return."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ryuuguu Rena**](https://myanimelist.net/character.php?q=Ryuuguu%20Rena&cat=character), [**Higurashi no Naku Koro ni Rei**](https://myanimelist.net/search/all?q=Higurashi%20no%20Naku%20Koro%20ni%20Rei&cat=all)
