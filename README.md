@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is a case of personal feelings: there's no way to force someone into saying that he or she loves someone. Besides, only the person knows whether the love truly exists. Even if it's said out with false feelings, it'll just cause damage on both sides."
+> "Not every result can be the one desired. Trust your own judgments and actions. That is enough."
 
-&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Cadis Etrama Di Raizel**](https://myanimelist.net/character.php?q=Cadis%20Etrama%20Di%20Raizel&cat=character), [**Noblesse**](https://myanimelist.net/search/all?q=Noblesse&cat=all)
