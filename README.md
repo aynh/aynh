@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Three days of eating our food and her smell will go away. And if she doesn't work hard, roast her, boil her, do whatever you want. Now get back to work!"
+> "Individuality that stands apart from the rest is a great asset."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
+&mdash; [**Mitsuki Nase**](https://myanimelist.net/character.php?q=Mitsuki%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
