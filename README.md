@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is a tasteless life if you don't have something you regret."
+> "Three days of eating our food and her smell will go away. And if she doesn't work hard, roast her, boil her, do whatever you want. Now get back to work!"
 
-&mdash; [**Inu X Boku SS**](https://myanimelist.net/character.php?q=Inu%20X%20Boku%20SS&cat=character), [**Inu X Boku SS**](https://myanimelist.net/search/all?q=Inu%20X%20Boku%20SS&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
