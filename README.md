@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're not a coward. I know that because you haven't given up yet. You're standing here. As long as you face the light and take even one step, the human soul can never truly be defeated."
+> "Naruto... Just so you know, there will be a war to protect the Eight-Tails and Nine-Tails. In other words - you. For the sake of the ninja world and as the Kazekage, I will guard you with my life. If as a member of Akatsuki, Sasuke Uchiha stands in the way of the ninja coalition... I will show him no mercy."
 
-&mdash; [**Klaus von Reinherz**](https://myanimelist.net/character.php?q=Klaus%20von%20Reinherz&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
