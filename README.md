@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Real strength only reveals itself when one is faced with great turmoil! Therefore, I shall always tread a thorny path!"
+> "Perhaps the souls of those we couldn't save, will eventually find their way to my sister. If they do, could they relay a message for me? That I promise to live for her too. And even if she feels a little lonely, just wait there for me for a little while longer."
 
-&mdash; [**Aoi Asahina**](https://myanimelist.net/character.php?q=Aoi%20Asahina&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Ikoma**](https://myanimelist.net/character.php?q=Ikoma&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
