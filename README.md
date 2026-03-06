@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Athrun] I bet your head is like a hamster running in its wheel right about now."
+> "Don't believe in the me that believe in you, don't believe in the you that believes in me, believe in yourself who believes in you!"
 
-&mdash; [**Cagalli Yula Athha**](https://myanimelist.net/character.php?q=Cagalli%20Yula%20Athha&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Kamina**](https://myanimelist.net/character.php?q=Kamina&cat=character), [**Gurren Lagann**](https://myanimelist.net/search/all?q=Gurren%20Lagann&cat=all)
