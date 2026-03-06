@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And so... I have written down the lesson I've learned from this vital experience in form of a title suitable for a business reference book: 'Never hold meetings. The outcome is determined before the meeting begins.'"
+> "Nature itself is absurd. Humans are the only ones who whine about it."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
