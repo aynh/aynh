@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What repulsive creature makes my eardrums bleed?"
+> "I'll never show you my tears. These are the tears of those who died with regrets. If there's a way to take away these regrets, I'll make sure I'll find it."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
