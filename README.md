@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...There's nothing to feel sorry for on my behalf. I've been a very selfish girl. For the first time, I was able to see that. Thank you for worrying about me, mama. (to her mother)"
+> "Not all people in prison are criminals"
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Cardina Baumeister**](https://myanimelist.net/character.php?q=Cardina%20Baumeister&cat=character), [**Shingeki no Kyojin: Before the Fall**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin%3A%20Before%20the%20Fall&cat=all)
