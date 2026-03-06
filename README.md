@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not every result can be the one desired. Trust your own judgments and actions. That is enough."
+> "I know love. The convenience store was selling it. For 298 yen."
 
-&mdash; [**Cadis Etrama Di Raizel**](https://myanimelist.net/character.php?q=Cadis%20Etrama%20Di%20Raizel&cat=character), [**Noblesse**](https://myanimelist.net/search/all?q=Noblesse&cat=all)
+&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
