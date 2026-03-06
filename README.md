@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When there's nothing to be gained, rising to the challenge at those times... is surely the mark... of a true hero!!"
+> "It is a tasteless life if you don't have something you regret."
 
-&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Inu X Boku SS**](https://myanimelist.net/character.php?q=Inu%20X%20Boku%20SS&cat=character), [**Inu X Boku SS**](https://myanimelist.net/search/all?q=Inu%20X%20Boku%20SS&cat=all)
