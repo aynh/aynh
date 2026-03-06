@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trusting someone not to hurt you... how idiotic is that?"
+> "Tohru, I can't stand not being with you... I... because I love you."
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
