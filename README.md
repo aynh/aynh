@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't believe in the me that believe in you, don't believe in the you that believes in me, believe in yourself who believes in you!"
+> "What repulsive creature makes my eardrums bleed?"
 
-&mdash; [**Kamina**](https://myanimelist.net/character.php?q=Kamina&cat=character), [**Gurren Lagann**](https://myanimelist.net/search/all?q=Gurren%20Lagann&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
