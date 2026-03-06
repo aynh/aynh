@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Naruto... Just so you know, there will be a war to protect the Eight-Tails and Nine-Tails. In other words - you. For the sake of the ninja world and as the Kazekage, I will guard you with my life. If as a member of Akatsuki, Sasuke Uchiha stands in the way of the ninja coalition... I will show him no mercy."
+> "When there's nothing to be gained, rising to the challenge at those times... is surely the mark... of a true hero!!"
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**All Might**](https://myanimelist.net/character.php?q=All%20Might&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
