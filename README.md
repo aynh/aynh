@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are the most important person to me in the whole wide world."
+> "Are you afraid? You don’t want to die, do you? Not just Abarai, if anyone… acts upon the thought of not wanting you to die, you will suddenly begin to fear your impending death, right?"
 
-&mdash; [**Sakura Kinomoto**](https://myanimelist.net/character.php?q=Sakura%20Kinomoto&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
