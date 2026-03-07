@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do want to be useful for something and to be of help to people, but I want to decide what that 'something' is by myself."
+> "A sword is a weapon. The art of swordsmanship is learning how to kill. What Miss Kaoru says is nothing but sweet and innocent talk, only those whose hands have never been stained with the blood of man can believe."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
