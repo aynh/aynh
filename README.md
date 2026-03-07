@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A miracle never comes to those who seek it."
+> "Mankind is a very intresting species."
 
-&mdash; [**Amamiya Yuuko**](https://myanimelist.net/character.php?q=Amamiya%20Yuuko&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Sakamoto**](https://myanimelist.net/character.php?q=Sakamoto&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
