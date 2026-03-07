@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you afraid? You don’t want to die, do you? Not just Abarai, if anyone… acts upon the thought of not wanting you to die, you will suddenly begin to fear your impending death, right?"
+> "Everything in this world is just a game and we are merely the pawns."
 
-&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Gasai Yuno**](https://myanimelist.net/character.php?q=Gasai%20Yuno&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
