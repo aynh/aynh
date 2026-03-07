@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I love flowers. They look so good... On me."
+> "Do you know what the most primitive emotion people have is? It’s fear."
 
-&mdash; [**Evergreen**](https://myanimelist.net/character.php?q=Evergreen&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
