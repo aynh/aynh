@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who use others are stupid, but people who are used are even more stupid."
+> "It doesn't matter what the essence of it is. The truth is what's hidden inside."
 
-&mdash; [**Aoyagi Ritsuka**](https://myanimelist.net/character.php?q=Aoyagi%20Ritsuka&cat=character), [**Loveless**](https://myanimelist.net/search/all?q=Loveless&cat=all)
+&mdash; [**Hiro Hirono**](https://myanimelist.net/character.php?q=Hiro%20Hirono&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
