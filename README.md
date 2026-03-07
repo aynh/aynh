@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know what the most primitive emotion people have is? It’s fear."
+> "You need to decide where you belong before anything else. If you can do that, you can decide what you want to do."
 
-&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Jin Mitaka**](https://myanimelist.net/character.php?q=Jin%20Mitaka&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
