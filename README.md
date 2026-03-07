@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter what the essence of it is. The truth is what's hidden inside."
+> "If I got angry at every little thing, my body wouldn't be able to hold it all."
 
-&mdash; [**Hiro Hirono**](https://myanimelist.net/character.php?q=Hiro%20Hirono&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
