@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are weak... but we want to live. Even if we're wounded... or tortured... we feel the pain."
+> "Your god is a fragment of your imagination from your weakness."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Twenty-Fifth Baam**](https://myanimelist.net/character.php?q=Twenty-Fifth%20Baam&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
