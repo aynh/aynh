@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we are to die one day, wouldn't it be better to have no regrets?"
+> "Anything edible is acceptable. Extravagance is our enemy."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
