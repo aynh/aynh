@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "About Usui, I really don't know anything at all. It's mortifying... Yet I already don't want him to turn away."
+> "You know about it, don't you, Witch Medusa? About the Kishin beneath the DWMA."
 
-&mdash; [**Misaki Ayuzawa**](https://myanimelist.net/character.php?q=Misaki%20Ayuzawa&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
