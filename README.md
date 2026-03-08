@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You may have grown too strong. Drunk on your own power, you forgot to put yourself in the shoes of someone weaker than you. That makes you no different than the student in the main campus."
+> "There’s no such thing as a person who doesn’t belong. You’re here because there’s someone who wants you to be here."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Seki Kenji**](https://myanimelist.net/character.php?q=Seki%20Kenji&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
