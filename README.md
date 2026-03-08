@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But we're alive, aren't we? We don't have any magic power, but we're alive! We have the strength to overcome the weakness and the fear! That's what it means to be alive!"
+> "Are you helping because you're a doctor? Or is it because you're a Witch?"
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
