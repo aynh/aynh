@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your god is a fragment of your imagination from your weakness."
+> "In this world, guns are always within arm's reach, and sadly they are more trustworthy than kindness."
 
-&mdash; [**Twenty-Fifth Baam**](https://myanimelist.net/character.php?q=Twenty-Fifth%20Baam&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
