@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, guns are always within arm's reach, and sadly they are more trustworthy than kindness."
+> "My existence was nothing more to her than a stone by the side of the road. I wasn't enough to fill her belly. Or perhaps I didn't even get reflected in her eyes. I couldn't even hate the beast that killed Teresa. It was me, overcome by fear, that I could not forgive."
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Clare**](https://myanimelist.net/character.php?q=Clare&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
