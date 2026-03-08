@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I no longer pay attention to other people’s skills. It doesn’t matter; at the end of the day, you can only do your best."
+> "About Usui, I really don't know anything at all. It's mortifying... Yet I already don't want him to turn away."
 
-&mdash; [**Usui Haruaki**](https://myanimelist.net/character.php?q=Usui%20Haruaki&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Misaki Ayuzawa**](https://myanimelist.net/character.php?q=Misaki%20Ayuzawa&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
