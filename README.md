@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is an emotional thing. I will say nothing in praise of it... It is antagonistic to clear reasoning. It's the same in tennis. Love is 0. No matter how many zeroes you add together, you'll just lose miserably."
+> "But we're alive, aren't we? We don't have any magic power, but we're alive! We have the strength to overcome the weakness and the fear! That's what it means to be alive!"
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
