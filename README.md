@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gekokujou."
+> "If we are to die one day, wouldn't it be better to have no regrets?"
 
-&mdash; [**Wakashi Hiyoshi**](https://myanimelist.net/character.php?q=Wakashi%20Hiyoshi&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
