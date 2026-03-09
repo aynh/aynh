@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What could be more beautiful than doing work that puts your soul at risk, because that's what it means to be alive!"
+> "If you can no longer believe in the person you love, then test him until you are satisfied."
 
-&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Bianchi**](https://myanimelist.net/character.php?q=Bianchi&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
