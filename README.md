@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The truth is everyone is going to hurt you, you just got to find the ones worth suffering for."
+> "No fair, sky. I'm the one who feels like crying."
 
-&mdash; [**Hei**](https://myanimelist.net/character.php?q=Hei&cat=character), [**Darker than Black - Kuro no Keiyakusha: Gaiden**](https://myanimelist.net/search/all?q=Darker%20than%20Black%20-%20Kuro%20no%20Keiyakusha%3A%20Gaiden&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
