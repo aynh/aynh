@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are we friends? Or are we foes? That kind of thing you decide for yourselves!"
+> "Friends are like balloons. Once you let them go, you can't get them back. So I'm going to tie you to my heart, so to never lose you."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Alibaba Saluja**](https://myanimelist.net/character.php?q=Alibaba%20Saluja&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
