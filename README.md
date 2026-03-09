@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as you live things will keep happening! As long as you're alive wishes will keep being made!"
+> "Are we friends? Or are we foes? That kind of thing you decide for yourselves!"
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
