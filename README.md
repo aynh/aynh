@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Poets say love can't be bought with money. Preachers say that there are things more important than money. So even though we work hard just to earn money, how can we obtain something more important than that?"
+> "Don't start thinking of killing just when the slightest thing doesn't go your way! How selfish are you!?"
 
-&mdash; [**Mark**](https://myanimelist.net/character.php?q=Mark&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Hikawa Renko**](https://myanimelist.net/character.php?q=Hikawa%20Renko&cat=character), [**Psycho Love Comedy**](https://myanimelist.net/search/all?q=Psycho%20Love%20Comedy&cat=all)
