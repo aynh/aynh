@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anything edible is acceptable. Extravagance is our enemy."
+> "Stop being such a bitch, Sweden!"
 
-&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Poland**](https://myanimelist.net/character.php?q=Poland&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
