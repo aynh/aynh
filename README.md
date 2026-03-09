@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who are confident in themselves never talk about expectations. 'Expectation' is a word rooted in giving up. It leaves you with no other choice. It makes it obvious that you're powerless."
+> "If you don't believe in yourself, who will!? You're the only one demeaning yourself!"
 
-&mdash; [**Satoshi Fukube**](https://myanimelist.net/character.php?q=Satoshi%20Fukube&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Amu Hinamori**](https://myanimelist.net/character.php?q=Amu%20Hinamori&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
