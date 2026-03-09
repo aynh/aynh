@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A farewell is like the other side of a coin. It will only happen when there is an encounter. Rather than dreading the day we have to part, shouldn't we be happy that we had the chance to meet today instead?"
+> "Don't try to be a hero, stupid cat. (to Kyo)"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
