@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I look up, I see a gloomy, cloudy sky. Today is another tiring uphill climb. I get sick of it all. Then... I think of the girl I love, and I put back on those worn down shoes. Her smile is like a ray of light that shines down from in between the clouds and warms up my heart. My girl has the smile of an angel."
+> "We are all different from each other and that's what makes us all special."
 
-&mdash; [**Nakagawa Ken**](https://myanimelist.net/character.php?q=Nakagawa%20Ken&cat=character), [**Tenshi Nanka ja Nai**](https://myanimelist.net/search/all?q=Tenshi%20Nanka%20ja%20Nai&cat=all)
+&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
