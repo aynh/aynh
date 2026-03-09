@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop being such a bitch, Sweden!"
+> "What could be more beautiful than doing work that puts your soul at risk, because that's what it means to be alive!"
 
-&mdash; [**Poland**](https://myanimelist.net/character.php?q=Poland&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
