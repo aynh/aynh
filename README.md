@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Although my life hasn't been very fortunate until now, I'm glad if I caught your eye because of that misfortune..."
+> "If you think too hard when you don't have a brain, you're going to hurt your head."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Tooru Oikawa**](https://myanimelist.net/character.php?q=Tooru%20Oikawa&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
