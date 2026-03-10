@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having my fate decided for me from the time I was born goes against my view of beauty."
+> "Be proud as someone who, after being struck by this power, is still able to retain the shape of a body."
 
-&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
