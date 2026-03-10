@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Be proud as someone who, after being struck by this power, is still able to retain the shape of a body."
+> "There are two types of lies: Lies that hurt, and lies that don't hurt."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Itaru Hashida**](https://myanimelist.net/character.php?q=Itaru%20Hashida&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
