@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was all dried up. Yes, nothing could satisfy me anymore. I was but a shell of a man. An unspeakable emptiness grew deep within my heart. I became frustrated, sad, hollow. The gapping hole inside of me was growing larger everyday. Slowly consuming me from the inside out. At least until that day came."
+> "If it is with Ayuzawa, whatever I do, wherever I am, I am happy. So it's okay."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
