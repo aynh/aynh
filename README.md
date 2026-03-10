@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how foolish or incomprehensible, some love cannot be discarded. You may try to stop your heart, unable to forgive yourself, but there will be times when you lose hope and your heart is moved again."
+> "Even if you hate it or whatever, I'll never let go of you. If you run away, I'll probably come after you and lock you up."
 
-&mdash; [**Ik-su**](https://myanimelist.net/character.php?q=Ik-su&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
