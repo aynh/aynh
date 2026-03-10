@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it is with Ayuzawa, whatever I do, wherever I am, I am happy. So it's okay."
+> "Having my fate decided for me from the time I was born goes against my view of beauty."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Jae-ha**](https://myanimelist.net/character.php?q=Jae-ha&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
