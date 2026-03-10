@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you hate it or whatever, I'll never let go of you. If you run away, I'll probably come after you and lock you up."
+> "I love flowers. They look so good... On me."
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Evergreen**](https://myanimelist.net/character.php?q=Evergreen&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
