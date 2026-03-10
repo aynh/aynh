@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are all different from each other and that's what makes us all special."
+> "Although my life hasn't been very fortunate until now, I'm glad if I caught your eye because of that misfortune..."
 
-&mdash; [**Mirajane Strauss**](https://myanimelist.net/character.php?q=Mirajane%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
