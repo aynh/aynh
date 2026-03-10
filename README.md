@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People need to be told they're worthy of being alive by someone else or they can't go on."
+> "Love breeds sacrifice... which in turn breeds hatred. Then you can know pain."
 
-&mdash; [**Atsushi Nakajima**](https://myanimelist.net/character.php?q=Atsushi%20Nakajima&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
