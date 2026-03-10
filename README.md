@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've won. Exactly as planned."
+> "No matter how foolish or incomprehensible, some love cannot be discarded. You may try to stop your heart, unable to forgive yourself, but there will be times when you lose hope and your heart is moved again."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Ik-su**](https://myanimelist.net/character.php?q=Ik-su&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
