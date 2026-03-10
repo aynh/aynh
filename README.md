@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I dont need to believe in God to believe in myself."
+> "I don’t need to believe in God to believe in myself."
 
 &mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
