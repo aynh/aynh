@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are two types of lies: Lies that hurt, and lies that don't hurt."
+> "I've won. Exactly as planned."
 
-&mdash; [**Itaru Hashida**](https://myanimelist.net/character.php?q=Itaru%20Hashida&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
