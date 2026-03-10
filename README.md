@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love breeds sacrifice... which in turn breeds hatred. Then you can know pain."
+> "I was all dried up. Yes, nothing could satisfy me anymore. I was but a shell of a man. An unspeakable emptiness grew deep within my heart. I became frustrated, sad, hollow. The gapping hole inside of me was growing larger everyday. Slowly consuming me from the inside out. At least until that day came."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
