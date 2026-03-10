@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you think too hard when you don't have a brain, you're going to hurt your head."
+> "People need to be told they're worthy of being alive by someone else or they can't go on."
 
-&mdash; [**Tooru Oikawa**](https://myanimelist.net/character.php?q=Tooru%20Oikawa&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Atsushi Nakajima**](https://myanimelist.net/character.php?q=Atsushi%20Nakajima&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
