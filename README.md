@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What does it mean to be a winner? Is it the last one standing? It means to climb over a mountain of corpses to get to the top. By no means is it a glorious sight to behold, in fact, it is extremely cruel. Even so, if you still wish to seek victory... then you must become a devil."
+> "If I were to survive, but couldn't protect what was important to me, then I might as well be dead."
 
-&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
+&mdash; [**Tama**](https://myanimelist.net/character.php?q=Tama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
