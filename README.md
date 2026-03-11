@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wish I could rewrite my past.. but I can't. If I could, I'd do all I could if it would stop you from crying. But.. that's impossible. My past won't change. That's why we need to make my past pale in comparison to our present."
+> "Inherited will, the swelling of the changing times, and the dreams of people. These are things that cannot be stopped. As long as people seek the answer to freedom, these will never cease to be!"
 
-&mdash; [**Motoharu Yano**](https://myanimelist.net/character.php?q=Motoharu%20Yano&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
