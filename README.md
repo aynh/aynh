@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You sure can talk the talk, but you're not quite ready to walk the walk. Time's up, it's my turn."
+> "Whenever we pray for someone's happiness, someone else must be cursed in exchange."
 
-&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Sayaka Miki**](https://myanimelist.net/character.php?q=Sayaka%20Miki&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
