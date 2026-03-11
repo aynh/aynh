@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, life is fun! Try sayin' that ten times fast ten thousand times a minute every day for the rest of your life and it'll screw with your head so bad that all problems will disappear like MAGIC! Okay okay okay, I've gotten past the sadness and as of now I'm evolving to a HIGHER STAAAATE! Right? Tell me you all think so! Life is a magnificent beast, and it excites me!"
+> "The way you perceive yourself doesn't match the way others perceive you. Those who work hard despite that discrepancy shine brighter than anyone else!"
 
-&mdash; [**Graham Specter**](https://myanimelist.net/character.php?q=Graham%20Specter&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Kō Ōsaki**](https://myanimelist.net/character.php?q=K%C5%8D%20%C5%8Csaki&cat=character), [**Shōnen Hollywood - Holly Stage for 49**](https://myanimelist.net/search/all?q=Sh%C5%8Dnen%20Hollywood%20-%20Holly%20Stage%20for%2049&cat=all)
