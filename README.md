@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The way you perceive yourself doesn't match the way others perceive you. Those who work hard despite that discrepancy shine brighter than anyone else!"
+> "Ask of me, and I shall give thee the heathen for thine inheritance, and for thy possession, the ends of the earth. Thou shalt break them with a rod of iron. Thou shalt dash them in pieces, like a potters vessel. Be wise now, therefore ye kings. Be admonished ye judges of the earth. Serve the lord with fear, and rejoice with trembling. Kiss the son lest he be angry, and ye perish in the way, though his wrath be kindled but a little."
 
-&mdash; [**Kō Ōsaki**](https://myanimelist.net/character.php?q=K%C5%8D%20%C5%8Csaki&cat=character), [**Shōnen Hollywood - Holly Stage for 49**](https://myanimelist.net/search/all?q=Sh%C5%8Dnen%20Hollywood%20-%20Holly%20Stage%20for%2049&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
