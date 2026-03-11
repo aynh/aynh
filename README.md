@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Criticism of yourself as you're observed by others doesn't matter. If your existence is firmly acknowledged by you yourself, that's enough. If you can live with confidence in yourself, surely you can accept any kind of lifestyle."
+> "You're trying to break the curse. Stop it. What are you trying to do? Do you look down on us? Do you pity our wretched state? Don't bother! We never asked for your sympathy! (To Tohru)"
 
-&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
