@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A picture of you sleeping with a stupid look on your face totally oblivious to the dangers of this trip serves as a warning to future generations!"
+> "It's because I loved her the most that I wanted to kill her as swiftly as possible."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Akame**](https://myanimelist.net/character.php?q=Akame&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
