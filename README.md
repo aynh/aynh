@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I were to survive, but couldn't protect what was important to me, then I might as well be dead."
+> "You've set fire to my frozen heart, I shall engrave this anger and sadness that's running through my blood onto you."
 
-&mdash; [**Tama**](https://myanimelist.net/character.php?q=Tama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Alexander Nikolaevich Hell**](https://myanimelist.net/character.php?q=Alexander%20Nikolaevich%20Hell&cat=character), [**Seikon no Qwaser**](https://myanimelist.net/search/all?q=Seikon%20no%20Qwaser&cat=all)
