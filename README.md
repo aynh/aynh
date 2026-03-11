@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've set fire to my frozen heart, I shall engrave this anger and sadness that's running through my blood onto you."
+> "If you run into a wall and pretend it doesn't exist, you'll never make progress. The wall will never change, so you're the one who has to change."
 
-&mdash; [**Alexander Nikolaevich Hell**](https://myanimelist.net/character.php?q=Alexander%20Nikolaevich%20Hell&cat=character), [**Seikon no Qwaser**](https://myanimelist.net/search/all?q=Seikon%20no%20Qwaser&cat=all)
+&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
