@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just your touch... gets me excited. It makes me so happy. But those feelings will all turn into pain. The happier I am now, the more it'll hurt. I know how cruel this is... but no matter how hard I try, I can't rid myself of this. Nejima-kun... I... don't know... what love is."
+> "What does it mean to be a winner? Is it the last one standing? It means to climb over a mountain of corpses to get to the top. By no means is it a glorious sight to behold, in fact, it is extremely cruel. Even so, if you still wish to seek victory... then you must become a devil."
 
-&mdash; [**Takasaki Misaki**](https://myanimelist.net/character.php?q=Takasaki%20Misaki&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
