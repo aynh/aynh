@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm going to kill you, have a beautiful laugh, then dance until I go mad."
+> "Criticism of yourself as you're observed by others doesn't matter. If your existence is firmly acknowledged by you yourself, that's enough. If you can live with confidence in yourself, surely you can accept any kind of lifestyle."
 
-&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
