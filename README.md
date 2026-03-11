@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was not capable of stopping it even while using both hands. That surprised me a little. Was that your full power? Well, it seems to be... disappointing."
+> "No matter how ugly something is, if you look at it in a cute way, it'll seem dear somehow."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
