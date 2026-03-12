@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're trying to break the curse. Stop it. What are you trying to do? Do you look down on us? Do you pity our wretched state? Don't bother! We never asked for your sympathy! (To Tohru)"
+> "When you look back after a long life, you'll realize there's nothing that's really worth risking your life for."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Mackenzie Glen**](https://myanimelist.net/character.php?q=Mackenzie%20Glen&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
