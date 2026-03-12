@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're young. Time is on your side. You'll grow up and I'll grow old. Someday you'll likely beat me. It's only natural. Even the strongest man must die."
+> "I really don't know what I should believe in anymore... Even if I believe I'm doing the right thing... Nothing goes well at all."
 
-&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
