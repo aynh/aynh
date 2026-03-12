@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anyone may claim that he will act in the direst times, yet only a brave man acts in times great and small."
+> "Water is mysterious, isn't it?. It can become vapor. It can become snow. It may take various forms, but in reality - it's all water. Even if it's invisible to our eyes, it cannot disappear from this world."
 
-&mdash; [**Cloud Strife**](https://myanimelist.net/character.php?q=Cloud%20Strife&cat=character), [**Final Fantasy VII: Advent Children**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Advent%20Children&cat=all)
+&mdash; [**Saki**](https://myanimelist.net/character.php?q=Saki&cat=character), [**Steel Angel Kurumi**](https://myanimelist.net/search/all?q=Steel%20Angel%20Kurumi&cat=all)
