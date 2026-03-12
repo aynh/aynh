@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He feared sleep. He'd say that his soul would slip down into nothing. They say that man never dreamt after the day he cut his pillow."
+> "On the one hand, humans seek out new stimuli with insatiable desire. On the other, they're also odd creatures that value old and very rare things."
 
-&mdash; [**Ginko**](https://myanimelist.net/character.php?q=Ginko&cat=character), [**Mushishi**](https://myanimelist.net/search/all?q=Mushishi&cat=all)
+&mdash; [**Victorique de Blois**](https://myanimelist.net/character.php?q=Victorique%20de%20Blois&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
