@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look what I found! These are packue berries, known to cure the poison of the white jade plant... THAT, or makaoli berries that cause blindness."
+> "Death is the end of everything. Your past and future will be lost in an instant where there will be no second chance. However as long as you live there will be a chance of pulling a win."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kazuma Yagami**](https://myanimelist.net/character.php?q=Kazuma%20Yagami&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
