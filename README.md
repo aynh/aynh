@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you let the fly live, the spider is going to die. You can't save both without one suffering."
+> "Anyone may claim that he will act in the direst times, yet only a brave man acts in times great and small."
 
-&mdash; [**Millions Knives**](https://myanimelist.net/character.php?q=Millions%20Knives&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Cloud Strife**](https://myanimelist.net/character.php?q=Cloud%20Strife&cat=character), [**Final Fantasy VII: Advent Children**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Advent%20Children&cat=all)
