@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Did you not understand? All dreams eventually disappear when the dreamers wake."
+> "Do you know what's the most important thing about climbing mountains is? It's not about having the courage to challenge it, It's about having the courage to back down."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Nozomi Tōjō**](https://myanimelist.net/character.php?q=Nozomi%20T%C5%8Dj%C5%8D&cat=character), [**Love Live! School idol project**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project&cat=all)
