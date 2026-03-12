@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you look back after a long life, you'll realize there's nothing that's really worth risking your life for."
+> "Look what I found! These are packue berries, known to cure the poison of the white jade plant... THAT, or makaoli berries that cause blindness."
 
-&mdash; [**Mackenzie Glen**](https://myanimelist.net/character.php?q=Mackenzie%20Glen&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
