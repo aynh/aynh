@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "On the one hand, humans seek out new stimuli with insatiable desire. On the other, they're also odd creatures that value old and very rare things."
+> "Death is not friendly. It's dark, black where you look at it. You're all alone. But it's no different when you're alive, right? No matter how many relationships we seem to have, we're all alone."
 
-&mdash; [**Victorique de Blois**](https://myanimelist.net/character.php?q=Victorique%20de%20Blois&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
+&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
