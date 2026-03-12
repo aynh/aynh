@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Honest feelings can sometimes lead to cruel endings."
+> "People are like dice, a certain Frenchman said that. You throw yourself in the direction of your own choosing. People are free because they can do that. Everyone's circumstances are different, but no matter how small the choice, at the very least, you can throw yourself. It's not chance or fate. It's the choice you made."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Black Lagoon**](https://myanimelist.net/character.php?q=Black%20Lagoon&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
