@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mistakes are not shackles that halt one from stepping forward. Rather, they are that which sustain and grow one's heart."
+> "Even if you're made a fool of by someone, even if the future becomes so dark that you can't see what's in front of you, even if the place we get to is the very end of the world, you and I are still together."
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
