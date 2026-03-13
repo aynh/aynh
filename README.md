@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The longer you live... The more you realize that reality is just made of pain, suffering and emptiness..."
+> "Hey! It looks like now is a good time to do a little tail fishing!"
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
