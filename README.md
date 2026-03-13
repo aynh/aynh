@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no such thing as no such thing."
+> "Whose fault is it that things ended up like this? Coincidence? An accident? Fate? There's no such thing as fate. It's simply a combination of one circumstance and the next. And who is it that creates those circumstances? Who is it? It's you."
 
-&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Rize Kamishiro**](https://myanimelist.net/character.php?q=Rize%20Kamishiro&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
