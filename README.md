@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To himself, while fighting Temari* Oh man... those clouds are so lucky. so free. More to the point, I didn't feel like doing this in the first place. And I only became a ninja because I thought life would've been more interesting as one... I suppose things aren't gonna be that simple."
+> "I don't like the terms 'good person' or 'bad person' because it's impossible to be entirely good to everyone or entirely bad to everyone. To some, you are a good person, while to others, you are a bad person."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
