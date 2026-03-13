@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[aiming at a small prey animal] You're awfully cute, but unfortunately for you, you're made of meat."
+> "Humans are so... interesting."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
