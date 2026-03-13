@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey! It looks like now is a good time to do a little tail fishing!"
+> "It would be enough for the depressing things in life to only exist in reality. It is because that I think the birth of a story is from people dreaming of a happy ending."
 
-&mdash; [**Son Goku**](https://myanimelist.net/character.php?q=Son%20Goku&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Shiori Misaka**](https://myanimelist.net/character.php?q=Shiori%20Misaka&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
