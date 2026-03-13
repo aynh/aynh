@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are like dice, a certain Frenchman said that. You throw yourself in the direction of your own choosing. People are free because they can do that. Everyone's circumstances are different, but no matter how small the choice, at the very least, you can throw yourself. It's not chance or fate. It's the choice you made."
+> "Daunting and mistrusting others forever won’t accomplish anything."
 
-&mdash; [**Black Lagoon**](https://myanimelist.net/character.php?q=Black%20Lagoon&cat=character), [**Black Lagoon**](https://myanimelist.net/search/all?q=Black%20Lagoon&cat=all)
+&mdash; [**Teito Klein**](https://myanimelist.net/character.php?q=Teito%20Klein&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
