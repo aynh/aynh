@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are so... interesting."
+> "My obvious charms and god-like powers always dazzle the simple, ordinary folk."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Dark Schneider**](https://myanimelist.net/character.php?q=Dark%20Schneider&cat=character), [**Bastard**](https://myanimelist.net/search/all?q=Bastard&cat=all)
