@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My obvious charms and god-like powers always dazzle the simple, ordinary folk."
+> "Friends are nothing more than the people who you spend the fun, yet meaningless times with. When those times get rough, they aren't there to support you."
 
-&mdash; [**Dark Schneider**](https://myanimelist.net/character.php?q=Dark%20Schneider&cat=character), [**Bastard**](https://myanimelist.net/search/all?q=Bastard&cat=all)
+&mdash; [**Ryuuguu Rena**](https://myanimelist.net/character.php?q=Ryuuguu%20Rena&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
