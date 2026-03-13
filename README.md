@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It would be enough for the depressing things in life to only exist in reality. It is because that I think the birth of a story is from people dreaming of a happy ending."
+> "The coin is appreciated...but not as much as your smile."
 
-&mdash; [**Shiori Misaka**](https://myanimelist.net/character.php?q=Shiori%20Misaka&cat=character), [**Kanon**](https://myanimelist.net/search/all?q=Kanon&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
