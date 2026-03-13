@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I can get my target to move as I want, I've succeeded as a Hunter."
+> "The longer you live... The more you realize that reality is just made of pain, suffering and emptiness..."
 
-&mdash; [**Ging Freecss**](https://myanimelist.net/character.php?q=Ging%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
