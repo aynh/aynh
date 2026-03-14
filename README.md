@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Naked lady!"
+> "How can you say that you will never change? That you will not change, no matter how great the pain you face? Can you continue believing in yourself forever? Can you guarantee it? Can you have such faith in yourself?!"
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
