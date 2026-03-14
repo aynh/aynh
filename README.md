@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If reality is nothing more than what is in our mind, then what is the difference between this world and a dream?"
+> "Maybe, just maybe, there is no purpose in life... but if you linger a while longer in this world, you might discover something of value in it."
 
-&mdash; [**Yuca Collabell**](https://myanimelist.net/character.php?q=Yuca%20Collabell&cat=character), [**Immortal Rain**](https://myanimelist.net/search/all?q=Immortal%20Rain&cat=all)
+&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
