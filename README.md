@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you keep my secret, this strawberry is yours."
+> "Nothing interesting ever happens. It's the same everyday."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kei Takishima**](https://myanimelist.net/character.php?q=Kei%20Takishima&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
