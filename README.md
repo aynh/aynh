@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who continue to put their lives on the line to defend their faith become heroes and continue to exist on in legend."
+> "Looking back on the past is a dangerous thing. It's nothing more than an attachment."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Fukase**](https://myanimelist.net/character.php?q=Fukase&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
