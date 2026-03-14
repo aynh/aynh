@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Against the power of will I posses... The capability of my body is nothing."
+> "People who continue to put their lives on the line to defend their faith become heroes and continue to exist on in legend."
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
