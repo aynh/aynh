@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I felt like I was watching a dream I'd never wake up from. Before I knew it, the dream was all over."
+> "You must live life as long as you are still strong. Never look at your life as something insignificant."
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
