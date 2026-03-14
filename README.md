@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People... are not born equal. That's the hard truth I learned at age four. But that... was my first and last setback."
+> "If you hurt someone, you must be prepared to receive the same amount in return."
 
-&mdash; [**Midoriya Izuku**](https://myanimelist.net/character.php?q=Midoriya%20Izuku&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Mana Ouma**](https://myanimelist.net/character.php?q=Mana%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
