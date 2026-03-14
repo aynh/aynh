@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Treasure the experience. Dreams fade away after you wake up."
+> "Swords exists for just judging and killing. They can never save others."
 
-&mdash; [**Hitoha Miyamizu**](https://myanimelist.net/character.php?q=Hitoha%20Miyamizu&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
+&mdash; [**Kourin Shimizu**](https://myanimelist.net/character.php?q=Kourin%20Shimizu&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
