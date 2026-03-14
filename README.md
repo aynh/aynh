@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you hurt someone, you must be prepared to receive the same amount in return."
+> "Everything you've been taught is based on theories and logic. Soon, you'll come to realize how pointless they are."
 
-&mdash; [**Mana Ouma**](https://myanimelist.net/character.php?q=Mana%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Tomomi Masaoka**](https://myanimelist.net/character.php?q=Tomomi%20Masaoka&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
