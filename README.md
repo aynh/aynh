@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing interesting ever happens. It's the same everyday."
+> "Power is not will, it is the phenomenon of physically making things happen."
 
-&mdash; [**Kei Takishima**](https://myanimelist.net/character.php?q=Kei%20Takishima&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
