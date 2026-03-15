@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The double grief of a lost bliss is to recall its happy hour in pain."
+> "I've seen this before. This sensation... I get it now. This is what I wanted. No need to rely on or work with other people. I just want to drift through the water alone in silence."
 
-&mdash; [**Shuichiro Keido**](https://myanimelist.net/character.php?q=Shuichiro%20Keido&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Haruka Nanase**](https://myanimelist.net/character.php?q=Haruka%20Nanase&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
