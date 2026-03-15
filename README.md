@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What value does your will have? I asked you what price it carries. If money is enough, is your will for sale? A will that can be bought with money... what's the meaning of that? If your will can be bought with money... then it will vanish along with that money. Am I wrong?"
+> "The storyteller may fall silent, the music may cease, but the story will not end. Be it tragedy or comedy, as long as there is applause, the story will not end. It is just like the multitude of human lives. Warm blessings to we who were not rewarded, and we who are still on our way. Our travels continue on."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Fate/stay night**](https://myanimelist.net/character.php?q=Fate%2Fstay%20night&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
