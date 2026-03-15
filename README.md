@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You men. All of you, you're horrible. Cheating on every woman. But you, you I actually decided to trust. I put my faith in you. I can't believe this. I wish that all of you would just die!"
+> "A beautiful speech, I can see it now, you truly are a prince with the royal blood of a Saiyan."
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Android 17**](https://myanimelist.net/character.php?q=Android%2017&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
