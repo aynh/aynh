@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's arrogant to think just saying things out loud is enough. Self-gratifying on the part of the speaker, and conceited on the part of the listener. You won't always come to an understanding by talking things out."
+> "Profit could warm his coin purse, but never his back."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
