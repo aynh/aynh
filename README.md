@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don’t do something because you think you can’t do it, you’ll never be able to do anything in the future."
+> "It's arrogant to think just saying things out loud is enough. Self-gratifying on the part of the speaker, and conceited on the part of the listener. You won't always come to an understanding by talking things out."
 
-&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
