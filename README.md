@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An unforeseen situation... An unexpected turn of events... In the face of those, you too will face your true self."
+> "You men. All of you, you're horrible. Cheating on every woman. But you, you I actually decided to trust. I put my faith in you. I can't believe this. I wish that all of you would just die!"
 
-&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
