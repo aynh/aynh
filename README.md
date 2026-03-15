@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Power is not will, it is the phenomenon of physically making things happen."
+> "If something gets in the way of your job, get rid of it. That includes your feelings, your beliefs, and visions of that guy. [referring to Soichiro Kurebayashi]"
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Master Masuda**](https://myanimelist.net/character.php?q=Master%20Masuda&cat=character), [**Dengeki Daisy**](https://myanimelist.net/search/all?q=Dengeki%20Daisy&cat=all)
