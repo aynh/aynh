@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Profit could warm his coin purse, but never his back."
+> "I can't seem to get my head on straight."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
