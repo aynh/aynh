@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In order to accomplish something, first you had to believe in yourself that you could do it."
+> "You see, I'm sure we can change, because we're weak. And because we die. We have to fight in order to live, and that is what will make us strong."
 
-&mdash; [**Adlet Mayer**](https://myanimelist.net/character.php?q=Adlet%20Mayer&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
+&mdash; [**Trisha Elric**](https://myanimelist.net/character.php?q=Trisha%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
