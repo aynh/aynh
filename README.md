@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If something gets in the way of your job, get rid of it. That includes your feelings, your beliefs, and visions of that guy. [referring to Soichiro Kurebayashi]"
+> "It's our job as normal people to ensure the potential of those misunderstood ones are realized."
 
-&mdash; [**Master Masuda**](https://myanimelist.net/character.php?q=Master%20Masuda&cat=character), [**Dengeki Daisy**](https://myanimelist.net/search/all?q=Dengeki%20Daisy&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
