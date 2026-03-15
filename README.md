@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't seem to get my head on straight."
+> "An unforeseen situation... An unexpected turn of events... In the face of those, you too will face your true self."
 
-&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
