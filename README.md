@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's a limit to the strength of people who are isolated. If we do the best we can we should be fine. We don't grab a hold of the entire future. Let's just think about grabbing tomorrow. I think that's plenty for us, don't you?"
+> "The past is the past and the future is the future. A man is a man and a woman is a woman. The present is the present. I am who I am and you are who you are. That's all there is to it. Does it really matter? Or do we just think it does?"
 
-&mdash; [**Kouji Aiba**](https://myanimelist.net/character.php?q=Kouji%20Aiba&cat=character), [**Infinite Ryvius**](https://myanimelist.net/search/all?q=Infinite%20Ryvius&cat=all)
+&mdash; [**Faye Valentine**](https://myanimelist.net/character.php?q=Faye%20Valentine&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
