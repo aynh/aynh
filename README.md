@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've been through so many meetings and partings. They were like a heavy secret, but when I started to talk about them, they seemed to sparkle... I couldn't put them into words."
+> "If one side is putting all their efforts into killing a normal high school student and the other side is putting all their efforts into saving that normal high school student, which side do you want to be on? Which side could you proudly say you were on?"
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
