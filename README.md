@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Toboe] I wanted to take you to paradise."
+> "If you'll cower at the sight of the great foe before you, leave at once, coward. If you'll lose the strength you believed in, then fall to the ground, weakling."
 
-&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/character.php?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
