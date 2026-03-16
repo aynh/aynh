@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If one side is putting all their efforts into killing a normal high school student and the other side is putting all their efforts into saving that normal high school student, which side do you want to be on? Which side could you proudly say you were on?"
+> "There is more than one way to win a game. You can win without fighting!"
 
-&mdash; [**Mikoto Misaka**](https://myanimelist.net/character.php?q=Mikoto%20Misaka&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
