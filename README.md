@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We all have the right to choose our own future. We should be able to walk the paths that we choose, not the future youÂ´ve decided for us."
+> "When I say it doesn't hurt me, that means I can bear it."
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
