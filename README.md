@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not going to lose. No matter how hard it is, I'm not going to run away. Watch me use this hand and capture the future!"
+> "The wish of wanting everyone to be happy is merely a fairy tale!"
 
-&mdash; [**Yukari Hayasaka**](https://myanimelist.net/character.php?q=Yukari%20Hayasaka&cat=character), [**Paradise Kiss**](https://myanimelist.net/search/all?q=Paradise%20Kiss&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
