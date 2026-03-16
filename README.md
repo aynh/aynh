@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you can't move anymore, or your back gets bent out of shape, it doesn't matter! What matters is what's inside! Not what someone looks like, dammit!"
+> "I don’t put much trust in words like 'personality' or 'disposition' or 'character.' Those things all change depending on the situation. Looking at it in the long run, what changes people is what situations they get into. People put a lot of faith in consistency, but it’s something more superficial than most people think."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
