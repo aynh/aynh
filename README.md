@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Liars always say the same things. 'I'll believe in you. I'll protect you. I care about you.' I'll never believe that again... No one will ever protect me. I won't even think about it. I'll fight alone, live alone, and die alone. I know... I've felt it on my skin and in my body... That it's better not to believe in anyone than believe and be betrayed!"
+> "I was the only one who got an A ranking for the Public Safety Bureau. There were more than 500 students and I was the only one. So I thought that there must have been something that only I could do at the Bureau. If I went there, I thought I could find my purpose in life... I thought I'd be able to find out why I was born here and now!"
 
-&mdash; [**Fremy Speedraw**](https://myanimelist.net/character.php?q=Fremy%20Speedraw&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
+&mdash; [**Akane Tsunemori**](https://myanimelist.net/character.php?q=Akane%20Tsunemori&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
