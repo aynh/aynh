@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't be strong not because you can't throw away your weakness, but it's because you don't face your own weakness."
+> "That hot dog must've fried your brain!"
 
-&mdash; [**Kanoko Naedoko**](https://myanimelist.net/character.php?q=Kanoko%20Naedoko&cat=character), [**Warau Kanoko-sama**](https://myanimelist.net/search/all?q=Warau%20Kanoko-sama&cat=all)
+&mdash; [**Hige**](https://myanimelist.net/character.php?q=Hige&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
