@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The wish of wanting everyone to be happy is merely a fairy tale!"
+> "The city is changing. Our surroundings, and even ourselves. And then one day, just about everything will change…"
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
