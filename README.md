@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What kind of mad scientist worries about not getting enough vegetables?"
+> "There are walls that can't be broken through power alone. But if there is a power that can break through those walls, it is the power of feelings."
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
