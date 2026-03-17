@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are walls that can't be broken through power alone. But if there is a power that can break through those walls, it is the power of feelings."
+> "There are two types of lies: Lies that hurt, and lies that don't hurt."
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Itaru Hashida**](https://myanimelist.net/character.php?q=Itaru%20Hashida&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
