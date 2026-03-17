@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The''present' is a leaf floating on top of the river. It moves along with the flow from past to future."
+> "An unforeseen situation... An unexpected turn of events... In the face of those, you too will face your true self."
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
