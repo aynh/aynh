@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things I don't want to forget... Memories of time spent with friends. Memories of time spent with her alone. Memories are important. But there's something even more important... That's to continue making memories."
+> "There's no meaningful difference between a real and a virtual world. It's pointless to ask anyone who they really are. All you can do is accept and believe in them, because whoever they are in your mind, is their true identity."
 
-&mdash; [**Yūki Hase**](https://myanimelist.net/character.php?q=Y%C5%ABki%20Hase&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
