@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans always pursue things they can’t reach. Doesn’t it single-heartedly symbolize such yearnings?"
+> "The''present' is a leaf floating on top of the river. It moves along with the flow from past to future."
 
-&mdash; [**Legend of the Galactic Heroes**](https://myanimelist.net/character.php?q=Legend%20of%20the%20Galactic%20Heroes&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
