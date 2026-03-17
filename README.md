@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being the best decoy ever is as cool as being the ace."
+> "No matter what happens, you are still you...our family."
 
-&mdash; [**Tobio Kageyama**](https://myanimelist.net/character.php?q=Tobio%20Kageyama&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Kai Miyagusuku**](https://myanimelist.net/character.php?q=Kai%20Miyagusuku&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
