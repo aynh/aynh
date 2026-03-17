@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are two kinds of girls in this world. Lovely girls who can get along with me. And all the bitches who can't"
+> "(Zuko is standing before a huge portrait of Fire Lord Sozin)It's never too early for a sitting with the court painter, Zuko. (Sarcastically) Make sure he gets your good side."
 
-&mdash; [**Sena Kashiwazaki**](https://myanimelist.net/character.php?q=Sena%20Kashiwazaki&cat=character), [**Boku wa Tomodachi ga Sukunai NEXT**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai%20NEXT&cat=all)
+&mdash; [**Azula**](https://myanimelist.net/character.php?q=Azula&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
