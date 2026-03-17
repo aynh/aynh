@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how gifted you are... You, alone, cannot change the world."
+> "Listen up! Youth doesn't last all that long! These precious three years of your youth will zip by and you'll be left with nothing but regrets if you spend them running away in delusions and fantasies, so you have to make it clear whether you like someone or not!"
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Akira Fujieda**](https://myanimelist.net/character.php?q=Akira%20Fujieda&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
