@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There won't be any pain if you don't do anything stupid."
+> "Canaan is still alive. Her existence is shining so brightly. Too bright for the naked eyes to look at directly... I'm a bit scared, but I want to touch it. I want to touch her radiance."
 
-&mdash; [**Himeko Inaba**](https://myanimelist.net/character.php?q=Himeko%20Inaba&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Maria Oosawa**](https://myanimelist.net/character.php?q=Maria%20Oosawa&cat=character), [**CANAAN**](https://myanimelist.net/search/all?q=CANAAN&cat=all)
