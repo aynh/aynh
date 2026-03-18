@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Canaan is still alive. Her existence is shining so brightly. Too bright for the naked eyes to look at directly... I'm a bit scared, but I want to touch it. I want to touch her radiance."
+> "Poets say love can't be bought with money. Preachers say that there are things more important than money. So even though we work hard just to earn money, how can we obtain something more important than that?"
 
-&mdash; [**Maria Oosawa**](https://myanimelist.net/character.php?q=Maria%20Oosawa&cat=character), [**CANAAN**](https://myanimelist.net/search/all?q=CANAAN&cat=all)
+&mdash; [**Mark**](https://myanimelist.net/character.php?q=Mark&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
