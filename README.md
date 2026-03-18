@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are two kinds of arrogance. One where you are unequal to the task and one where your dreams are too big. The former is commonplace stupidity... but the latter is a rare species that is difficult to find."
+> "Embrace your dreams...and whatever happens, protect your honor...AS SOLDIER!"
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Zack Fair**](https://myanimelist.net/character.php?q=Zack%20Fair&cat=character), [**Final Fantasy VII: Crisis Core**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Crisis%20Core&cat=all)
