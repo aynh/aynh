@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Embrace your dreams...and whatever happens, protect your honor...AS SOLDIER!"
+> "You can't ever win if you're always on the defensive. To win, you have to attack!"
 
-&mdash; [**Zack Fair**](https://myanimelist.net/character.php?q=Zack%20Fair&cat=character), [**Final Fantasy VII: Crisis Core**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Crisis%20Core&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
