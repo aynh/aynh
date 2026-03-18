@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Poets say love can't be bought with money. Preachers say that there are things more important than money. So even though we work hard just to earn money, how can we obtain something more important than that?"
+> "If you run into a wall and pretend it doesn't exist, you'll never make progress. The wall will never change, so you're the one who has to change."
 
-&mdash; [**Mark**](https://myanimelist.net/character.php?q=Mark&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
