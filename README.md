@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Helping people has nothing to do with being royalty or nobility or whatever."
+> "Man seeks peace, yet at the same time yearning for war... Those are the two realms belonging solely to man. Thinking of peace whilst spilling blood is something that only humans could do. They're two sides of the same coin... to protect something... another must be sacrificed."
 
-&mdash; [**Luke Fon Fabre**](https://myanimelist.net/character.php?q=Luke%20Fon%20Fabre&cat=character), [**Tales of the Abyss**](https://myanimelist.net/search/all?q=Tales%20of%20the%20Abyss&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
