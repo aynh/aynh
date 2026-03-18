@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wanted to be a cat. I was jealous of them. They're liked by everyone... Even though they don't do anything at all. I just wanted everyone to like me."
+> "Do you know why you are making the mistake of sacrificing yourself? It’s because you’re weak. It’s because you can’t face reality."
 
-&mdash; [**Shiro**](https://myanimelist.net/character.php?q=Shiro&cat=character), [**Neko no Machi no Ko**](https://myanimelist.net/search/all?q=Neko%20no%20Machi%20no%20Ko&cat=all)
+&mdash; [**Otonashi Maria**](https://myanimelist.net/character.php?q=Otonashi%20Maria&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
