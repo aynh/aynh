@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you run into a wall and pretend it doesn't exist, you'll never make progress. The wall will never change, so you're the one who has to change."
+> "Being an actress is about satisfying people's need for fantasies...as an escape to reality. When someone is affected by the movie or drama; whether it be happiness or sadness; it is a great honor for us."
 
-&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Mita Ratsufu**](https://myanimelist.net/character.php?q=Mita%20Ratsufu&cat=character), [**Atrocious Fairy Tales for Adults**](https://myanimelist.net/search/all?q=Atrocious%20Fairy%20Tales%20for%20Adults&cat=all)
