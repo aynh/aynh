@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being an actress is about satisfying people's need for fantasies...as an escape to reality. When someone is affected by the movie or drama; whether it be happiness or sadness; it is a great honor for us."
+> "When a human is victorious is when they're most vulnerable."
 
-&mdash; [**Mita Ratsufu**](https://myanimelist.net/character.php?q=Mita%20Ratsufu&cat=character), [**Atrocious Fairy Tales for Adults**](https://myanimelist.net/search/all?q=Atrocious%20Fairy%20Tales%20for%20Adults&cat=all)
+&mdash; [**Toua Tokuchi**](https://myanimelist.net/character.php?q=Toua%20Tokuchi&cat=character), [**One Outs**](https://myanimelist.net/search/all?q=One%20Outs&cat=all)
