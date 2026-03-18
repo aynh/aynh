@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't ever win if you're always on the defensive. To win, you have to attack!"
+> "What do I have to live for now that I know Cain won't come back? You tell me that, Ed!"
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Winry Rockbell**](https://myanimelist.net/character.php?q=Winry%20Rockbell&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
