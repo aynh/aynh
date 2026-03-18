@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why are you looking for something when you can't even remember what it is?"
+> "There won't be any pain if you don't do anything stupid."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Himeko Inaba**](https://myanimelist.net/character.php?q=Himeko%20Inaba&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
