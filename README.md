@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know why you are making the mistake of sacrificing yourself? It’s because you’re weak. It’s because you can’t face reality."
+> "Expecting others to read your mind is delusional. But... But... I... I...'It's not empty words I'm after. There was something else I desired all along. Not mutual understanding, friendship, companionship, or anything of the sort. I don't care about being understood. I simply wish to understand. Understand, know, and rest easy in that knowledge-- gain some peace of mind. Wanting to know people inside-out because being in the dark terrifies me is an awfully self-indulgement, egoistic, and arrogant wish. It's downright despicable and disgusting. Having a desire like that makes me sick to the stomach! But if it's at all possible to share that desire-- if it's possible to have a relationship where you're free to burden one another with that repulsive self-gratification...I know that it's out of the question! I know that it's out of my reach! Even so!' Even so, I... I want something genuine."
 
-&mdash; [**Otonashi Maria**](https://myanimelist.net/character.php?q=Otonashi%20Maria&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
