@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An apple a day keeps any one away, if you throw it hard enough!"
+> "Look straight at the people you kill; don't take your eyes off them for a second. And don't ever forget them because they won't forget you."
 
-&mdash; [**Marie Mjolnir**](https://myanimelist.net/character.php?q=Marie%20Mjolnir&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
