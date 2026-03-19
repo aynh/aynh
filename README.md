@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*аfter a customer tells Tamaki she's afraid that her father will yell at her if she drinks this* What if I let you drink it from my mouth?"
+> "I only joined this war to avoid spilling rivers of blood. Fight for the Holy Grail, no meaningless bloodshed, minimize sacrifices, one person taking up the mission of fate instead of armies of men and competing here! This is what we Servants should do."
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
