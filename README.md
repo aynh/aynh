@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look straight at the people you kill; don't take your eyes off them for a second. And don't ever forget them because they won't forget you."
+> "Hatred will never be erased! The only thing you can do... is erase the ones you hate!"
 
-&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Ren Hakuryuu**](https://myanimelist.net/character.php?q=Ren%20Hakuryuu&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
