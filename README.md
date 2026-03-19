@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe I was lonely. Maybe I've just... always... been lonely."
+> "It is only through the eyes of others that our lives have any meaning."
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
