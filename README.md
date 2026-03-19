@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is only through the eyes of others that our lives have any meaning."
+> "No matter what the world, the god of that world creates the rules. In truth, you have been defeated by the rules I created. And as punishment for defying the God of the new world, you will die..."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
