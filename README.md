@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hatred will never be erased! The only thing you can do... is erase the ones you hate!"
+> "I started crying. It was the first time in my life that I felt forgiven. Like I was saved. Like the frozen snow that's melted by spring, the tears wouldn't stop."
 
-&mdash; [**Ren Hakuryuu**](https://myanimelist.net/character.php?q=Ren%20Hakuryuu&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
