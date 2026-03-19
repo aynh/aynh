@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You may have grown too strong. Drunk on your own power, you forgot to put yourself in the shoes of someone weaker than you. That makes you no different than the student in the main campus."
+> "Since then… I’ve started to think…about things with the worst case outcome first. By doing so, even if you did get hurt a little bit, it wouldn’t end up being a lasting wound."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
