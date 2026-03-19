@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To defeat evil, I shall become an even GREATER evil."
+> "Giving in to despair is a foolish choice."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Inaho Kaizuka**](https://myanimelist.net/character.php?q=Inaho%20Kaizuka&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
