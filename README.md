@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Girls are happier when they're the only one you're nice to."
+> "You may have grown too strong. Drunk on your own power, you forgot to put yourself in the shoes of someone weaker than you. That makes you no different than the student in the main campus."
 
-&mdash; [**Rory Mercury**](https://myanimelist.net/character.php?q=Rory%20Mercury&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
