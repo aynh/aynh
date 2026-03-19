@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I only joined this war to avoid spilling rivers of blood. Fight for the Holy Grail, no meaningless bloodshed, minimize sacrifices, one person taking up the mission of fate instead of armies of men and competing here! This is what we Servants should do."
+> "The fake is of far greater value. In its deliberate attempt to be real, it's more real than the real thing."
 
-&mdash; [**Saber**](https://myanimelist.net/character.php?q=Saber&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
