@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's share the fruit of fate."
+> "You are from a world Su will never understand."
 
-&mdash; [**Kanba Takakura**](https://myanimelist.net/character.php?q=Kanba%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Su**](https://myanimelist.net/character.php?q=Su&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
