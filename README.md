@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Giving in to despair is a foolish choice."
+> "Let's share the fruit of fate."
 
-&mdash; [**Inaho Kaizuka**](https://myanimelist.net/character.php?q=Inaho%20Kaizuka&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
+&mdash; [**Kanba Takakura**](https://myanimelist.net/character.php?q=Kanba%20Takakura&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
