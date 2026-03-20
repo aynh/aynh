@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I won't be defeated because I know how awful it feels to lose after doing my very best!"
+> "Even the strongest of opponents always has a weakness."
 
-&mdash; [**Shō Kazamatsuri**](https://myanimelist.net/character.php?q=Sh%C5%8D%20Kazamatsuri&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
