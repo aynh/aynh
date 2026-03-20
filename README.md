@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even the strongest of opponents always has a weakness."
+> "Learn to treasure your life because unfortunately, it can be taken away from you anytime."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
