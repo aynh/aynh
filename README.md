@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In every time, in every world, the strong polish their fangs while the weak polish their wisdom."
+> "No matter how careful your risk hedging is, there will still be holes in your plan! Realizing them and making sure that they are promptly dealt with, is the duty of those who stand at the top."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Reiji Akaba**](https://myanimelist.net/character.php?q=Reiji%20Akaba&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
