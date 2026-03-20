@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if we are far apart. We'll always be united by tennis."
+> "'Slacking off' sounds bad. However, enjoying more of your day with the time you saved by doing your job in a clever way is definitely not a bad thing. Times like that are what makes a human's life rich. If you exaggerate, it could be called laziness, surely. However, people only become mature when they are able to balance work with enjoyment. In short, if all you care about is your job, you're not fully mature."
 
-&mdash; [**Fuji Shuusuke**](https://myanimelist.net/character.php?q=Fuji%20Shuusuke&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Gaap**](https://myanimelist.net/character.php?q=Gaap&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
