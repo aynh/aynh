@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who don't work hard don't have the right to be envious of the people with talent. People fail because they don't understand the hard work necessary to be successful."
+> "The closest thing to being cared for is to care for someone else."
 
-&mdash; [**Yukino Yukinoshita**](https://myanimelist.net/character.php?q=Yukino%20Yukinoshita&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Kotori Itsuka**](https://myanimelist.net/character.php?q=Kotori%20Itsuka&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
