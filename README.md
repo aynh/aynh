@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how careful your risk hedging is, there will still be holes in your plan! Realizing them and making sure that they are promptly dealt with, is the duty of those who stand at the top."
+> "Regardless if you see them or not, if you don't believe, then it's like they never existed."
 
-&mdash; [**Reiji Akaba**](https://myanimelist.net/character.php?q=Reiji%20Akaba&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
+&mdash; [**Kurosaki Karin**](https://myanimelist.net/character.php?q=Kurosaki%20Karin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
