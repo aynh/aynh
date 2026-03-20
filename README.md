@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is your drill for?"
+> "Surely there must be limits to which one may sink."
 
-&mdash; [**Kamina**](https://myanimelist.net/character.php?q=Kamina&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
