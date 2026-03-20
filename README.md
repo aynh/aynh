@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right now, I'm letting you live. And I'll continue to keep you alive... until you've grown enough to become worth killing."
+> "In every time, in every world, the strong polish their fangs while the weak polish their wisdom."
 
-&mdash; [**Hisoka**](https://myanimelist.net/character.php?q=Hisoka&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
