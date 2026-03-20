@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The prince's ice cream - it's an indirect kiss!"
+> "Even if we are far apart. We'll always be united by tennis."
 
-&mdash; [**Su**](https://myanimelist.net/character.php?q=Su&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Fuji Shuusuke**](https://myanimelist.net/character.php?q=Fuji%20Shuusuke&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
