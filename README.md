@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The closest thing to being cared for is to care for someone else."
+> "Right now, I'm letting you live. And I'll continue to keep you alive... until you've grown enough to become worth killing."
 
-&mdash; [**Kotori Itsuka**](https://myanimelist.net/character.php?q=Kotori%20Itsuka&cat=character), [**Date A Live**](https://myanimelist.net/search/all?q=Date%20A%20Live&cat=all)
+&mdash; [**Hisoka**](https://myanimelist.net/character.php?q=Hisoka&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
