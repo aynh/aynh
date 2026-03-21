@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only those who do their jobs on the battlefield get the rewards they desire. That's the life of a warrior."
+> "The past and the future are not the same, but they're not completely separate either."
 
-&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
