@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who decides limits? And based on what? You said you worked hard? Well, maybe you need to work a little harder. Is that really the limit of your strength? Could the you of tomorrow beat you today? Instead of giving in, move forward."
+> "If I'm not at my limit, means I'm not trying as hard as I can!"
 
-&mdash; [**Saitama**](https://myanimelist.net/character.php?q=Saitama&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Naru**](https://myanimelist.net/character.php?q=Naru&cat=character), [**Girl Friends**](https://myanimelist.net/search/all?q=Girl%20Friends&cat=all)
