@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[looking at a porno magazine] Geez, doing it with a squid."
+> "There is always a chance of success, and if there isn't any, I'll just have to make one."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
