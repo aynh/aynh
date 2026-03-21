@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not over yet. If we don't end it, nothing can start. Even if nothing at all begins, we must still put an end to it."
+> "No, but I can learn. I'll bathe in blood. If that's what it takes to protect my friends, I'll take it. All the hatred, the disease. I'll take it as my own and end it."
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Shū Ouma**](https://myanimelist.net/character.php?q=Sh%C5%AB%20Ouma&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
