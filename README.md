@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So stupid! Stupid, Stupid! You're so stupid! You want to live your life scared of being ratted out?! Screw that! I'd rather let everyone know everything!! (to Yuki, Tohru, Kyo, and Momiji while destroying a classroom)"
+> "I'm as normal as they come and this is a contest of freaks! What do you want me to do, shoot my slingshot at him?"
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
