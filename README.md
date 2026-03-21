@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Perfection is a fairly nonexistent thing. If you couldn’t do it, it was probably impossible for anybody else, too."
+> "It's not over yet. If we don't end it, nothing can start. Even if nothing at all begins, we must still put an end to it."
 
-&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
