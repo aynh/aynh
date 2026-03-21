@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[thinking as Nel tells her to cheer for Ichigo] That's right. To begin with, I came here just thinking I wanted to protect everyone. But when I heard they had come to save me, I couldn't help but feel a little glad, just a bit in my heart. When I look at Kurosaki-kun in that mask, I think that he might not have come here to save me at all. Even though it's wrong, they shouldn't be going that far for me."
+> "*while stomping on Inuyasha* Lay down, be silent, sleep, rest, sleep... how many times do I have to tell you..."
 
-&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
