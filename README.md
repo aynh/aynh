@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Donato has to keep proving himself. He wants to prove just how valuable he is. Isn't that the case with you as well? Because you are the same as Donato. All you're doing is indulging in this twisted self-value that you have to yourself. And if you don't, you won't last. Eventually, you will break and become useless. Once that happens, you'll break and become discarded."
+> "Number 58 of the 1,000 provisions I would like you to observe, never talk to me while I'm humming to myself. This is an important provision do you understand?"
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul:re**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3Are&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
