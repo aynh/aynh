@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Care to little, you lose them. Care too much, you get hurt."
+> "Only those who do their jobs on the battlefield get the rewards they desire. That's the life of a warrior."
 
-&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
