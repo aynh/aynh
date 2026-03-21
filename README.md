@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Girls could never understand the passionate bonds that we men share. Male friendship is a bond that runs thicker than blood!"
+> "If you're friends with everyone, you become a popular guy in return; but then, you wouldn't have a place where you can be who you truly are."
 
-&mdash; [**Kiyotaka Ishimaru**](https://myanimelist.net/character.php?q=Kiyotaka%20Ishimaru&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Shin Meguro**](https://myanimelist.net/character.php?q=Shin%20Meguro&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
