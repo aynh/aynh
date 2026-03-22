@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being a detective isn't about bringing someone down, but rather protecting someone."
+> "Every individual human affects the surrounding environment. But humans do not exist for the things and people around them. Often, they mistakenly think that they wish to exist for the sake of others, or to help everyone. They can not accept that they don't know why they exist, yes? They always want an answer. That is the nature of the animals called 'humans'."
 
-&mdash; [**Kougami Shinya**](https://myanimelist.net/character.php?q=Kougami%20Shinya&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Magata Shiki**](https://myanimelist.net/character.php?q=Magata%20Shiki&cat=character), [**Subete ga F ni Naru**](https://myanimelist.net/search/all?q=Subete%20ga%20F%20ni%20Naru&cat=all)
