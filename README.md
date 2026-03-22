@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Come on. I don't like this trend of explaining anything and everything about my love life. It's impossible."
+> "I believe being an author is a lonely line of work that asks you to pass through a narrow gate alone."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Kanako Sakurai**](https://myanimelist.net/character.php?q=Kanako%20Sakurai&cat=character), [**Bungaku Shoujo**](https://myanimelist.net/search/all?q=Bungaku%20Shoujo&cat=all)
