@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everybody loves somebody. In time, everybody falls in love with somebody. Just as I found you."
+> "Being a detective isn't about bringing someone down, but rather protecting someone."
 
-&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
+&mdash; [**Kougami Shinya**](https://myanimelist.net/character.php?q=Kougami%20Shinya&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
