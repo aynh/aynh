@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In order to escape a road of solitude, one has to work hard, and forge a new path with their own power."
+> "Lend me 100 yen since I'm beautiful."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Aisa Himegami**](https://myanimelist.net/character.php?q=Aisa%20Himegami&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
