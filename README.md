@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weak can never break out of their own mold. They cry piteously within their cells, while they try to kick down anyone who strives to break free."
+> "Yesterday my mouth tasted like mud. Now it tastes like sand. I never thought I would miss the taste of mud so much."
 
-&mdash; [**Moral**](https://myanimelist.net/character.php?q=Moral&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
