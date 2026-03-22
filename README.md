@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Lend me 100 yen since I'm beautiful."
+> "The weak can never break out of their own mold. They cry piteously within their cells, while they try to kick down anyone who strives to break free."
 
-&mdash; [**Aisa Himegami**](https://myanimelist.net/character.php?q=Aisa%20Himegami&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Moral**](https://myanimelist.net/character.php?q=Moral&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
