@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's best to go up against strong guys, if you want to get stronger."
+> "In order to escape a road of solitude, one has to work hard, and forge a new path with their own power."
 
-&mdash; [**Shōyō Hinata**](https://myanimelist.net/character.php?q=Sh%C5%8Dy%C5%8D%20Hinata&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
+&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
