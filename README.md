@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's human nature to judge by appearance. It's not just males who are superficial. No one bothers about things they cannot see... like the heart."
+> "If you have enough breath to say you don't have energy, I haven't push you far enough!"
 
-&mdash; [**Yuzuru Shino**](https://myanimelist.net/character.php?q=Yuzuru%20Shino&cat=character), [**Seven Days**](https://myanimelist.net/search/all?q=Seven%20Days&cat=all)
+&mdash; [**Barbara**](https://myanimelist.net/character.php?q=Barbara&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
