@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is so painful when you lose someone you love ...To the point where your hair turns white because of grief."
+> "If you're going to dig, dig to pierce the heavens. Even if it's my grave I'm digging, I'll keep going! When I break through, that means I've WON! Who the hell do you think I am? I'm Simon. I'm not my bro, Kamina. I'm ME! Simon the Digger!"
 
-&mdash; [**Astharoshe Asran**](https://myanimelist.net/character.php?q=Astharoshe%20Asran&cat=character), [**Trinity Blood**](https://myanimelist.net/search/all?q=Trinity%20Blood&cat=all)
+&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
