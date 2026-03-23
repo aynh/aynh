@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're going to dig, dig to pierce the heavens. Even if it's my grave I'm digging, I'll keep going! When I break through, that means I've WON! Who the hell do you think I am? I'm Simon. I'm not my bro, Kamina. I'm ME! Simon the Digger!"
+> "Rule breakers should be punished. If you go easy on them, they'll think explaining their circumstances will get them forgiven, and the same thing will only happen again."
 
-&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
+&mdash; [**Myouri Unzen**](https://myanimelist.net/character.php?q=Myouri%20Unzen&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
