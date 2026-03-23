@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Clouds... come here. Drops... fall here. Drive out the flames... tell him... that despite all of this... the world is still beautiful."
+> "Chicks dig guys in black."
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Haji**](https://myanimelist.net/character.php?q=Haji&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
