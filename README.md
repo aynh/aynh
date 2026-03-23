@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're ever lost in the darkness, follow the compass in your heart."
+> "Let´s see how many people you can kill with the power of love."
 
-&mdash; [**Kayo Senju**](https://myanimelist.net/character.php?q=Kayo%20Senju&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
