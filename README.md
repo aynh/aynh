@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you believe in your dreams, I will prove to you, that you can achieve your dreams just by working hard."
+> "It is so painful when you lose someone you love ...To the point where your hair turns white because of grief."
 
-&mdash; [**Rock Lee**](https://myanimelist.net/character.php?q=Rock%20Lee&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Astharoshe Asran**](https://myanimelist.net/character.php?q=Astharoshe%20Asran&cat=character), [**Trinity Blood**](https://myanimelist.net/search/all?q=Trinity%20Blood&cat=all)
