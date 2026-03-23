@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[thinking] If I'm still sane by the time I finish their training it'll be a miracle!"
+> "If you believe in your dreams, I will prove to you, that you can achieve your dreams just by working hard."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Rock Lee**](https://myanimelist.net/character.php?q=Rock%20Lee&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
