@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No choice, then. Before you become intoxicated by your own power, I shall show you a decisive power gap that you could not overcome in a millennium of struggle."
+> "Impossible, right? Compared to the enemy we're facing, you and I are the same, no more than dots! What's the point in comparing our heights? That is what makes this exciting! The smallest, the weakest - it doesn't matter! I should still wish to go and take over the world, with nothing more than my tiny dot of a body! Within my chest, beats the heart of the King of Conquerors!"
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
