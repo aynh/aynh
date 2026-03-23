@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I really liked him I should hope for his happiness. But like you said in the car, I actually hoped they would break up."
+> "There is no heaven or hell. No matter what you do while you're alive, everybody goes to the same place once you die. Death is Equal."
 
-&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
