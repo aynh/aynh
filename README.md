@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Chicks dig guys in black."
+> "Pain is the way to bring peace."
 
-&mdash; [**Haji**](https://myanimelist.net/character.php?q=Haji&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
