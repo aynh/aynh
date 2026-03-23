@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Better to ask and be a fool once than never to ask and be a fool forever."
+> "Up, up! Down, down! Left, right, left, right! Bringing the motherfucking death by Konami! Ahh I'm so fucking hard right now! [laughs]"
 
-&mdash; [**Yumi Iguchi**](https://myanimelist.net/character.php?q=Yumi%20Iguchi&cat=character), [**Shirobako**](https://myanimelist.net/search/all?q=Shirobako&cat=all)
+&mdash; [**Jan Valentine**](https://myanimelist.net/character.php?q=Jan%20Valentine&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
