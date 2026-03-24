@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the limited time we have between our births and our deaths, we live life with everything we've got."
+> "I will defeat him. It may cost my life to do it. However, if I survive, I'll make a promise. The same promise as that time, on the same thing as that time."
 
-&mdash; [**Ushiromiya Battler**](https://myanimelist.net/character.php?q=Ushiromiya%20Battler&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
