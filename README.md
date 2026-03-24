@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to Orochimaru* I am not his pawn..! He is the one, the only one who ever gave my life meaning!! But how could the likes of you EVER UNDERSTAND THAT?!?"
+> "You kids don't understand anything! By declaring that you're neutral and have nothing to do with this, you can still distance yourselves from what's happening? You don't really believe that, do you?"
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Murrue Ramius**](https://myanimelist.net/character.php?q=Murrue%20Ramius&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
