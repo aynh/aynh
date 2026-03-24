@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once a person is ready to die, anything is possible."
+> "Sorry, a trick is nothing but a puzzle mankind came up with. If you use your head, you can uncover the logical answer. It’s disappointing. No matter the explanation I think of, I cannot understand why one person would kill another. Even if I can see why, I can’t understand why."
 
-&mdash; [**Shimada Minami**](https://myanimelist.net/character.php?q=Shimada%20Minami&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
