@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you scared? I understand. The first time I saw my reflection in the mirror, even I was frightened by how BIG my reflection was."
+> "If I can't even manage a polite smile, I'll be in trouble in the real world."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
