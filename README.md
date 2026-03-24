@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Herself* Hah. You know you're happy about it. Is she worried about me... because of the new virus going around? I figured she only ever had games and anime on her mind. I'm a little touched."
+> "In the limited time we have between our births and our deaths, we live life with everything we've got."
 
-&mdash; [**Kagami Hiiragi**](https://myanimelist.net/character.php?q=Kagami%20Hiiragi&cat=character), [**Lucky Star**](https://myanimelist.net/search/all?q=Lucky%20Star&cat=all)
+&mdash; [**Ushiromiya Battler**](https://myanimelist.net/character.php?q=Ushiromiya%20Battler&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
