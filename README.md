@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In some ways, the more one thinks, the closer one feels to getting the answer...but in the end, it's hard to tell what is really the safe answer. I started to dislike being like that at one point, and my motto is, 'make quick decisions and act fast.' I choose the first answer that feels 'right' to me."
+> "Damn that sister of mine! She's always talking about our father, but what did that baldy ever do for us?! He just played Othello with us from time to time!"
 
-&mdash; [**Shirasagi Yuki**](https://myanimelist.net/character.php?q=Shirasagi%20Yuki&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
+&mdash; [**Shimura Shinpachi**](https://myanimelist.net/character.php?q=Shimura%20Shinpachi&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
