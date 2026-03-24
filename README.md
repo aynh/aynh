@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm sure that the boy I killed, who shared that skill, must also have grown up knowing the pain of which I speak. We are special. We are powerful. And we are feared."
+> "The longer you keep a secret, the harder it becomes to say it."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Taishi Ichimiya**](https://myanimelist.net/character.php?q=Taishi%20Ichimiya&cat=character), [**Servant X Service**](https://myanimelist.net/search/all?q=Servant%20X%20Service&cat=all)
