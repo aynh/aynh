@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry, a trick is nothing but a puzzle mankind came up with. If you use your head, you can uncover the logical answer. It’s disappointing. No matter the explanation I think of, I cannot understand why one person would kill another. Even if I can see why, I can’t understand why."
+> "Even if it's a rule... whether or not I follow it is up to me. Whether I obey the rule or break it and get killed by my comrades... is my choice."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
