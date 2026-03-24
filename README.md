@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The longer you keep a secret, the harder it becomes to say it."
+> "Are you scared? I understand. The first time I saw my reflection in the mirror, even I was frightened by how BIG my reflection was."
 
-&mdash; [**Taishi Ichimiya**](https://myanimelist.net/character.php?q=Taishi%20Ichimiya&cat=character), [**Servant X Service**](https://myanimelist.net/search/all?q=Servant%20X%20Service&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
