@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Man seeks peace, yet at the same time yearning for war... Those are the two realms belonging solely to man. Thinking of peace whilst spilling blood is something that only humans could do. They're two sides of the same coin... to protect something... another must be sacrificed."
+> "Don't mess with things that don't exist! It's dangerous!"
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Teshigawara Naoya**](https://myanimelist.net/character.php?q=Teshigawara%20Naoya&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
