@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "On this earth, there are lots of difficult and painful things. I want to fly away and escape from it all. I want to flap my wings freely."
+> "There is nothing more expensive than something free."
 
-&mdash; [**Noe Isurugi**](https://myanimelist.net/character.php?q=Noe%20Isurugi&cat=character), [**True Tears**](https://myanimelist.net/search/all?q=True%20Tears&cat=all)
+&mdash; [**Maki Honoka**](https://myanimelist.net/character.php?q=Maki%20Honoka&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
