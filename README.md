@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never ask them to trust me at all. I told them to come with me but I never told them to trust me. And I always tell them not to trust anyone, including myself. But sadly, there are not many strong enough to do that."
+> "You need someone else to become more disciplined. No matter how hard you try by yourself, there´s a limit."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ukai Keishin**](https://myanimelist.net/character.php?q=Ukai%20Keishin&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
