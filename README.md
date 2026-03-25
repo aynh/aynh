@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life eventually ends. But that doesn't mean that the fact that we met, or the time we spent together will disappear."
+> "On this earth, there are lots of difficult and painful things. I want to fly away and escape from it all. I want to flap my wings freely."
 
-&mdash; [**Mei**](https://myanimelist.net/character.php?q=Mei&cat=character), [**Arashi no Yoru ni**](https://myanimelist.net/search/all?q=Arashi%20no%20Yoru%20ni&cat=all)
+&mdash; [**Noe Isurugi**](https://myanimelist.net/character.php?q=Noe%20Isurugi&cat=character), [**True Tears**](https://myanimelist.net/search/all?q=True%20Tears&cat=all)
