@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People live to save themselves."
+> "I never ask them to trust me at all. I told them to come with me but I never told them to trust me. And I always tell them not to trust anyone, including myself. But sadly, there are not many strong enough to do that."
 
-&mdash; [**Sakunosuke Oda**](https://myanimelist.net/character.php?q=Sakunosuke%20Oda&cat=character), [**Bungou Stray Dogs**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
