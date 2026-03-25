@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if they were mistakes, all you have to do is keep walking down that mistaken path. Simply assume that nothing lies before you except mistaken paths. Just so you know, the 'right' path can be surprisingly dull. There are times when it's right to take the mistaken path. The moment you decide a path is right, all of the paths behind it become right, regardless of what it originally was."
+> "It must be the way you look, Vash the Stampede. Your very existence seems to cause me undue irritation."
 
-&mdash; [**Tsuyoto Hiiragi**](https://myanimelist.net/character.php?q=Tsuyoto%20Hiiragi&cat=character), [**Shōnen Hollywood - Holly Stage for 49**](https://myanimelist.net/search/all?q=Sh%C5%8Dnen%20Hollywood%20-%20Holly%20Stage%20for%2049&cat=all)
+&mdash; [**Legato Bluesummers**](https://myanimelist.net/character.php?q=Legato%20Bluesummers&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
