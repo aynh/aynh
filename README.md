@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*after seeing Grevil's unicorn hairstyle for the first time* I've never seen such a creative hairstyle!"
+> "Mere scores do not measure a person’s worth."
 
-&mdash; [**Kazuya Kujō**](https://myanimelist.net/character.php?q=Kazuya%20Kuj%C5%8D&cat=character), [**Gosick**](https://myanimelist.net/search/all?q=Gosick&cat=all)
+&mdash; [**Aoi Yamada**](https://myanimelist.net/character.php?q=Aoi%20Yamada&cat=character), [**Working!!**](https://myanimelist.net/search/all?q=Working!!&cat=all)
