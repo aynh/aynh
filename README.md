@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't mess with things that don't exist! It's dangerous!"
+> "You have a swimsuit tan. You could jump in the pool naked and no one would know you weren't wearing anything."
 
-&mdash; [**Teshigawara Naoya**](https://myanimelist.net/character.php?q=Teshigawara%20Naoya&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Ayumu Kasuga**](https://myanimelist.net/character.php?q=Ayumu%20Kasuga&cat=character), [**Azumanga Daioh**](https://myanimelist.net/search/all?q=Azumanga%20Daioh&cat=all)
