@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have a swimsuit tan. You could jump in the pool naked and no one would know you weren't wearing anything."
+> "Once you find out whom you made the promise to, will you really be able to fall in love with her?"
 
-&mdash; [**Ayumu Kasuga**](https://myanimelist.net/character.php?q=Ayumu%20Kasuga&cat=character), [**Azumanga Daioh**](https://myanimelist.net/search/all?q=Azumanga%20Daioh&cat=all)
+&mdash; [**Kanakura Yui**](https://myanimelist.net/character.php?q=Kanakura%20Yui&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
