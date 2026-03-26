@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pride is an eminent trait, but too much will cause arrogance. That is when it becomes disgusting."
+> "If you're helping someone and expecting something in return, you're doing business not kindness."
 
-&mdash; [**Duke Tōgō**](https://myanimelist.net/character.php?q=Duke%20T%C5%8Dg%C5%8D&cat=character), [**Golgo 13**](https://myanimelist.net/search/all?q=Golgo%2013&cat=all)
+&mdash; [**Shirayuki**](https://myanimelist.net/character.php?q=Shirayuki&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
