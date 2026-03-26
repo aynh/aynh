@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you find out whom you made the promise to, will you really be able to fall in love with her?"
+> "In the avatar state... You're at your most powerful, but you're also...at your most vulnerable. If you're killed in the avatar state, the reincarnation cycle will be broken and the avatar will cease to exist."
 
-&mdash; [**Kanakura Yui**](https://myanimelist.net/character.php?q=Kanakura%20Yui&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Roku**](https://myanimelist.net/character.php?q=Roku&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
