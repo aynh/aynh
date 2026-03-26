@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times where we cannot stand without the support of others."
+> "What I want isn't money or pretty dresses, but a place that recognizes me as who I am. Fairy Tail is my other family, and it is a far more warming family than here!"
 
-&mdash; [**Kirijou Mitsuru**](https://myanimelist.net/character.php?q=Kirijou%20Mitsuru&cat=character), [**Persona 3**](https://myanimelist.net/search/all?q=Persona%203&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
