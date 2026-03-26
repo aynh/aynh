@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When humans are faced with truly terrifying circumstances, they don't think about other people around them. They're even willing to sacrifice those around themselves. By exposing that unsightly part of them, they can no longer get along."
+> "This little girl, who's not even half my size... taught me that tears can flow even from these silver eyes."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
