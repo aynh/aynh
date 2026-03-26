@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the avatar state... You're at your most powerful, but you're also...at your most vulnerable. If you're killed in the avatar state, the reincarnation cycle will be broken and the avatar will cease to exist."
+> "Even if I can't see you... No matter how far away you may be... I will always be watching you."
 
-&mdash; [**Roku**](https://myanimelist.net/character.php?q=Roku&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
