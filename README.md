@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Skipping school for one day might not be a problem, but if you skip for three days in a row, it'd be really hard to convince yourself to go back."
+> "This scheme of yours is beneath me.  Should it fail, Jaken, you will die."
 
-&mdash; [**Ushiromiya Ange**](https://myanimelist.net/character.php?q=Ushiromiya%20Ange&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Sesshomaru**](https://myanimelist.net/character.php?q=Sesshomaru&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
