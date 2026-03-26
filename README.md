@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're helping someone and expecting something in return, you're doing business not kindness."
+> "Love for the dead is pointless. We fight to keep them alive, that is all."
 
-&mdash; [**Shirayuki**](https://myanimelist.net/character.php?q=Shirayuki&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
+&mdash; [**Olivier Mira Armstrong**](https://myanimelist.net/character.php?q=Olivier%20Mira%20Armstrong&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
