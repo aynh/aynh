@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Matsu, you said that people and fireworks bloom like beautiful flowers for an instant and then fade away. That may be true, but Matsu, even if it's only for a moment, I want you to bloom by my side and when you fade away... do so at my side. In return, I will... make beautiful flowers bloom by your side again and again."
+> "Childish ideals pale when placed before reality."
 
-&mdash; [**Matsu's Husband**](https://myanimelist.net/character.php?q=Matsu's%20Husband&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Citan Uzuki**](https://myanimelist.net/character.php?q=Citan%20Uzuki&cat=character), [**Xenogears**](https://myanimelist.net/search/all?q=Xenogears&cat=all)
