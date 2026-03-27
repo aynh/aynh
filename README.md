@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah Kid you're not garbage. If you were garbage you would smell a lot worse so why don't we just get up and try again okay?"
+> "There's no lack of painful things in this world, but hunger and loneliness must surely be two of the worst. Thanks to you, I didn't know a moment of either of them."
 
-&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sakae Jinnouchi**](https://myanimelist.net/character.php?q=Sakae%20Jinnouchi&cat=character), [**Summer Wars**](https://myanimelist.net/search/all?q=Summer%20Wars&cat=all)
