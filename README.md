@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unwavering Faith and Resilient Bonds will bring even miracles to your side."
+> "It's not the goodbyes that hurt, it's the flashbacks that follow..."
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
