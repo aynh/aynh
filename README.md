@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not the goodbyes that hurt, it's the flashbacks that follow..."
+> "Living this way is my way of getting revenge!! I'm going to be living proof that your fate isn't decided at birth!! So what about you?! You're going to kill yourself, the ultimate act of submission. Is that how much you want to please the people who treated you like a nuisance?! Why are you trying to hurt yourself?! If your will is that strong... Then shouldn't you be able to change your fate?!"
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
