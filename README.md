@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Childish ideals pale when placed before reality."
+> "Our world is like a terminal cancer. Saying you'll change things through individual will is rambling of a peace-loving fool."
 
-&mdash; [**Citan Uzuki**](https://myanimelist.net/character.php?q=Citan%20Uzuki&cat=character), [**Xenogears**](https://myanimelist.net/search/all?q=Xenogears&cat=all)
+&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
