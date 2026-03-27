@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no lack of painful things in this world, but hunger and loneliness must surely be two of the worst. Thanks to you, I didn't know a moment of either of them."
+> "A faint clap of thunder, clouded skies; perhaps rain comes. If so, will you stay here with me?"
 
-&mdash; [**Sakae Jinnouchi**](https://myanimelist.net/character.php?q=Sakae%20Jinnouchi&cat=character), [**Summer Wars**](https://myanimelist.net/search/all?q=Summer%20Wars&cat=all)
+&mdash; [**Yukari Yukino**](https://myanimelist.net/character.php?q=Yukari%20Yukino&cat=character), [**The Garden of Words**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Words&cat=all)
