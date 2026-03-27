@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Giving people what they want only results in temporary delight, and that you can only make a select few people happy that way."
+> "I make my own decisions, and see them to the very end. I had to find my resolve, so I could remain true to myself."
 
-&mdash; [**Otonashi Aya**](https://myanimelist.net/character.php?q=Otonashi%20Aya&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Saya Kisaragi**](https://myanimelist.net/character.php?q=Saya%20Kisaragi&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
