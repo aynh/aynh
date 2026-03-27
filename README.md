@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, I really can't stand it when guys pick on people weaker than them...but I guess I'll do it to you anyway!"
+> "There are times when you have to give up on one thing to preserve the other. Your mother couldn't. That isn't kindness. That's just being weak."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Rize Kamishiro**](https://myanimelist.net/character.php?q=Rize%20Kamishiro&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
