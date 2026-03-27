@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A faint clap of thunder, clouded skies; perhaps rain comes. If so, will you stay here with me?"
+> "What are you waiting for, your balls to drop?"
 
-&mdash; [**Yukari Yukino**](https://myanimelist.net/character.php?q=Yukari%20Yukino&cat=character), [**The Garden of Words**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Words&cat=all)
+&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
