@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen here. Don't say you can't. Words bind you the minute you say them. Believe in yourself! You can do anything!"
+> "Unwavering Faith and Resilient Bonds will bring even miracles to your side."
 
-&mdash; [**Tenka Kumō**](https://myanimelist.net/character.php?q=Tenka%20Kum%C5%8D&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
+&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
