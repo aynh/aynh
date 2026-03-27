@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm no one. I don't want to be anyone. All I care about is completing the moon's eye plan. This world is completely worthless. There is nothing left in it but misery."
+> "Listen here. Don't say you can't. Words bind you the minute you say them. Believe in yourself! You can do anything!"
 
-&mdash; [**Obito Uchiha**](https://myanimelist.net/character.php?q=Obito%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Tenka Kumō**](https://myanimelist.net/character.php?q=Tenka%20Kum%C5%8D&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
