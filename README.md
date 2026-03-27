@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our world is like a terminal cancer. Saying you'll change things through individual will is rambling of a peace-loving fool."
+> "Yeah Kid you're not garbage. If you were garbage you would smell a lot worse so why don't we just get up and try again okay?"
 
-&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Patricia Thompson**](https://myanimelist.net/character.php?q=Patricia%20Thompson&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
