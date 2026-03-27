@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I make my own decisions, and see them to the very end. I had to find my resolve, so I could remain true to myself."
+> "Matsu, you said that people and fireworks bloom like beautiful flowers for an instant and then fade away. That may be true, but Matsu, even if it's only for a moment, I want you to bloom by my side and when you fade away... do so at my side. In return, I will... make beautiful flowers bloom by your side again and again."
 
-&mdash; [**Saya Kisaragi**](https://myanimelist.net/character.php?q=Saya%20Kisaragi&cat=character), [**Blood-C**](https://myanimelist.net/search/all?q=Blood-C&cat=all)
+&mdash; [**Matsu's Husband**](https://myanimelist.net/character.php?q=Matsu's%20Husband&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
