@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Living this way is my way of getting revenge!! I'm going to be living proof that your fate isn't decided at birth!! So what about you?! You're going to kill yourself, the ultimate act of submission. Is that how much you want to please the people who treated you like a nuisance?! Why are you trying to hurt yourself?! If your will is that strong... Then shouldn't you be able to change your fate?!"
+> "You know, I really can't stand it when guys pick on people weaker than them...but I guess I'll do it to you anyway!"
 
-&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
