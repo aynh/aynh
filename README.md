@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's times like this that I wish I could come up with an appropriate response.  I hate myself for not being able to reply properly."
+> "There was no reason for me to get attacked by you. And therefore, there was no reason to dodge."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
