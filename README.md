@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People like you disgust me. You can't even face your own weakness."
+> "What takes reason a hundred years to build a bridge to only takes the wings of faith a single night to reach."
 
-&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
