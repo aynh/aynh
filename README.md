@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Okita* I don't care about that gap you created on your own. I'll jump across it as many times as it takes, and punch some sense into you."
+> "*to Mugen* Do you want to go through all the trouble of causing an uproar to expose the level of your idiocy? Try to moderate your self-importance."
 
-&mdash; [**Isao Kondō**](https://myanimelist.net/character.php?q=Isao%20Kond%C5%8D&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Jin**](https://myanimelist.net/character.php?q=Jin&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
