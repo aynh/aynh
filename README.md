@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, you know... I'm gonna do this, and a little of that... and I'm definitely gonna do THAT...! (to Kyo about Tohru, after calling her Kyo's girlfriend)"
+> "Everyone has their own talents, and strong wills that won't lose to anyone else."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
