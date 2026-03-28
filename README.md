@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, guns are always within arm's reach, and sadly they are more trustworthy than kindness."
+> "Eternity is instantaneous, and an instant is eternal."
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
