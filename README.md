@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Eternity is instantaneous, and an instant is eternal."
+> "I don't want to lie anymore. The words 'I believe in you' is a curse. No, it's a spell. If the one who hears it feels cursed, they are."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Watanuki Sakuya**](https://myanimelist.net/character.php?q=Watanuki%20Sakuya&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
