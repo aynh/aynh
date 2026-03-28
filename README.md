@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll be back."
+> "They thirsted for knowledge! They sought to fulfill their desires! And ultimately, they forgot why they were doing it. Even as they proclaimed their reverence for human life, they began toying with it, and then they began destroying it!"
 
-&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
