@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry. Our world isn't as nice a place as yours. When it comes to war and killing, we have far more expertise than you do."
+> "Whenever people see birds flying through the sky, it's said that they get the urge to go on a journey."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
