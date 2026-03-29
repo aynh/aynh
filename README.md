@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pleasure is another thing that I lack. I seek for it but cannot find it."
+> "I felt like I was watching a dream I'd never wake up from. Before I knew it, the dream was all over."
 
-&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
