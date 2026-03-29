@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I felt like I was watching a dream I'd never wake up from. Before I knew it, the dream was all over."
+> "I've never been victimized for anything. I am just doing what I can for me and my comrades. And right now, you're in my way."
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Mikazuki Augus**](https://myanimelist.net/character.php?q=Mikazuki%20Augus&cat=character), [**Mobile Suit Gundam: Iron-Blooded Orphans**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%3A%20Iron-Blooded%20Orphans&cat=all)
