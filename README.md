@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The truth is unattainable. It will always be shrouded in fog. Though you reach the murk and the gloom to grasp something, you have no means to know it is the truth. In which case, why...? What sense is there in yearning for the truth? Close your eyes. Lie to yourself. Live in blissful ignorance... it is a much smarter way to exist."
+> "Um well Miss Maka? Can you do me a favor and help me out with your father? I can't get him off my leg."
 
-&mdash; [**Teddie**](https://myanimelist.net/character.php?q=Teddie&cat=character), [**Persona 4**](https://myanimelist.net/search/all?q=Persona%204&cat=all)
+&mdash; [**Medusa Gorgon**](https://myanimelist.net/character.php?q=Medusa%20Gorgon&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
