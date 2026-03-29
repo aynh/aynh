@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kindness is weakness. Your weakness will delay the trigger by a moment. This world doesn't treat kindness kindly."
+> "Everyone will always question your ideals. That's simply reality."
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
