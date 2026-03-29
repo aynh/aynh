@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll give you some wise words, Shining Sleepless General. All heroes die of overwork."
+> "I consider your class of demon very worthy, worthy to fight, and worthy to die."
 
-&mdash; [**Ikta Solork**](https://myanimelist.net/character.php?q=Ikta%20Solork&cat=character), [**Alderamin on the Sky**](https://myanimelist.net/search/all?q=Alderamin%20on%20the%20Sky&cat=all)
+&mdash; [**Youko Kurama**](https://myanimelist.net/character.php?q=Youko%20Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
