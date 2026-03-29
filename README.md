@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To me, nothing is painful. There is no such thing as anguish. Even if some things seem like they hurt, deep down, everyone is a nice person. We can understand each other, or so I thought; or so I liked to think. I didn't want to wallow in misery. I didn't want to become spiteful. I just didn't want to be hurt. I didn't want to be hated."
+> "Pleasure is another thing that I lack. I seek for it but cannot find it."
 
-&mdash; [**Mato Kuroi**](https://myanimelist.net/character.php?q=Mato%20Kuroi&cat=character), [**Black Rock Shooter**](https://myanimelist.net/search/all?q=Black%20Rock%20Shooter&cat=all)
+&mdash; [**Kotomine Kirei**](https://myanimelist.net/character.php?q=Kotomine%20Kirei&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
