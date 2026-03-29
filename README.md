@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I consider your class of demon very worthy, worthy to fight, and worthy to die."
+> "People can live without friends. Friends are not oxygen or water, they're more like luxury goods."
 
-&mdash; [**Youko Kurama**](https://myanimelist.net/character.php?q=Youko%20Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/character.php?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
