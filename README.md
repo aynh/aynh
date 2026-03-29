@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They thirsted for knowledge! They sought to fulfill their desires! And ultimately, they forgot why they were doing it. Even as they proclaimed their reverence for human life, they began toying with it, and then they began destroying it!"
+> "Apples taste so much better indoors."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
