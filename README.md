@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The day when you'll understand me... will never come..."
+> "Maybe nothing in this world happens by accident. As everything happens for a reason, our destiny slowly takes form..."
 
-&mdash; [**Saruhiko Fushimi**](https://myanimelist.net/character.php?q=Saruhiko%20Fushimi&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Silvers Rayleigh**](https://myanimelist.net/character.php?q=Silvers%20Rayleigh&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
