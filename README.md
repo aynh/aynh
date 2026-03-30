@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If everyone were perfect, there would be no need to look out for others. Sympathy or love is needed because people are imperfect. A perfect human cannot love anyone."
+> "People fall into darkness because they have lost sight of the true nature of the light within them. Unable to find that light they flounder desperately while suffering in agony, only to give birth to tragedy. And there is no greater cause of tragedy, no greater source of darkness, than warfare."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Ei Sei**](https://myanimelist.net/character.php?q=Ei%20Sei&cat=character), [**Kingdom**](https://myanimelist.net/search/all?q=Kingdom&cat=all)
