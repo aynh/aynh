@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever people see birds flying through the sky, it's said that they get the urge to go on a journey."
+> "What would you ask a grave, which can never reply? What do you pray for? Saying anything after someone's death is far too late."
 
-&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
