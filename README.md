@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want the precious time we have together to be taken away by anyone!"
+> "Do you know where hell is? Inside your head."
 
-&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
