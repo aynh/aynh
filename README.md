@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe nothing in this world happens by accident. As everything happens for a reason, our destiny slowly takes form..."
+> "If everyone were perfect, there would be no need to look out for others. Sympathy or love is needed because people are imperfect. A perfect human cannot love anyone."
 
-&mdash; [**Silvers Rayleigh**](https://myanimelist.net/character.php?q=Silvers%20Rayleigh&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
