@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When surviving today is so simple and matter-of-fact people tend to forget. They forget what it means to eat a pig. They say all life is equal, but how much life is consumed to keep them alive everyday?"
+> "There are only two professions in the whole world that give meaning to those who have died and what have been lost... They're writers and detectives. Writers are the only ones able to revive what was lost through their visions. Detectives are the only ones able to dig up the grave and bring back lost information. But the information us detectives dig up is nothing more than the truth as recorded in Heaven's Memo Pad."
 
-&mdash; [**Tanaka Misumi**](https://myanimelist.net/character.php?q=Tanaka%20Misumi&cat=character), [**Bokurano**](https://myanimelist.net/search/all?q=Bokurano&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
