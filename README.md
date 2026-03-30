@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People fall into darkness because they have lost sight of the true nature of the light within them. Unable to find that light they flounder desperately while suffering in agony, only to give birth to tragedy. And there is no greater cause of tragedy, no greater source of darkness, than warfare."
+> "I start wars, resolve them myself, then I buy up the war ravaged lands for a low prince and make a killing off redevelopment and reconstruction concessions!It is a brilliant scheme."
 
-&mdash; [**Ei Sei**](https://myanimelist.net/character.php?q=Ei%20Sei&cat=character), [**Kingdom**](https://myanimelist.net/search/all?q=Kingdom&cat=all)
+&mdash; [**Frost**](https://myanimelist.net/character.php?q=Frost&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
