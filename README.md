@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah, Kurosaki. I'm glad to see you've finally realized the importance of a cape."
+> "I don't want the precious time we have together to be taken away by anyone!"
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Akihiko Usami**](https://myanimelist.net/character.php?q=Akihiko%20Usami&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
