@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I knew it. You can't even ask your own zanpakutō its name."
+> "Ah, Kurosaki. I'm glad to see you've finally realized the importance of a cape."
 
-&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
