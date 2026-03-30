@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are two types of dreams. Dreams from when you're awake and dreams from when you sleep. And both of those can become reality, if you strongly wish for it."
+> "I knew it. You can't even ask your own zanpakutō its name."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
