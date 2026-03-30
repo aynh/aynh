@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Words alone, can make an entire army withdraw."
+> "Hey, I'll have you know that I almost really did kick the bucket during that training, so don't you dare sum it all up in one word, even if it is a nice one like 'potential'."
 
-&mdash; [**Yuusha**](https://myanimelist.net/character.php?q=Yuusha&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
+&mdash; [**Sanosuke Sagara**](https://myanimelist.net/character.php?q=Sanosuke%20Sagara&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
