@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once, there was a tiger striped cat. This cat, died a million deaths, revived and lived a million lives. And he had various owners that he didn't really care about, the cat wasn't afraid to die. Then ONE day, he met a white female cat, the two of them fell in love and lived together happily. Well, the years went by and the white female cat got old and passed away. The Tiger Striped cat cried a million times, then he also died. But this time.....he didn't come back."
+> "*commenting on Haruhi's naming of the SOS brigade* Haruhi's incomprehensible words settled the matter. Oh, joy. Just do whatever you want."
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
