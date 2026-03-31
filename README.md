@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can't you tell, Aizen? You no longer have a place to run away to."
+> "I am a god with a heart, but there’s one thing I cannot tolerate… people who don’t pay their proper respect to others."
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
