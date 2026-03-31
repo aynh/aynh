@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can lose the match and the game, but if you don't lose to yourself, it isn't a loss."
+> "Words alone, can make an entire army withdraw."
 
-&mdash; [**Karen Araragi**](https://myanimelist.net/character.php?q=Karen%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Yuusha**](https://myanimelist.net/character.php?q=Yuusha&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
