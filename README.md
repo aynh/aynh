@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I start wars, resolve them myself, then I buy up the war ravaged lands for a low prince and make a killing off redevelopment and reconstruction concessions!It is a brilliant scheme."
+> "ou know you're a real wise ass, you know that?! (to Yuki)"
 
-&mdash; [**Frost**](https://myanimelist.net/character.php?q=Frost&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
