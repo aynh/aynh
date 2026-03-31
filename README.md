@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Often people have it wrong, mistakenly believing... that showing mercy to an enemy is kindness. They spare the foe whose life is in their hands. But don't you see? It's an empty existence, to go on living... alone and unloved... when defeat's already cost you your dream!"
+> "Math is like a puzzle or a game. There's a clear answer, and you're going on a journey to find it. But there are many ways to reach that answer. That's why it's so fulfilling when you find the solution. There are ways to find an answer promptly, or more freely. Even roundabout methods can bring you to a definite solution. The method may not be pretty, but when the answer you worked hard to discover is right, it makes you happy."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kaori Fujimiya**](https://myanimelist.net/character.php?q=Kaori%20Fujimiya&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
