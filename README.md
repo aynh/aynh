@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Fuu passed out after one drink and is asleep] Sleeping so carelessly. I could do something to you so easily."
+> "I'll do whatever it takes to have everything make sense again!"
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
