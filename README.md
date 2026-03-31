@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Words alone, can make an entire army withdraw."
+> "[Fuu passed out after one drink and is asleep] Sleeping so carelessly. I could do something to you so easily."
 
-&mdash; [**Yuusha**](https://myanimelist.net/character.php?q=Yuusha&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
