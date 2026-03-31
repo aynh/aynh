@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am a god with a heart, but there’s one thing I cannot tolerate… people who don’t pay their proper respect to others."
+> "No matter what changes, I'll still be me. And I can be whoever I want to be!"
 
-&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Amu Hinamori**](https://myanimelist.net/character.php?q=Amu%20Hinamori&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
