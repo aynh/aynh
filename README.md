@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Math is like a puzzle or a game. There's a clear answer, and you're going on a journey to find it. But there are many ways to reach that answer. That's why it's so fulfilling when you find the solution. There are ways to find an answer promptly, or more freely. Even roundabout methods can bring you to a definite solution. The method may not be pretty, but when the answer you worked hard to discover is right, it makes you happy."
+> "The hole in one's heart gets filled by others around you. Friends won't flock to someone who abandons the memory of his friends and gives up on the world just because things don't go the way he wants them to. That won't help fill the hole in your heart. And people won't help those who run away and do nothing. As long as you don't give up, there will always be salvation."
 
-&mdash; [**Kaori Fujimiya**](https://myanimelist.net/character.php?q=Kaori%20Fujimiya&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
