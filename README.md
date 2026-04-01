@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And now it's time for formal introductions. Eliza, my darling, meet Yoh Asakura. Yoh Asakura, meet your doom!"
+> "I pushed him away and hurt him yet he still stood by my side.  It's not a sane relationship. To be saved by seeing his hurt expression."
 
-&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Rika Harada**](https://myanimelist.net/character.php?q=Rika%20Harada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
