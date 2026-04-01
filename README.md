@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Self-sacrifice... A nameless shinobi who protects peace within its shadow. That is a true shinobi."
+> "Being lucky seems to be your greatest tactic."
 
-&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
