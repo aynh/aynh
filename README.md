@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fighting's fine, but losing looks like it'll hurt... so that'd suck."
+> "Regretting the past forever won't solve anything."
 
-&mdash; [**Fay D. Flourite**](https://myanimelist.net/character.php?q=Fay%20D.%20Flourite&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Shiho Fujimiya**](https://myanimelist.net/character.php?q=Shiho%20Fujimiya&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
