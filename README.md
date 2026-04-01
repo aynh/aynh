@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Cast aside the illusion that there is a beginning and end to the story. The story has no beginning. And it has no end. All there is, is a performance of people connecting, living, influencing each other, and departing."
+> "*referring to the man that took her mothers life* I wanted to do it. I wanted to take out all my anger at him. But... I couldn't. I don't know if it's because I'm too weak to do it, or if it's because I'm strong enough not to."
 
-&mdash; [**Gustav St. Germain**](https://myanimelist.net/character.php?q=Gustav%20St.%20Germain&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
