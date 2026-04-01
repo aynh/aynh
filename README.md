@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Feel pain, think about pain, accept pain, know pain... Shinra Tensei!"
+> "Any technique is worthless before my eyes."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
