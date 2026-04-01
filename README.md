@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to the man that took her mothers life* I wanted to do it. I wanted to take out all my anger at him. But... I couldn't. I don't know if it's because I'm too weak to do it, or if it's because I'm strong enough not to."
+> "It doesn't matter what you were like before. Nobody cares."
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
