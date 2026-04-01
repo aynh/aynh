@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah, I'm sorry, I guess this is farewell. Let Tohru find happiness. Please by many people let her be loved. If you become perplexed or make errors, in the end have the kind of life that you can have pride in living. The kind where you can say, 'I persevered'. Repeating delightful things and sad things. And in that way keep getting older. I persevered. (Part of Kyoko's last words that were never said)"
+> "I'll die smiling! Because if you ever think of me in the future, I want you to remember me smiling."
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Donquixote Rosinante**](https://myanimelist.net/character.php?q=Donquixote%20Rosinante&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
