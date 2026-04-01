@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you're sincere about doing something, you're stalked by the fear that there's no turning back."
+> "[Vegeta's last thought before he dies fighting Majin Buu] Bulma, Trunks. This is for you."
 
-&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
