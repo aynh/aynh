@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter what you were like before. Nobody cares."
+> "When you're sincere about doing something, you're stalked by the fear that there's no turning back."
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Naruo Taneda**](https://myanimelist.net/character.php?q=Naruo%20Taneda&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
