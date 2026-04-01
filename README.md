@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll die smiling! Because if you ever think of me in the future, I want you to remember me smiling."
+> "Self-sacrifice... A nameless shinobi who protects peace within its shadow. That is a true shinobi."
 
-&mdash; [**Donquixote Rosinante**](https://myanimelist.net/character.php?q=Donquixote%20Rosinante&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
