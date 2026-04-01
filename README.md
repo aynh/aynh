@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regretting the past forever won't solve anything."
+> "I can't stray from my path for those I've left behind."
 
-&mdash; [**Shiho Fujimiya**](https://myanimelist.net/character.php?q=Shiho%20Fujimiya&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
