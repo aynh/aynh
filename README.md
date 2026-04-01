@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Vegeta's last thought before he dies fighting Majin Buu] Bulma, Trunks. This is for you."
+> "Because I wished for everyone to live, I did everything I could."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Sakura Kinomoto**](https://myanimelist.net/character.php?q=Sakura%20Kinomoto&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
