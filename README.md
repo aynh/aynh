@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't stray from my path for those I've left behind."
+> "Cast aside the illusion that there is a beginning and end to the story. The story has no beginning. And it has no end. All there is, is a performance of people connecting, living, influencing each other, and departing."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Gustav St. Germain**](https://myanimelist.net/character.php?q=Gustav%20St.%20Germain&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
