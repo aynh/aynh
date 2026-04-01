@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I pushed him away and hurt him yet he still stood by my side.  It's not a sane relationship. To be saved by seeing his hurt expression."
+> "Please... even if I die surrounded by snow that never melts... please let her be happy."
 
-&mdash; [**Rika Harada**](https://myanimelist.net/character.php?q=Rika%20Harada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
