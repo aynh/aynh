@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Often people have it wrong, mistakenly believing... that showing mercy to an enemy is kindness. They spare the foe whose life is in their hands. But don't you see? It's an empty existence, to go on living... alone and unloved... when defeat's already cost you your dream!"
+> "If you're going to hide a tree, put it in the forest."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
