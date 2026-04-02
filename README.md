@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're going to hide a tree, put it in the forest."
+> "Whether you get mad, whether you laugh. The sun will set, morning will come. Each and every time, I'll just start over again."
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Atsuhiro Maeda**](https://myanimelist.net/character.php?q=Atsuhiro%20Maeda&cat=character), [**Tari Tari**](https://myanimelist.net/search/all?q=Tari%20Tari&cat=all)
