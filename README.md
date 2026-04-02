@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are capable of creating another part of themselves inside themselves at any time. A part that they can truly like."
+> "Whenever you fight from this point on, there is one thing you must never do. Which is...to die alone."
 
-&mdash; [**Ushiromiya Jessica**](https://myanimelist.net/character.php?q=Ushiromiya%20Jessica&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
