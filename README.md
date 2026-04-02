@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When saying good-bye to this world, our great father split his blood into four: the eldest inherited only his sense of responsibility, the second eldest inherited only his easygoing personality, the youngest inherited only his innocence, and me, well, I inherited only his idiocy.  What held us diverse brothers together was the love of our mother, deeper than the sea, and the farewell we bid our great father.  Sometimes, one profound separation can unite the ones left behind."
+> "Smiles are what connect people! It allows them to communicate through their souls! Connected souls will never lose to the strength that only relies on control! Dueling is the same! Only strength alone doesn't speak to anyone's soul!"
 
-&mdash; [**Yasaburou Shimogamo**](https://myanimelist.net/character.php?q=Yasaburou%20Shimogamo&cat=character), [**Uchouten Kazoku**](https://myanimelist.net/search/all?q=Uchouten%20Kazoku&cat=all)
+&mdash; [**Yuzu Hiiragi**](https://myanimelist.net/character.php?q=Yuzu%20Hiiragi&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
