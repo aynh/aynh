@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Hige* Coming from you, that sounds kind of fishy."
+> "Why don't you stop forcing yourself on him and calling it love? It's painful to watch (to Kagura about Kyo)"
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
