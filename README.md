@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever people see birds flying through the sky, it's said that they get the urge to go on a journey."
+> "These days, there are angry ghosts all around us. Dead from wars, sickness, starvation, and nobody cares. So - you say you're under a curse. So what, so's the whole damn world."
 
-&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
+&mdash; [**Jigo**](https://myanimelist.net/character.php?q=Jigo&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
