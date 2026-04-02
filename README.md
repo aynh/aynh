@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being lucky seems to be your greatest tactic."
+> "There is no such thing as luck in this world. Rules, prerequisites, psychological states... There are any number of invisible factors that combine to produce an unpredictable, but inevitable result. The winner of each game is decided before it even begins. Chance is never a factor."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
