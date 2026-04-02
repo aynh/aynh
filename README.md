@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no such thing as luck in this world. Rules, prerequisites, psychological states... There are any number of invisible factors that combine to produce an unpredictable, but inevitable result. The winner of each game is decided before it even begins. Chance is never a factor."
+> "When saying good-bye to this world, our great father split his blood into four: the eldest inherited only his sense of responsibility, the second eldest inherited only his easygoing personality, the youngest inherited only his innocence, and me, well, I inherited only his idiocy.  What held us diverse brothers together was the love of our mother, deeper than the sea, and the farewell we bid our great father.  Sometimes, one profound separation can unite the ones left behind."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Yasaburou Shimogamo**](https://myanimelist.net/character.php?q=Yasaburou%20Shimogamo&cat=character), [**Uchouten Kazoku**](https://myanimelist.net/search/all?q=Uchouten%20Kazoku&cat=all)
