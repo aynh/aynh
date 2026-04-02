@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why don't you stop forcing yourself on him and calling it love? It's painful to watch (to Kagura about Kyo)"
+> "It's not like we lost anything when there was nothing between us to start with. We could never really be equals. I've always been alone."
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Izumiko Suzuhara**](https://myanimelist.net/character.php?q=Izumiko%20Suzuhara&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
