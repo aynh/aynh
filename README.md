@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not like we lost anything when there was nothing between us to start with. We could never really be equals. I've always been alone."
+> "Glad you're okay *wink* I kinda like you."
 
-&mdash; [**Izumiko Suzuhara**](https://myanimelist.net/character.php?q=Izumiko%20Suzuhara&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
+&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
