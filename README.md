@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The main reason I got stronger was so I’d be able to survive."
+> "We will not just fade away, thought there's no way to know how long it may last. We WILL leave our mark on this world!"
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Katakura Kojūrō**](https://myanimelist.net/character.php?q=Katakura%20Koj%C5%ABr%C5%8D&cat=character), [**Sengoku Basara**](https://myanimelist.net/search/all?q=Sengoku%20Basara&cat=all)
