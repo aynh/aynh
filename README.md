@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People don't simply disappear from this world when they die. They only truly die when they are forgotten by those who are alive. That's why it doesn't matter whether I lived or died. No one knows of my existence, and I don't have I don't have a single friend. But... if you all won't forget about me... that is enough even if I die. With just that... I would be more alive than I ever have been."
+> "Love is an emotional thing. I will say nothing in praise of it... It is antagonistic to clear reasoning. It's the same in tennis. Love is 0. No matter how many zeroes you add together, you'll just lose miserably."
 
-&mdash; [**Tokou Nanami**](https://myanimelist.net/character.php?q=Tokou%20Nanami&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
