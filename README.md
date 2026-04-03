@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, I discovered something. Everyone has something... Something deep inside their hearts. For some, it might have been enmity. For others, admiration. Wishes, a craving for the spotlight, feelings that one wants to deliver, feelings for one's mother. Everyone was supported by their own feelings. I realize now that, perhaps, no one can stand alone on stage."
+> "To kill is an action which overflows in everyday life. In actuality the more you try to be accepted, the more you kill your unrestrained self."
 
-&mdash; [**Kousei Arima**](https://myanimelist.net/character.php?q=Kousei%20Arima&cat=character), [**Shigatsu Wa Kimi No Uso**](https://myanimelist.net/search/all?q=Shigatsu%20Wa%20Kimi%20No%20Uso&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
