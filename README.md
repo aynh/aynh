@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If people could become friends simply by sharing bread and salt, life would be simpler."
+> "The doors here only open one way. They open inward."
 
-&mdash; [**Peppo**](https://myanimelist.net/character.php?q=Peppo&cat=character), [**Gankutsuou**](https://myanimelist.net/search/all?q=Gankutsuou&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
