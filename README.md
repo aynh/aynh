@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Glad you're okay *wink* I kinda like you."
+> "No one actually knows what's best or what the future holds. Until you actually see the results, no one ever knows. So at the very least, why don't we rely on what we do know. Let's keep the feelings that we have right now precious. Even though it seems like our lives never change, they slowly do. And just like how we never notice... the changing of the seasons... the same goes for our hearts."
 
-&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
