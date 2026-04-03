@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To kill is an action which overflows in everyday life. In actuality the more you try to be accepted, the more you kill your unrestrained self."
+> "Oh look at that. My tea has gone cold."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Itsuki Koizumi**](https://myanimelist.net/character.php?q=Itsuki%20Koizumi&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
