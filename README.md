@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He who is blessed with strength should become the guide. That is all."
+> "People don't simply disappear from this world when they die. They only truly die when they are forgotten by those who are alive. That's why it doesn't matter whether I lived or died. No one knows of my existence, and I don't have I don't have a single friend. But... if you all won't forget about me... that is enough even if I die. With just that... I would be more alive than I ever have been."
 
-&mdash; [**Yamato Hotsuin**](https://myanimelist.net/character.php?q=Yamato%20Hotsuin&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Tokou Nanami**](https://myanimelist.net/character.php?q=Tokou%20Nanami&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
