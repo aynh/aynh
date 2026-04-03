@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is an emotional thing. I will say nothing in praise of it... It is antagonistic to clear reasoning. It's the same in tennis. Love is 0. No matter how many zeroes you add together, you'll just lose miserably."
+> "Not many can do the “right thing” when it counts."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Kuroh Yatogami**](https://myanimelist.net/character.php?q=Kuroh%20Yatogami&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
