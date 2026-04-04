@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is a privilege of the living. A destiny without reason, continually roving on, evermore. How fleeting a thing it is. One cannot live and forget about death. The despair that is me, forgotten by death, can at least embrace my yearning at twilight, and sleep."
+> "The only one who should decide which path to follow is yourself."
 
-&mdash; [**William Macbeth**](https://myanimelist.net/character.php?q=William%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
