@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Attention, gun-toting extremists! Can you hear me all right, or did you blow your ears out playing target practice?"
+> "If your face gets any closer, someone who isn't supposed to be in this scene is going to come over there and kick your ass!"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
