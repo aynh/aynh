@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I haven't relied on luck since the moment I was born. Everything has been the result of my choices. That is what leads my existence towards the future."
+> "It is love that can make us strong, but it is also love that can make us weak."
 
-&mdash; [**Kagura Mikazuchi**](https://myanimelist.net/character.php?q=Kagura%20Mikazuchi&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
