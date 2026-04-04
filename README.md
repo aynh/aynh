@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is love that can make us strong, but it is also love that can make us weak."
+> "Water brings healing and life. But fire brings only destruction and pain. It forces those of us burdened with its care to walk a razor's edge between humanity and savagery. Eventually, we are torn apart."
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Jeong Jeong**](https://myanimelist.net/character.php?q=Jeong%20Jeong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
