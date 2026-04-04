@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've fought a valiant duel, my friend, and this is the hardest move I've ever had to make. But this ends now!"
+> "The true evil is becoming apathetic about other people."
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
