@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only one who should decide which path to follow is yourself."
+> "I haven't relied on luck since the moment I was born. Everything has been the result of my choices. That is what leads my existence towards the future."
 
-&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
+&mdash; [**Kagura Mikazuchi**](https://myanimelist.net/character.php?q=Kagura%20Mikazuchi&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
