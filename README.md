@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will do what I can, even if my chance of passing is minuscule, if that will allow me to move forward."
+> "Ever since that day, I've kept this broom balanced on my fingertip."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Shiina**](https://myanimelist.net/character.php?q=Shiina&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
