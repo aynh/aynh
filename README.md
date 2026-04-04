@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If your face gets any closer, someone who isn't supposed to be in this scene is going to come over there and kick your ass!"
+> "The whale leaps. As high as he can imagine. Piercing the water from peak to peak. Is a yearning for the sky reflected in his eyes? What if this high point wasn't merely the sky, but something far higher? If he knew of the infinite glitter of the stars, would his dreams soar even higher? Even if one doesn't know why, to live is to constantly reach out. Not to a nervous restlessness, but to a constant motion of the heart."
 
-&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Nino**](https://myanimelist.net/character.php?q=Nino&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
