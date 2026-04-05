@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I hadn't met you, I never would have realized what kind of person I am. I would have grown into an apathetic, clueless, obedient adult. However, after spending time with you, in tears, laughter, and anger, I now know that I have all these emotions inside me, too. And that makes me proud. I'm glad to have known you."
+> "Death is the end of everything. Your past and future will be lost in an instant where there will be no second chance. However as long as you live there will be a chance of pulling a win."
 
-&mdash; [**Sion**](https://myanimelist.net/character.php?q=Sion&cat=character), [**No.6**](https://myanimelist.net/search/all?q=No.6&cat=all)
+&mdash; [**Kazuma Yagami**](https://myanimelist.net/character.php?q=Kazuma%20Yagami&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
