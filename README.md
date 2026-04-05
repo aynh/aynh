@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just walk the path you believe in. And don't forget, you're the main character of your own life story!"
+> "Falling is just another way of flying."
 
-&mdash; [**Glenn Radars**](https://myanimelist.net/character.php?q=Glenn%20Radars&cat=character), [**Rokudenashi Majutsu Koushi to Akashic Records**](https://myanimelist.net/search/all?q=Rokudenashi%20Majutsu%20Koushi%20to%20Akashic%20Records&cat=all)
+&mdash; [**Nine**](https://myanimelist.net/character.php?q=Nine&cat=character), [**Terror in Resonance**](https://myanimelist.net/search/all?q=Terror%20in%20Resonance&cat=all)
