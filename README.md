@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Falling is just another way of flying."
+> "The ticket to the future, is always blank."
 
-&mdash; [**Nine**](https://myanimelist.net/character.php?q=Nine&cat=character), [**Terror in Resonance**](https://myanimelist.net/search/all?q=Terror%20in%20Resonance&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
