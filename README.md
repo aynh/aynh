@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Because I won’t die if I miss.' I can totally understand the words of that slugger. We won’t die just because our dreams and efforts prove futile, nor do we need to despair. We both faced much greater despair, so we aren’t afraid of the obstacles that lie before us. We can easily bet on a coin flip while others are too frightened to even pick heads or tails."
+> "For those who have come to power, wealth and glory not by their own strength and effort, but simply through inheritance, what right do they have to complain? The very existence of such blood-lineage dynasties is disgusting. Power is the property of one generation. It shouldn't be transferred, it should be seized."
 
-&mdash; [**Usui Haruaki**](https://myanimelist.net/character.php?q=Usui%20Haruaki&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
