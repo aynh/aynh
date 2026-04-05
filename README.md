@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Adlet, I hated you. I hated the fact that I was starting to believe in you. I still hate you. The more I talk to you, the more I hate you. I believe you, even though I decided to never believe anyone again."
+> "'Because I won’t die if I miss.' I can totally understand the words of that slugger. We won’t die just because our dreams and efforts prove futile, nor do we need to despair. We both faced much greater despair, so we aren’t afraid of the obstacles that lie before us. We can easily bet on a coin flip while others are too frightened to even pick heads or tails."
 
-&mdash; [**Fremy Speedraw**](https://myanimelist.net/character.php?q=Fremy%20Speedraw&cat=character), [**Rokka no Yuusha**](https://myanimelist.net/search/all?q=Rokka%20no%20Yuusha&cat=all)
+&mdash; [**Usui Haruaki**](https://myanimelist.net/character.php?q=Usui%20Haruaki&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
