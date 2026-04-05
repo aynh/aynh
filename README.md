@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who neglect to make efforts or who don't take any actions at all are always the ones who dream that someday they will suddenly become wildly successful."
+> "You've finally realized that the one thing you want, something greater than money, it can never be yours."
 
-&mdash; [**Misaki Nakahara**](https://myanimelist.net/character.php?q=Misaki%20Nakahara&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
+&mdash; [**Yato**](https://myanimelist.net/character.php?q=Yato&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
