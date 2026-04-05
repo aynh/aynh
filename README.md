@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is your home now, so make yourself comfortable. And take advantage of everything here, except me."
+> "I'll never show you my tears. These are the tears of those who died with regrets. If there's a way to take away these regrets, I'll make sure I'll find it."
 
-&mdash; [**Misato Katsuragi**](https://myanimelist.net/character.php?q=Misato%20Katsuragi&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
