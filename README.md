@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fun times are bound to end."
+> "If I try to deny my past, I'm denying the person I've become. I don't want to do that."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
