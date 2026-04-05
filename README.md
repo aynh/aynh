@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why? Why do humans always look to the sky? Why do you try so hard to fly when you don't have any wings? We'll run on our own legs."
+> "People who neglect to make efforts or who don't take any actions at all are always the ones who dream that someday they will suddenly become wildly successful."
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Misaki Nakahara**](https://myanimelist.net/character.php?q=Misaki%20Nakahara&cat=character), [**Welcome to the N.H.K**](https://myanimelist.net/search/all?q=Welcome%20to%20the%20N.H.K&cat=all)
