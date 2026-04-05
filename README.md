@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For those who have come to power, wealth and glory not by their own strength and effort, but simply through inheritance, what right do they have to complain? The very existence of such blood-lineage dynasties is disgusting. Power is the property of one generation. It shouldn't be transferred, it should be seized."
+> "I won’t lose to my own decisions, no matter what. That’s the proof that I’m me."
 
-&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Nanana Ryuugajou**](https://myanimelist.net/character.php?q=Nanana%20Ryuugajou&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
