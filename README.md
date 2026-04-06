@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[After getting hit by Yammy Llargo's Bala] You mean do I have a defence? Truth is, I’ve never really had any plans against any attacks. I just knew I had to win so I did. That’s my plan. I don’t care if you’re higher ranked than the other Espadas' were, to me it’s all the same. I’ve gotta defeat you so I’ll find a way to do it. Simple."
+> "Everyone has an ability. And it means that everyone should use that ability to the fullest."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Chitoge Kirisaki**](https://myanimelist.net/character.php?q=Chitoge%20Kirisaki&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
