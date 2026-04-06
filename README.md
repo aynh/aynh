@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Keep in mind that there are those who get hurt and those who try to heal the hurt ones. For those guys, it's not funny to have something they value so much be brushed off so lightly. How can a man protect another if he can't even protect himself?"
+> "(thinking) Haru understood me. He cared for me. He loved me."
 
-&mdash; [**Sawada Iemitsu**](https://myanimelist.net/character.php?q=Sawada%20Iemitsu&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
