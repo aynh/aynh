@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't like the terms 'good person' or 'bad person' because it's impossible to be entirely good to everyone or entirely bad to everyone. To some, you are a good person, while to others, you are a bad person."
+> "Humans are easily tempted. When they are poised on the edge of hellish despair, and a spider-thin thread of salvation presents itself, they will invariably grasp it. No matter the human."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
