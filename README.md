@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tell you what… I’ll carve you up until you find yourselves cursing the fact that you have such resilient bodies."
+> "A politician in the past once said: 'My secretaries did it all.'"
 
-&mdash; [**Riful**](https://myanimelist.net/character.php?q=Riful&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**UNESCO Director**](https://myanimelist.net/character.php?q=UNESCO%20Director&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
