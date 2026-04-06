@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just don't understand the reason why humans continue living on all the while as our individual egos hurt each other..."
+> "As long as one person still lives...it shall be proof eternal that mankind ever existed."
 
-&mdash; [**Yuichi Onodera**](https://myanimelist.net/character.php?q=Yuichi%20Onodera&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Yui Ikari**](https://myanimelist.net/character.php?q=Yui%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
