@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can worry about things all you want, but it doesn't mean you'll always get an answer. What's important to remember, is that when it's all said and done and you got through it all somehow, are you the person you wanted to be?"
+> "The writing end when the writing ends... No... Accurately said, it is not written to an end. If you write a story to a certain point, can you say it is fully written? This has been paining me in all those long years as someone who writes. The journeys of humans make for such interesting stories, yet... But where does the journey start and where does it end... Even I do not know an answer to this..."
 
-&mdash; [**Hibiki Tokai**](https://myanimelist.net/character.php?q=Hibiki%20Tokai&cat=character), [**Vandread**](https://myanimelist.net/search/all?q=Vandread&cat=all)
+&mdash; [**Featherine Augustus Aurora**](https://myanimelist.net/character.php?q=Featherine%20Augustus%20Aurora&cat=character), [**Umineko no Naku Koro ni Chiru Episode 8: Twilight of the...**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni%20Chiru%20Episode%208%3A%20Twilight%20of%20the...&cat=all)
