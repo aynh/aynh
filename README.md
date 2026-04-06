@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every time you and I interact...a bit of 'heart' is born between us. Heart isn't something inside you. But whenever you think, whenever you remember someone, that's when heart is born. I mean, if you were the only one alive in the whole world, heart wouldn't exist, now would it?"
+> "You can't achieve anything if you don't make a move. Love is an all-out assault."
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
