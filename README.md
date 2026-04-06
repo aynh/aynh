@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The stronger the light, the darker the shadow."
+> "[After getting hit by Yammy Llargo's Bala] You mean do I have a defence? Truth is, I’ve never really had any plans against any attacks. I just knew I had to win so I did. That’s my plan. I don’t care if you’re higher ranked than the other Espadas' were, to me it’s all the same. I’ve gotta defeat you so I’ll find a way to do it. Simple."
 
-&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
