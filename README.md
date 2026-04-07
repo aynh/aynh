@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I told her how I feel, she'd miss me even more. Afterall, I'm the guy who keeps breaking her heart by making her wait an eternity... even though I'm always by her side. I don't wanna see her cry anymore. Even if it means I no longer have a place in her heart. Seems pretty childish of me, doesn't it?"
+> "When one thing ends, another begins."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Riko Aida**](https://myanimelist.net/character.php?q=Riko%20Aida&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
