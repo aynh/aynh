@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to Azula* She can shoot all the lightning she wants at me, I'm not going into that wall sludge juice. [shudders]"
+> "That curse will spread throughout your whole body, bone and flesh alike and finally kill you. Now leave this place at sunrise. Return and *I* shall kill you."
 
-&mdash; [**Mai**](https://myanimelist.net/character.php?q=Mai&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
