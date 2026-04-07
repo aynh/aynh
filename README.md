@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is straining my heartstrings."
+> "*grabs two citizens and swings them around in a circle* Shorty?! Could a shorty do this?! What else you want to call me: a half-pint bean-sprout midget?! I'm still growing you backwater desert idiots!"
 
-&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
