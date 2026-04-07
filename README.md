@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes, we have to look beyond what we want and do what's best."
+> "*after Katsura asks him about what he is doing* Well, I suppose I'm doing something odd, like jogging or taking a walk or something like that."
 
-&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
