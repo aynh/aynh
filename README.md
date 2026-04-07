@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're going to be moving forward! If we move forward, we'll get stronger, both physically and mentally."
+> "Sometimes, we have to look beyond what we want and do what's best."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
