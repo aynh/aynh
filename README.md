@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Welcome. Welcome to my cave young ones. Please forgive the belated salutations I am the holy sword Excalibur!"
+> "You shy, little boy."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
