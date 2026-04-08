@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is it wrong to do stuff by yourself? If someone worked hard on their own until now, why do they have to face rejection here?"
+> "You're young. Time is on your side. You'll grow up and I'll grow old. Someday you'll likely beat me. It's only natural. Even the strongest man must die."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
