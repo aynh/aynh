@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*grabs two citizens and swings them around in a circle* Shorty?! Could a shorty do this?! What else you want to call me: a half-pint bean-sprout midget?! I'm still growing you backwater desert idiots!"
+> "Aah... I said I'd 'answer you' ... Not that I'd 'give you a straight answer'."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
