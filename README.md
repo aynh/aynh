@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Aah... I said I'd 'answer you' ... Not that I'd 'give you a straight answer'."
+> "There're too many people who worry about the things I don't worry about."
 
-&mdash; [**Xerxes Break**](https://myanimelist.net/character.php?q=Xerxes%20Break&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Takeshi Nanase**](https://myanimelist.net/character.php?q=Takeshi%20Nanase&cat=character), [**Magical Warfare**](https://myanimelist.net/search/all?q=Magical%20Warfare&cat=all)
