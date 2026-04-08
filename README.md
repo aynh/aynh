@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm so stupid. At that time, I thought I could escape. I thought I'd be taken somewhere out of this world. I got my hopes up a little. But that's impossible isn't it? I'm not playing by the rules. As if anyone would just take me away when I wanted them to. I'm so stupid."
+> "Is it wrong to do stuff by yourself? If someone worked hard on their own until now, why do they have to face rejection here?"
 
-&mdash; [**Mishima Lisa**](https://myanimelist.net/character.php?q=Mishima%20Lisa&cat=character), [**Terror in Resonance**](https://myanimelist.net/search/all?q=Terror%20in%20Resonance&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
