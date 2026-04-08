@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's a lot of products that you can buy with money...but my love is the only limited product that only you can have."
+> "Dreams, ambition, love, hope; in this world, could the glories of a youthful heart be.. forbidden?"
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Berserk**](https://myanimelist.net/character.php?q=Berserk&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
