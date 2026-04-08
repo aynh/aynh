@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our injuries will heal as long as we're alive. But the scars will remain."
+> "I always wished to be accepted by my surroundings. I tried to change myself for that reason. But, I don't care if I'm disliked. I don't care if I don't have a place where I belong. I don't mind if everybody rejects me starting tomorrow. I will even become a devil for the person who is trying to protect me."
 
-&mdash; [**Allen Walker**](https://myanimelist.net/character.php?q=Allen%20Walker&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
