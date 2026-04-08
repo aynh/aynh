@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Thus I found myself carrying the entire weight of the troop as I preformed my dance before a capacity crowd at the opera house."
+> "I'm so stupid. At that time, I thought I could escape. I thought I'd be taken somewhere out of this world. I got my hopes up a little. But that's impossible isn't it? I'm not playing by the rules. As if anyone would just take me away when I wanted them to. I'm so stupid."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Mishima Lisa**](https://myanimelist.net/character.php?q=Mishima%20Lisa&cat=character), [**Terror in Resonance**](https://myanimelist.net/search/all?q=Terror%20in%20Resonance&cat=all)
