@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've always been asking myself this question. Am I a memory? or is the memory... ME? Are we nothing but a collection of memories?"
+> "Comrades are comrades because they help each other out."
 
-&mdash; [**Motoharu Yano**](https://myanimelist.net/character.php?q=Motoharu%20Yano&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
