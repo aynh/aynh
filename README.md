@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry, I don't have time to be arrested."
+> "[To Chihiro as she's sleeping] Meet me at the bridge. Come alone."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
