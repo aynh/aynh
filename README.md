@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know everyone has their stories of pain and sadness or things that they don't want to bring up, but if you can't be a good friend without telling that, then I don't need any friends at all!"
+> "I choose my own battlefields. Not by my blood, but by my heart! I stand on the battlefield to protect what's important to me. And if anyone stands in my way, I don't care if it's one of my kind, my brother or anyone else… I'll crush them all!"
 
-&mdash; [**Sonozaki Mion**](https://myanimelist.net/character.php?q=Sonozaki%20Mion&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
