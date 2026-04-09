@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't act because something is interesting, but act because you want to find something more interesting! In this world, there are so much interesting things. Do something that you don't want to do, you don't have even a second for it."
+> "No matter how ugly something is, if you look at it in a cute way, it'll seem dear somehow."
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
