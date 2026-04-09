@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how ugly something is, if you look at it in a cute way, it'll seem dear somehow."
+> "Ichigo Kurosaki, all of the battles you've fought, were all part of my plan."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
