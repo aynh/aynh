@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I always wished to be accepted by my surroundings. I tried to change myself for that reason. But, I don't care if I'm disliked. I don't care if I don't have a place where I belong. I don't mind if everybody rejects me starting tomorrow. I will even become a devil for the person who is trying to protect me."
+> "Sorry, I don't have time to be arrested."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
