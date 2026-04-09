@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Chihiro as she's sleeping] Meet me at the bridge. Come alone."
+> "Don't act because something is interesting, but act because you want to find something more interesting! In this world, there are so much interesting things. Do something that you don't want to do, you don't have even a second for it."
 
-&mdash; [**Haku**](https://myanimelist.net/character.php?q=Haku&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
