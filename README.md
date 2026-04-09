@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ichigo Kurosaki, all of the battles you've fought, were all part of my plan."
+> "I've always been asking myself this question. Am I a memory? or is the memory... ME? Are we nothing but a collection of memories?"
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Motoharu Yano**](https://myanimelist.net/character.php?q=Motoharu%20Yano&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
