@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Appearances rarely share the whole truth."
+> "Excalibur! Excalibur! From the United K! I'm looking for heaven! I'm going to California!"
 
-&mdash; [**Pride**](https://myanimelist.net/character.php?q=Pride&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
