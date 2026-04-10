@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Between being eternally unable to wake from a dream, and being eternally unable to dream, which do you think would be more unfortunate? Still, both the dream that we deemed eternal, and this very reality, are destined to end someday."
+> "Why? Why do humans always look to the sky? Why do you try so hard to fly when you don't have any wings? We'll run on our own legs."
 
-&mdash; [**Lau**](https://myanimelist.net/character.php?q=Lau&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
