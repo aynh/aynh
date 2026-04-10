@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The first requirement of being a hero isn't being right. It's being strong. That's why the hero always wins."
+> "You can certainly fulfill your wish to 'save someone'. But a wish for you to save yourself, does not exist. You will embrace a borrowed ideal that is not yours, and you will probably pursue it until you die."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
