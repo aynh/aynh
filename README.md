@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tohru, you must always be yourself and do things at your own pace. Someday... you'll catch up."
+> "The first requirement of being a hero isn't being right. It's being strong. That's why the hero always wins."
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
