@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Children aren't sweet or innocent. The weird ones are left unchecked. It's rare to find anyone you can trust!"
+> "Despair… It hides away propagates, expands, and finally explodes."
 
-&mdash; [**Y**](https://myanimelist.net/character.php?q=Y&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Gantz**](https://myanimelist.net/character.php?q=Gantz&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
