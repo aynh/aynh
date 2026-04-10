@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can certainly fulfill your wish to 'save someone'. But a wish for you to save yourself, does not exist. You will embrace a borrowed ideal that is not yours, and you will probably pursue it until you die."
+> "Devils don't ask favors from God."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
