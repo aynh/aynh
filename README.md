@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Excalibur! Excalibur! From the United K! I'm looking for heaven! I'm going to California!"
+> "Children aren't sweet or innocent. The weird ones are left unchecked. It's rare to find anyone you can trust!"
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Y**](https://myanimelist.net/character.php?q=Y&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
