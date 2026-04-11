@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unwavering Faith and Resilient Bonds will bring even miracles to your side."
+> "After all.. love is all about timing. If you don't say the right thing at the right moment, no matter how much fate was involved in the relationship, everything will be ruined. Even if you regret it, it'll be too late."
 
-&mdash; [**Mavis Vermillion**](https://myanimelist.net/character.php?q=Mavis%20Vermillion&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Masafumi Takeuchi**](https://myanimelist.net/character.php?q=Masafumi%20Takeuchi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
