@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People don't kill people, really. Monsters do. Monsters like war, hungry nobles, and greedy kingdoms. And monsters like me, not you."
+> "When you look back after a long life, you'll realize there's nothing that's really worth risking your life for."
 
-&mdash; [**Ryner Lute**](https://myanimelist.net/character.php?q=Ryner%20Lute&cat=character), [**The Legend of the Legendary Heroes**](https://myanimelist.net/search/all?q=The%20Legend%20of%20the%20Legendary%20Heroes&cat=all)
+&mdash; [**Mackenzie Glen**](https://myanimelist.net/character.php?q=Mackenzie%20Glen&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
