@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Individuality that stands apart from the rest is a great asset."
+> "Do you always want to live hiding behind the mask you put up for the sake of others?! You're you, and there's nothing wrong with that."
 
-&mdash; [**Mitsuki Nase**](https://myanimelist.net/character.php?q=Mitsuki%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
+&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
