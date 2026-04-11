@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Despair is contagious. Everyone catches it."
+> "Individuality that stands apart from the rest is a great asset."
 
-&mdash; [**Junko Enoshima**](https://myanimelist.net/character.php?q=Junko%20Enoshima&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Mitsuki Nase**](https://myanimelist.net/character.php?q=Mitsuki%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
