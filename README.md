@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how much this world may change, I shall always remain myself."
+> "When we hit our lowest point, we are open to the greatest change."
 
-&mdash; [**Jurai Andou**](https://myanimelist.net/character.php?q=Jurai%20Andou&cat=character), [**Inou-Battle wa Nichijou-kei no Naka de**](https://myanimelist.net/search/all?q=Inou-Battle%20wa%20Nichijou-kei%20no%20Naka%20de&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
