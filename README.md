@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you always want to live hiding behind the mask you put up for the sake of others?! You're you, and there's nothing wrong with that."
+> "I'm not just a tool for you to use in order to solve your puzzles, you know!"
 
-&mdash; [**Ymir**](https://myanimelist.net/character.php?q=Ymir&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
