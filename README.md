@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We can only live while we lose."
+> "All heroes have established their thrones atop, not just their enemies. But a large quantity of allied corpses as well. There are no monarchs with clean hands."
 
-&mdash; [**Renji Yomo**](https://myanimelist.net/character.php?q=Renji%20Yomo&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Paul von Oberstein**](https://myanimelist.net/character.php?q=Paul%20von%20Oberstein&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
