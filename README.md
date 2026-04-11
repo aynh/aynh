@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm always alone. Other people don't factor into what I do. The things that happen in front of me are parts of my life and my life alone."
+> "The truth can be concealed by the position one chooses to take,but can also be revealed once more."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Leonardo da Vinci**](https://myanimelist.net/character.php?q=Leonardo%20da%20Vinci&cat=character), [**Nobunaga The Fool**](https://myanimelist.net/search/all?q=Nobunaga%20The%20Fool&cat=all)
