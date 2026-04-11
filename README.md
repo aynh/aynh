@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't beg for it, earn it. Do it, and you'll be rewarded."
+> "The closer you get to the sun, the darker your shadow will be."
 
-&mdash; [**Renton Thurston**](https://myanimelist.net/character.php?q=Renton%20Thurston&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
+&mdash; [**Aria Link**](https://myanimelist.net/character.php?q=Aria%20Link&cat=character), [**Tegami Bachi**](https://myanimelist.net/search/all?q=Tegami%20Bachi&cat=all)
