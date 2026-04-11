@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[with a bow and arrow ready to fire] Not as pretty as his, huh? What would you know about it? You live in a time where they don't even have SHAMPOO."
+> "People don't kill people, really. Monsters do. Monsters like war, hungry nobles, and greedy kingdoms. And monsters like me, not you."
 
-&mdash; [**Kagome Higurashi**](https://myanimelist.net/character.php?q=Kagome%20Higurashi&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Ryner Lute**](https://myanimelist.net/character.php?q=Ryner%20Lute&cat=character), [**The Legend of the Legendary Heroes**](https://myanimelist.net/search/all?q=The%20Legend%20of%20the%20Legendary%20Heroes&cat=all)
