@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Believe in yourself... If you don’t have that... it doesn’t matter how many talents you have, you still won’t be able to hold your head up high..."
+> "Remote islands are all about strange incidents, right?"
 
-&mdash; [**Chiaki Nanami**](https://myanimelist.net/character.php?q=Chiaki%20Nanami&cat=character), [**Super Dangan Ronpa 2**](https://myanimelist.net/search/all?q=Super%20Dangan%20Ronpa%202&cat=all)
+&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
