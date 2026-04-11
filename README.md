@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The truth can be concealed by the position one chooses to take,but can also be revealed once more."
+> "If you have love in your life, you must keep living."
 
-&mdash; [**Leonardo da Vinci**](https://myanimelist.net/character.php?q=Leonardo%20da%20Vinci&cat=character), [**Nobunaga The Fool**](https://myanimelist.net/search/all?q=Nobunaga%20The%20Fool&cat=all)
+&mdash; [**Juvia Loxar**](https://myanimelist.net/character.php?q=Juvia%20Loxar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
