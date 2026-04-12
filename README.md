@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can no longer believe in the person you love, then test him until you are satisfied."
+> "I am the Defender of the pride of New Hell...!!"
 
-&mdash; [**Bianchi**](https://myanimelist.net/character.php?q=Bianchi&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Hakua Du Lot Herminium**](https://myanimelist.net/character.php?q=Hakua%20Du%20Lot%20Herminium&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
