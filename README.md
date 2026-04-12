@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has desires they can't tell anyone about. It goes without saying."
+> "Everyone loses sight of themselves sometimes. Don't worry about it."
 
-&mdash; [**Yuuki Shinjuurou**](https://myanimelist.net/character.php?q=Yuuki%20Shinjuurou&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
+&mdash; [**Ichinose Hayato**](https://myanimelist.net/character.php?q=Ichinose%20Hayato&cat=character), [**Uta No Prince Sama**](https://myanimelist.net/search/all?q=Uta%20No%20Prince%20Sama&cat=all)
