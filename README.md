@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you truly want to continue escaping from everyday life, you've no other choice but to keep evolving. No matter whether you're aiming higher or lower."
+> "Tell me, how does it feel to live in a constant haze of stupidity?"
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
