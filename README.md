@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone loses sight of themselves sometimes. Don't worry about it."
+> "I hate, hate, HATE everyone. But that’s okay. I can use my screams to blow them all away. I’m sure dead people are a lot easier to deal with."
 
-&mdash; [**Ichinose Hayato**](https://myanimelist.net/character.php?q=Ichinose%20Hayato&cat=character), [**Uta No Prince Sama**](https://myanimelist.net/search/all?q=Uta%20No%20Prince%20Sama&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
