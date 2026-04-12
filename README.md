@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We didn’t give up on our dreams! We changed our dreams into your dream! That’s what parents do! That’s what a family does!"
+> "Everyone has desires they can't tell anyone about. It goes without saying."
 
-&mdash; [**Furukawa Akio**](https://myanimelist.net/character.php?q=Furukawa%20Akio&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Yuuki Shinjuurou**](https://myanimelist.net/character.php?q=Yuuki%20Shinjuurou&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
