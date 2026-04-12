@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whatever you do or don't do, you're the one who always makes the decision."
+> "Don't judge people from the outside. Like any rose has thorns, the more the person appears nice on the outside, the more you should doubt the inside."
 
-&mdash; [**Masafumi Takeuchi**](https://myanimelist.net/character.php?q=Masafumi%20Takeuchi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
