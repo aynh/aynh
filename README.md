@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I led me by the hand, as if to fill the niches in the memories in my oozing brain fluid. Without even a destination, we kept walking. Disgusting clouds were floating in the sky. I already know what will happen to me the next time I wake up."
+> "Mom taught me that people's differences are something to celebrate. When I thought of all the different shapes of human kindness -- imagining them as round or square...I got really excited. Your kindness is like a candle Sohma-kun. I can feel it light up, and I just want to smile. It's that kind of kindness."
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
