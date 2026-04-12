@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You gotta love humans. When everything sticks to the script, they can put on a great act. But as soon as something unexpected happens, they react completely true to their nature."
+> "Kira... fails to see he's being manipulated by the Naturals! Brilliant as he is, he is also naive and good-natured. They're exploiting him, but he's blind to it. That's why I have to go back! I have to reason with him! Kira is still a fellow Coordinator! I'm positive that he'll come around to our way of thinking."
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
