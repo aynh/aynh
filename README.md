@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A life with no adventure in it is boring. The least a friend can do is stir up a little trouble in your heart."
+> "We cannot go back to the past, no matter how hard we try. No matter how wonderful it was. The past is nothing but the past."
 
-&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
