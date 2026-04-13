@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't think, Natsu! It's not like you!"
+> "A life with no adventure in it is boring. The least a friend can do is stir up a little trouble in your heart."
 
-&mdash; [**Happy**](https://myanimelist.net/character.php?q=Happy&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Gai Tsutsugami**](https://myanimelist.net/character.php?q=Gai%20Tsutsugami&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
