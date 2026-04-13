@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's important is not what's right, but what we believe is right."
+> "Your new form is burning through more power than your body can supply. You should hav ewaited until you were used to this form and knew how to regulate it before you started picking fights."
 
-&mdash; [**Escha Malier**](https://myanimelist.net/character.php?q=Escha%20Malier&cat=character), [**Atelier Escha & Logy: Alchemists of the Dusk Sky**](https://myanimelist.net/search/all?q=Atelier%20Escha%20%26%20Logy%3A%20Alchemists%20of%20the%20Dusk%20Sky&cat=all)
+&mdash; [**Goku**](https://myanimelist.net/character.php?q=Goku&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
