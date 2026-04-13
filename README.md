@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't be upset because of what you can't do. Do what you do best, live as carefree and optimistically as you can, because some people aren't able to do that."
+> "Why do people lie? It isn't only because they struggle against each other, it's also because there is something that they're seeking."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
