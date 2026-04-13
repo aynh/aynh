@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sorry I'm late guys, a black cat crossed my path so I had to go the long way."
+> "Books are nice, aren't they? With just one sentence you can get lost in all sorts of dreams. They way I think of it, literature allows the reader's consciousness to deeply relish the author and be closer to him. And so, we freely walk around the world of the story from the yarn spinner's point of view. It's only when you immerse yourself in the world of a book that you are able to forget just who you are."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Shuu Tsukiyama**](https://myanimelist.net/character.php?q=Shuu%20Tsukiyama&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
