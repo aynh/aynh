@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've been through so many meetings and partings. They were like a heavy secret, but when I started to talk about them, they seemed to sparkle... I couldn't put them into words."
+> "Nature itself is absurd. Humans are the only ones who whine about it."
 
 &mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
