@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People have many things pent up inside of themselves."
+> "Don't think, Natsu! It's not like you!"
 
-&mdash; [**Tifa Lockhart**](https://myanimelist.net/character.php?q=Tifa%20Lockhart&cat=character), [**Final Fantasy VII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII&cat=all)
+&mdash; [**Happy**](https://myanimelist.net/character.php?q=Happy&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
