@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not possible to save everything. Prioritize your goals."
+> "'Those who believe will be saved'. It's just that I wanted to find out whether you'll be saved if you believed. If such a thing were true, I feel like I can change myself too."
 
-&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
