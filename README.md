@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why do people lie? It isn't only because they struggle against each other, it's also because there is something that they're seeking."
+> "What's important is not what's right, but what we believe is right."
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Escha Malier**](https://myanimelist.net/character.php?q=Escha%20Malier&cat=character), [**Atelier Escha & Logy: Alchemists of the Dusk Sky**](https://myanimelist.net/search/all?q=Atelier%20Escha%20%26%20Logy%3A%20Alchemists%20of%20the%20Dusk%20Sky&cat=all)
