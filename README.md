@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world would be in darkness without a sense of duty."
+> "When you're in a town like this, all covered with smoke - you forget that there's a world outside. Nothing amazing happens here. And you get used to that. Used to a world where everything is ordinary. Every day we spend here is like a whole lifetime of dying slowly. But now Haruko is here. That's how I know there really is a world outside."
 
-&mdash; [**Kasumi Fuu**](https://myanimelist.net/character.php?q=Kasumi%20Fuu&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Naota Nandaba**](https://myanimelist.net/character.php?q=Naota%20Nandaba&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
