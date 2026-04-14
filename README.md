@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, I get it. You couldn't see me since I'm so short, you couldn't distinguish me from all the grains of sand. VERY FUNNY!!"
+> "You can't just run away, especially from the things you want to forget!"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
