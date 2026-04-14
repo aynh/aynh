@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nature itself is absurd. Humans are the only ones who whine about it."
+> "Life is suffering. It is hard. The world is cursed. But still you find reasons to keep living."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
