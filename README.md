@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A heart's a heavy burden."
+> "The final door is about to open! And I am the one opening it! Then the world that we know of will come to an end! This world of insatiable desires will end!"
 
-&mdash; [**Sophie Hatter**](https://myanimelist.net/character.php?q=Sophie%20Hatter&cat=character), [**Howl's Moving Castle**](https://myanimelist.net/search/all?q=Howl's%20Moving%20Castle&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
