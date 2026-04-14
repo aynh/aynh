@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is suffering. It is hard. The world is cursed. But still you find reasons to keep living."
+> "Yeah, I get it. You couldn't see me since I'm so short, you couldn't distinguish me from all the grains of sand. VERY FUNNY!!"
 
-&mdash; [**Lady Eboshi**](https://myanimelist.net/character.php?q=Lady%20Eboshi&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
