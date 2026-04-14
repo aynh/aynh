@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "BLOOOOOOOOOOOOOOOD!!! MY BLOOOOOOOOOOOOOD!!!"
+> "Fear isn't a bad thing. There are some things that can only be done by cowards."
 
-&mdash; [**Gaara**](https://myanimelist.net/character.php?q=Gaara&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Shun Izuki**](https://myanimelist.net/character.php?q=Shun%20Izuki&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
