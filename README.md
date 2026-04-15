@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If things were to change, do you think you could ever fall in love with me? Or fulfill a dream for which I long? The world is about to change. That's why I'm here now. I've come and this will mean a new beginning for my life."
+> "In the end, there is no greater motivation than revenge."
 
-&mdash; [**Morgan Le Fay**](https://myanimelist.net/character.php?q=Morgan%20Le%20Fay&cat=character), [**Ah! My Goddess: The Movie**](https://myanimelist.net/search/all?q=Ah!%20My%20Goddess%3A%20The%20Movie&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
