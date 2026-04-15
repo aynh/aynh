@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how hard you practice, 'someday' and 'maybe' aren't good enough. I need to know if you have ambitious goals and the will to accomplish them."
+> "I don't sit like this because I want to. I have to sit like this. If I were to sit normally, my deductive skills will immediately be reduced by roughly 40%."
 
-&mdash; [**Kuroko No Basket**](https://myanimelist.net/character.php?q=Kuroko%20No%20Basket&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
