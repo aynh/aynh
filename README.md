@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In society, those who don't have many abilities, tend to complain more."
+> "Man fears the darkness, and so he scrapes away at the edges of it with fire. He creates life by diminishing the Darkness."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Rei Ayanami**](https://myanimelist.net/character.php?q=Rei%20Ayanami&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
