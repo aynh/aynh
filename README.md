@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans have the ability to actively put things to an end rather than simply accept what's in store."
+> "(In Gamma worldline, to Okabe) Look, even if we were enemies in the world you were before, right now I'm your only ally. Even if the whole world turned against you, I would continue to be your only ally."
 
-&mdash; [**Souda Manatsu**](https://myanimelist.net/character.php?q=Souda%20Manatsu&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
+&mdash; [**Moeka Kiryū**](https://myanimelist.net/character.php?q=Moeka%20Kiry%C5%AB&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
