@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't sit like this because I want to. I have to sit like this. If I were to sit normally, my deductive skills will immediately be reduced by roughly 40%."
+> "A rose will be born a rose. Different soil and water wouldn't change it into a different flower."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**Kara no Kyoukai**](https://myanimelist.net/search/all?q=Kara%20no%20Kyoukai&cat=all)
