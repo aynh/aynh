@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All men are jealous and stupid, and all women are stupid to be happy about it, idiots are everywhere you look!"
+> "Athrun Zala. Justice. Launching!"
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
