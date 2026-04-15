@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't need a reason to save someone."
+> "Humans have the ability to actively put things to an end rather than simply accept what's in store."
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Souda Manatsu**](https://myanimelist.net/character.php?q=Souda%20Manatsu&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
