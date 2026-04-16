@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Noooo, there's no way I, a mere handsome and sexy shopkeeper, could possibly have bankai!"
+> "No matter what my heart will be forever yours and I will fight until the day I see you again."
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
