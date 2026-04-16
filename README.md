@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Saying humans can't be trusted, please never use such words again!"
+> "Noooo, there's no way I, a mere handsome and sexy shopkeeper, could possibly have bankai!"
 
-&mdash; [**Kanzaki Nao**](https://myanimelist.net/character.php?q=Kanzaki%20Nao&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
