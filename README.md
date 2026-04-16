@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those three are best friends.  They have their respective secrets.  And they're deliberately trying not to give themselves away.  But neither Orihara or Shizuo had any secrets whatsoever.  And that resulted in the complete opposite kind of personal relationship."
+> "Drat, we wasted this episode cheering the good guys!"
 
-&mdash; [**Shinra Kishitani**](https://myanimelist.net/character.php?q=Shinra%20Kishitani&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
