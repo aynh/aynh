@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I feel confined, only free to expand myself within boundaries."
+> "*talking about Shinsengumi* Every time I'm with all of you, there's always a gap. I'm different from all of you."
 
-&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
