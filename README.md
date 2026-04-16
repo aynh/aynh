@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[upon arriving at Szayel Aporro Grantz's location] Arrancar, Arrancar, Arrancar... Espada! Hueco Mundo is quite the treasure trove."
+> "Those three are best friends.  They have their respective secrets.  And they're deliberately trying not to give themselves away.  But neither Orihara or Shizuo had any secrets whatsoever.  And that resulted in the complete opposite kind of personal relationship."
 
-&mdash; [**Kurotsuchi Mayuri**](https://myanimelist.net/character.php?q=Kurotsuchi%20Mayuri&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Shinra Kishitani**](https://myanimelist.net/character.php?q=Shinra%20Kishitani&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
