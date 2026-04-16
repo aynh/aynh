@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Real men know when to run like a little bitch."
+> "It's too late to regret. Reality is just cruelly moving forward."
 
-&mdash; [**Sunabouzu**](https://myanimelist.net/character.php?q=Sunabouzu&cat=character), [**Sunabouzu**](https://myanimelist.net/search/all?q=Sunabouzu&cat=all)
+&mdash; [**Tobi**](https://myanimelist.net/character.php?q=Tobi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
