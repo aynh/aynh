@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When it's time for the flowers to bloom, they'll bloom. When it's time for spring to come, it'll come."
+> "Real men know when to run like a little bitch."
 
-&mdash; [**Atsushi Shimao**](https://myanimelist.net/character.php?q=Atsushi%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
+&mdash; [**Sunabouzu**](https://myanimelist.net/character.php?q=Sunabouzu&cat=character), [**Sunabouzu**](https://myanimelist.net/search/all?q=Sunabouzu&cat=all)
