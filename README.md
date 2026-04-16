@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end, there is no greater motivation than revenge."
+> "Saying humans can't be trusted, please never use such words again!"
 
-&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Kanzaki Nao**](https://myanimelist.net/character.php?q=Kanzaki%20Nao&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
