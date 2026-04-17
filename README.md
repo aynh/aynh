@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death by sword. Death by broken bones. Death by crushing. There's not much difference, right? You die at the end."
+> "Come on, scribbles on the bathroom wall, please show me the path that I must follow!"
 
-&mdash; [**Ainz Ooal Gown**](https://myanimelist.net/character.php?q=Ainz%20Ooal%20Gown&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
+&mdash; [**Excel**](https://myanimelist.net/character.php?q=Excel&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
