@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The same thing as always. No matter how many times I reach game over and no matter how many times I must pathetically hit continue, I will not stop moving forward."
+> "Sometimes when I'd go to visit her in the hospital...she would purposely avoid me. Then I didn't know what she was thinking about anymore... (to Yuki, about Rin)"
 
-&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
