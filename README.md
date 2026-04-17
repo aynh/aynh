@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Come on, scribbles on the bathroom wall, please show me the path that I must follow!"
+> "When you lose something, you gotta find something to take its place. I guess it's just time... for me to move forward for once."
 
-&mdash; [**Excel**](https://myanimelist.net/character.php?q=Excel&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
+&mdash; [**Kato Kenichi**](https://myanimelist.net/character.php?q=Kato%20Kenichi&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
