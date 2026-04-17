@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's odd, isn't it? People die everyday and the world goes on like nothing happened."
+> "When you're in a town like this, all covered with smoke - you forget that there's a world outside. Nothing amazing happens here. And you get used to that. Used to a world where everything is ordinary. Every day we spend here is like a whole lifetime of dying slowly. But now Haruko is here. That's how I know there really is a world outside."
 
-&mdash; [**Kyōko Kirigiri**](https://myanimelist.net/character.php?q=Ky%C5%8Dko%20Kirigiri&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Naota Nandaba**](https://myanimelist.net/character.php?q=Naota%20Nandaba&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
