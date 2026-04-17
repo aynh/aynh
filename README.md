@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes when I'd go to visit her in the hospital...she would purposely avoid me. Then I didn't know what she was thinking about anymore... (to Yuki, about Rin)"
+> "Logic is panic's prey."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
