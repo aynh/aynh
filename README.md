@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you lose something, you gotta find something to take its place. I guess it's just time... for me to move forward for once."
+> "This world is far more complicated, rich and full of mystery, than people think."
 
-&mdash; [**Kato Kenichi**](https://myanimelist.net/character.php?q=Kato%20Kenichi&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Jirou Hatori**](https://myanimelist.net/character.php?q=Jirou%20Hatori&cat=character), [**Zettai Shonen**](https://myanimelist.net/search/all?q=Zettai%20Shonen&cat=all)
