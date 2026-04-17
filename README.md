@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If so many people believe in this, the lies will become reality. That's the so called group mentality."
+> "Death by sword. Death by broken bones. Death by crushing. There's not much difference, right? You die at the end."
 
-&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Ainz Ooal Gown**](https://myanimelist.net/character.php?q=Ainz%20Ooal%20Gown&cat=character), [**Overlord**](https://myanimelist.net/search/all?q=Overlord&cat=all)
