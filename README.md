@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Making someone I hate suffer feels really great!!"
+> "Don't start a fight that you can't finish."
 
-&mdash; [**Megumi Shimizu**](https://myanimelist.net/character.php?q=Megumi%20Shimizu&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
+&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
