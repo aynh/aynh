@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world is far more complicated, rich and full of mystery, than people think."
+> "Everyone makes mistakes the first time around."
 
-&mdash; [**Jirou Hatori**](https://myanimelist.net/character.php?q=Jirou%20Hatori&cat=character), [**Zettai Shonen**](https://myanimelist.net/search/all?q=Zettai%20Shonen&cat=all)
+&mdash; [**Hikari**](https://myanimelist.net/character.php?q=Hikari&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
