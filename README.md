@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I would come up there and finish you off. If you didn't look half dead already."
+> "NOW, SPARKLE, MY HOUSE OF LEARNING!!"
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Sohma Ayame**](https://myanimelist.net/character.php?q=Sohma%20Ayame&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
