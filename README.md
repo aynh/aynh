@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Justice? Truth? More than anything else existing in this world, those things are a burden! The things that are needed are 'acting' to deceive people and 'power' to control others."
+> "It doesn't matter how good your armor is... if you can barely move!"
 
-&mdash; [**Natsu Tanimoto**](https://myanimelist.net/character.php?q=Natsu%20Tanimoto&cat=character), [**KenIchi the Mightiest Disciple**](https://myanimelist.net/search/all?q=KenIchi%20the%20Mightiest%20Disciple&cat=all)
+&mdash; [**Miguel Aiman**](https://myanimelist.net/character.php?q=Miguel%20Aiman&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
