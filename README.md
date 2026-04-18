@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes feelings get tangled together with deductions, forming a veil that hides the truth."
+> "I would come up there and finish you off. If you didn't look half dead already."
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
