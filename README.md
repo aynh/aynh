@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because it has powers that surpass everything, a king must cut off his own desires and never use it."
+> "Believe in yourself and create your own destiny. Don't fear fate."
 
-&mdash; [**Durandal Tobari Kumohira**](https://myanimelist.net/character.php?q=Durandal%20Tobari%20Kumohira&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Outlaw Star**](https://myanimelist.net/character.php?q=Outlaw%20Star&cat=character), [**Outlaw Star**](https://myanimelist.net/search/all?q=Outlaw%20Star&cat=all)
