@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The truth is, there are no lives that are nothing but pretty."
+> "There's no knowing how others are feeling unless you ask them. And your feelings can't get through to others unless you tell them directly."
 
-&mdash; [**Nona**](https://myanimelist.net/character.php?q=Nona&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
