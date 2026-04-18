@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no knowing how others are feeling unless you ask them. And your feelings can't get through to others unless you tell them directly."
+> "Stop coming after the jewel. I do not wish to waste more arrows."
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
