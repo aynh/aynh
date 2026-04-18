@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Believe in yourself and create your own destiny. Don't fear fate."
+> "I'm sorry, but I never lose to the same opponent twice."
 
-&mdash; [**Outlaw Star**](https://myanimelist.net/character.php?q=Outlaw%20Star&cat=character), [**Outlaw Star**](https://myanimelist.net/search/all?q=Outlaw%20Star&cat=all)
+&mdash; [**Fuji Shuusuke**](https://myanimelist.net/character.php?q=Fuji%20Shuusuke&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
