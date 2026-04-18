@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone makes mistakes the first time around."
+> "Sometimes feelings get tangled together with deductions, forming a veil that hides the truth."
 
-&mdash; [**Hikari**](https://myanimelist.net/character.php?q=Hikari&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
