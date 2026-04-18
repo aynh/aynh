@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's human nature to judge by appearance. It's not just males who are superficial. No one bothers about things they cannot see... like the heart."
+> "Even if you can't walk or stand and even if you can't have kids, I'll still marry you, I'll always stay by your side."
 
-&mdash; [**Yuzuru Shino**](https://myanimelist.net/character.php?q=Yuzuru%20Shino&cat=character), [**Seven Days**](https://myanimelist.net/search/all?q=Seven%20Days&cat=all)
+&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
