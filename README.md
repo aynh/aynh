@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm sorry, but I never lose to the same opponent twice."
+> "Justice? Truth? More than anything else existing in this world, those things are a burden! The things that are needed are 'acting' to deceive people and 'power' to control others."
 
-&mdash; [**Fuji Shuusuke**](https://myanimelist.net/character.php?q=Fuji%20Shuusuke&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Natsu Tanimoto**](https://myanimelist.net/character.php?q=Natsu%20Tanimoto&cat=character), [**KenIchi the Mightiest Disciple**](https://myanimelist.net/search/all?q=KenIchi%20the%20Mightiest%20Disciple&cat=all)
