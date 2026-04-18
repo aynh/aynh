@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No man's life is worth more than another! If you're gonna put your life on the line, you do it as equals! I don't care if you're brothers, or master and apprentice, or whatever! You should only die for a guy who'd die for you! There's nothing honorable about throwing your life away as though it's nothing! That's just showing off like a kid."
+> "My goal is so far away that I'm not even on the starting line yet."
 
-&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
