@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Loneliness' is no longer part of my vocabulary."
+> "Of course, if you lose in fighting it'd be a problem, but it's also a problem if you lose in character"
 
-&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Togame**](https://myanimelist.net/character.php?q=Togame&cat=character), [**Katanagatari**](https://myanimelist.net/search/all?q=Katanagatari&cat=all)
