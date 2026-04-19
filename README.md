@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as I can be with you, I dont care what anyone says or how much I’m detested. As long as I can be with the one I love, that alone makes it okay. That’s what I longed for."
+> "Every one of us must do what's in their power! If we're going to die anyway, then it's better to die fighting than to do nothing!"
 
-&mdash; [**Yuzuki Eba**](https://myanimelist.net/character.php?q=Yuzuki%20Eba&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
+&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
