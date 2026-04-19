@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Zuko* You're looking at the rare white dragon bush. It's leaves make a tea sooo delicious, it's heartbreaking... THAT, or it's the white jade bush, which is poisonous."
+> "I have to accept that who I want to become and who I can actually become are different."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
