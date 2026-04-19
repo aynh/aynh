@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Of course, if you lose in fighting it'd be a problem, but it's also a problem if you lose in character"
+> "You'll never know what's right or wrong until everything is over."
 
-&mdash; [**Togame**](https://myanimelist.net/character.php?q=Togame&cat=character), [**Katanagatari**](https://myanimelist.net/search/all?q=Katanagatari&cat=all)
+&mdash; [**Soldier Blue**](https://myanimelist.net/character.php?q=Soldier%20Blue&cat=character), [**Terra E**](https://myanimelist.net/search/all?q=Terra%20E&cat=all)
