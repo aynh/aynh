@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're in a position to save people, you should never even joke like that. My father...The doctor...Would never abandon anyone. He'd never give up on a person's life, even if they tried to throw it away."
+> "Tell me, how does it feel to live in a constant haze of stupidity?"
 
-&mdash; [**Hiyori Iki**](https://myanimelist.net/character.php?q=Hiyori%20Iki&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
