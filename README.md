@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that education will prove the most powerful force in this world."
+> "You know what, I wish I could give everyone a happy ending. But life isn't some romantic anime and I can't fix what's wrong in life stumbling around being oblivious and nice all the time."
 
-&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
+&mdash; [**Kodaka Hasegawa**](https://myanimelist.net/character.php?q=Kodaka%20Hasegawa&cat=character), [**Boku wa Tomodachi ga Sukunai NEXT**](https://myanimelist.net/search/all?q=Boku%20wa%20Tomodachi%20ga%20Sukunai%20NEXT&cat=all)
