@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A journey of a thousand miles begins with a single step. Even though each step is small, you never know if you'll end up achieving your major goal."
+> "There are times when working hard may not be enough. But those who succeed worked hard."
 
-&mdash; [**Ensei Rou**](https://myanimelist.net/character.php?q=Ensei%20Rou&cat=character), [**The Story of Saiunkoku**](https://myanimelist.net/search/all?q=The%20Story%20of%20Saiunkoku&cat=all)
+&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
