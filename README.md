@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're helping someone and expecting something in return, you're doing business not kindness."
+> "Why do people lie? It isn't only because they struggle against each other, it's also because there is something that they're seeking."
 
-&mdash; [**Shirayuki**](https://myanimelist.net/character.php?q=Shirayuki&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
