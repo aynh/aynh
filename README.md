@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing beats a cup of herbal tea in the morning."
+> "To kill is an action which overflows in everyday life. In actuality the more you try to be accepted, the more you kill your unrestrained self."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
