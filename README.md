@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how painful, no matter how much solitary struggle awaits us, because we have joyous moments like this, we can face the challenges over and over again."
+> "People...At least, all children are born into a world that seems unreasonable and crazy to them. No one is asked at birth if they agree to come into the world. Everyone is born that way."
 
-&mdash; [**Chiaki Shinichi**](https://myanimelist.net/character.php?q=Chiaki%20Shinichi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
+&mdash; [**Nyanta**](https://myanimelist.net/character.php?q=Nyanta&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
