@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True happiness comes from overcoming suffering. No one can shoulder your burdens for you."
+> "Seeing them as the same is wrong. It's a touchy subject, but the weight of something you bear with your own power and with someone else's are different."
 
-&mdash; [**Labrador**](https://myanimelist.net/character.php?q=Labrador&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
