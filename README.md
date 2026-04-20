@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's sad when people die."
+> "True happiness comes from overcoming suffering. No one can shoulder your burdens for you."
 
-&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Labrador**](https://myanimelist.net/character.php?q=Labrador&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
