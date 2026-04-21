@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know no one expects much from me! And I know better than anyone how useless a C Class hero is! I know I'm too weak even for B Class! I know more than anyone else that I'll never beat you! But I must fight you anyway! I'm the only one left! It's not about winning or losing! I just have to stand here and face you!"
+> "I guess not knowing someone doesn't mean you don't understand them."
 
-&mdash; [**Mumen Rider**](https://myanimelist.net/character.php?q=Mumen%20Rider&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Kyōko Kirigiri**](https://myanimelist.net/character.php?q=Ky%C5%8Dko%20Kirigiri&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
