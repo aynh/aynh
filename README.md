@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care if you're the son of the president or what. That just shows the success of your father. It doesn't mean you are excellent too."
+> "Until just recently, the stars were something I only saw by myself."
 
-&mdash; [**Mikoto Kujou**](https://myanimelist.net/character.php?q=Mikoto%20Kujou&cat=character), [**Last Game**](https://myanimelist.net/search/all?q=Last%20Game&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
