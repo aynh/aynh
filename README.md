@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Until just recently, the stars were something I only saw by myself."
+> "Sometimes, forgetting is a type of happiness."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Kaname Kuran**](https://myanimelist.net/character.php?q=Kaname%20Kuran&cat=character), [**Vampire Knight**](https://myanimelist.net/search/all?q=Vampire%20Knight&cat=all)
