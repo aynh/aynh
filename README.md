@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time for action, Weezing!"
+> "Can a world this interesting actually be reality?"
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Lau**](https://myanimelist.net/character.php?q=Lau&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
