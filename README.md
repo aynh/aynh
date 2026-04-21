@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's easy for girls to take advantage of your kindness, so be careful."
+> "For a second there I thought the floor was going to--AAAAAAAAAAAAAAAAAAAAAA!! Where'd the ground go?"
 
-&mdash; [**Suruga Kanbaru**](https://myanimelist.net/character.php?q=Suruga%20Kanbaru&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
