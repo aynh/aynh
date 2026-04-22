@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether we move forward or stop, we're going in different directions little by little."
+> "The only reason I must rely on this sword is because I am imperfect. A true warrior...Needs no sword"
 
-&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
+&mdash; [**Thors**](https://myanimelist.net/character.php?q=Thors&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
