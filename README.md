@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nine-Tails, you are merely a momentary life, a temporary existence of coalesced energy... energy that once was a single, ultimate form! An unstable force, lacking in intelligence or sapience, you require a guide to show you purpose. That guide is the Uchiha! The tailed beasts are but slaves to those with blessed eyes. Obey!"
+> "You just went for my head, didn't you? You know you could kill someone by hitting a vital spot in their head, right? If you know this, then you were trying to kill me, right? So whatever I do next is what you deserve, right?"
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Shizuo Heiwajima**](https://myanimelist.net/character.php?q=Shizuo%20Heiwajima&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
