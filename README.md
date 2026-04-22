@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no such thing as a person who doesn’t belong. You’re here because there’s someone who wants you to be here."
+> "Are you, what they call, a heart?"
 
-&mdash; [**Seki Kenji**](https://myanimelist.net/character.php?q=Seki%20Kenji&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
+&mdash; [**Argentine**](https://myanimelist.net/character.php?q=Argentine&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
