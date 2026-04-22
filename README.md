@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear comes from within, and isn’t something that can be conquered psychologically in such a short while."
+> "I can't lose against myself. There's no element that would make me lose if our powers are equal. To admit defeat against such an enemy is to declare that I'm wrong."
 
-&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
