@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am your weapon partner Maka! That means I'm always prepared to die for my Meister!"
+> "You can't just run away, especially from the things you want to forget!"
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
