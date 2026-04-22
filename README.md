@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One guy's killed for killing another and then he's killed for killing him. How is that kind of twisted thinking ever gonna bring us peace?"
+> "That's how Sokka started. Now look at him! He thinks he's an Earthbender!"
 
-&mdash; [**Cagalli Yula Athha**](https://myanimelist.net/character.php?q=Cagalli%20Yula%20Athha&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
