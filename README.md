@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For a second there I thought the floor was going to--AAAAAAAAAAAAAAAAAAAAAA!! Where'd the ground go?"
+> "There’s no such thing as a person who doesn’t belong. You’re here because there’s someone who wants you to be here."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Seki Kenji**](https://myanimelist.net/character.php?q=Seki%20Kenji&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
