@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't just run away, especially from the things you want to forget!"
+> "This little girl, who's not even half my size... taught me that tears can flow even from these silver eyes."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
