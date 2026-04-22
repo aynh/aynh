@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you, what they call, a heart?"
+> "When I realized, I was already on the roof of a building. ...I had come to hate everything. I was sick of sitting in my room holding my knees too. If nobody was going to notice or care if I died then... what's the point in living?"
 
-&mdash; [**Argentine**](https://myanimelist.net/character.php?q=Argentine&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Moeka Kiryū**](https://myanimelist.net/character.php?q=Moeka%20Kiry%C5%AB&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
