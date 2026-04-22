@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This little girl, who's not even half my size... taught me that tears can flow even from these silver eyes."
+> "Whether we move forward or stop, we're going in different directions little by little."
 
-&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
