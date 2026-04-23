@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wanted to be saved too..."
+> "I dreamed that you were a dog. And the dog was my husband. Anyway, it was the worst dream ever."
 
-&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
