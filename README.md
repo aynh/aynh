@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Tayuya* How many times do I have to tell you? The first move is always a feint. It's the most basic thing, to land a hit with the second move."
+> "I'm not stupid. I'm just too lazy to show how smart I am."
 
-&mdash; [**Nara Shikamaru**](https://myanimelist.net/character.php?q=Nara%20Shikamaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
