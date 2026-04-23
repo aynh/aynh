@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "* The Zone * In this state of extreme focus, all unnecessary thoughts disappear and the athlete becomes absorbed in his play. Only those who have practiced and practiced earn the right to stand before the door, and it only opens unpredictably. It is the ultimate domain, open only to the chosen."
+> "Just as no matter how hard you try to keep it away, despair will attack you again and again. In the same manner, hope will return to you. Again and again."
 
-&mdash; [**Kuroko No Basket**](https://myanimelist.net/character.php?q=Kuroko%20No%20Basket&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Kazuma Sohma**](https://myanimelist.net/character.php?q=Kazuma%20Sohma&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
