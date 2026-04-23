@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Inside my memories lies sad thoughts and it's hard to forget, but I try everyday to keep moving forward in life, so why can't you, living in saddness isn't living at all."
+> "What if that fruit you've worked so hard to nurture gets pulled off the branch the next morning? You'll regret that you didn't choose to harvest it the previous day instead of complaining. That regret really hurts. It'll make you crawl through hell."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Ushiromiya Kyrie**](https://myanimelist.net/character.php?q=Ushiromiya%20Kyrie&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
