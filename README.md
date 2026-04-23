@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To be loved out of sympathy is more devastating than to be rejected."
+> "You do them one favor and they think you're their best friend. This is why I could care less if their entire species was swallowed up."
 
-&mdash; [**Shinobu Takatsuki**](https://myanimelist.net/character.php?q=Shinobu%20Takatsuki&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
