@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I dreamed that you were a dog. And the dog was my husband. Anyway, it was the worst dream ever."
+> "Hide the truth. Manipulate information. Use intimidation."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
