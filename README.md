@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Inherited will, the swelling of the changing times, and the dreams of people. These are things that cannot be stopped. As long as people seek the answer to freedom, these will never cease to be!"
+> "Where in this world can a sane man be found? We're the same. We're all the same. None of us understands what it means to love all. Or the meaning of life...Or the meaning of death...Or the meaning of our own battles."
 
-&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Canute**](https://myanimelist.net/character.php?q=Canute&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
