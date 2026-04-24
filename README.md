@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A normal detective eavesdrops, goes on stakeouts, and gathers information by foot to find out what they're looking for. But a NEET detective can search the world over to find the truth without stepping out of their room!"
+> "Indeed. I wanted to see Oceanus with my own eyes. Unfortunately, my dream never came true. Oceanus is still my final destination. A dream that never ends. Go ahead and laugh. Two thousand years later, and I still have the same dream. Every bit the fool as well. And so boy... a pact with a fellow idiot seems ideal."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
