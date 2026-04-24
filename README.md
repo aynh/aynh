@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Where in this world can a sane man be found? We're the same. We're all the same. None of us understands what it means to love all. Or the meaning of life...Or the meaning of death...Or the meaning of our own battles."
+> "I'll give it a try. Anything that man can do, I'm sure I can do just as well."
 
-&mdash; [**Canute**](https://myanimelist.net/character.php?q=Canute&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
