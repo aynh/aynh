@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll give it a try. Anything that man can do, I'm sure I can do just as well."
+> "Are you not your own master? You should walk the path you desire. No one else should be able to stop you."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Jet**](https://myanimelist.net/character.php?q=Jet&cat=character), [**Neo Angelique Abyss -Second Age-**](https://myanimelist.net/search/all?q=Neo%20Angelique%20Abyss%20-Second%20Age-&cat=all)
