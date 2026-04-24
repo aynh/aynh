@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Indeed. I wanted to see Oceanus with my own eyes. Unfortunately, my dream never came true. Oceanus is still my final destination. A dream that never ends. Go ahead and laugh. Two thousand years later, and I still have the same dream. Every bit the fool as well. And so boy... a pact with a fellow idiot seems ideal."
+> "Inherited will, the swelling of the changing times, and the dreams of people. These are things that cannot be stopped. As long as people seek the answer to freedom, these will never cease to be!"
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
