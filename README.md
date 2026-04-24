@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A bratty little midget."
+> "If you're always positive, good luck will eventually find you."
 
-&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Fe-chan**](https://myanimelist.net/character.php?q=Fe-chan&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
