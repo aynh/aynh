@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you not your own master? You should walk the path you desire. No one else should be able to stop you."
+> "The biggest mistake in my life is that i was born!"
 
-&mdash; [**Jet**](https://myanimelist.net/character.php?q=Jet&cat=character), [**Neo Angelique Abyss -Second Age-**](https://myanimelist.net/search/all?q=Neo%20Angelique%20Abyss%20-Second%20Age-&cat=all)
+&mdash; [**Itoshiki Nozomu**](https://myanimelist.net/character.php?q=Itoshiki%20Nozomu&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
