@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oh, I'm sorry. Her head's so empty, so I mistook her for a vase and put flowers in her. You might want to spit that out quick, though. Those can be quite poisonous."
+> "People are beings where a love of what's right goes hand in hand with a desire to do all manner of evil acts."
 
-&mdash; [**Ino Yamanaka**](https://myanimelist.net/character.php?q=Ino%20Yamanaka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Yuuki Shinjuurou**](https://myanimelist.net/character.php?q=Yuuki%20Shinjuurou&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
