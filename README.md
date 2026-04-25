@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Charging from the front isn't the only way to cross a wall. If pushing doesn't work, why not try pulling? Try thinking from the opposite direction, you might be able to find a new way out."
+> "Fear is proof that your imagination is functioning. Frankly, I feel bad for anyone who can't feel fear. Without imagination, you can never deduce which action to take next."
 
-&mdash; [**Kou Kazamatsuri**](https://myanimelist.net/character.php?q=Kou%20Kazamatsuri&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
+&mdash; [**Kyōko Kirigiri**](https://myanimelist.net/character.php?q=Ky%C5%8Dko%20Kirigiri&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
