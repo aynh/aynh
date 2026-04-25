@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear is proof that your imagination is functioning. Frankly, I feel bad for anyone who can't feel fear. Without imagination, you can never deduce which action to take next."
+> "Haven't you already lifted your foot, preparing to step forward? Then you only have one option! Finish taking that step!"
 
-&mdash; [**Kyōko Kirigiri**](https://myanimelist.net/character.php?q=Ky%C5%8Dko%20Kirigiri&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Sumire Kanō**](https://myanimelist.net/character.php?q=Sumire%20Kan%C5%8D&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
