@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The things that are most important aren't written in books. You have to learn them by experiencing them yourself."
+> "I have to accept that who I want to become and who I can actually become are different."
 
-&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
