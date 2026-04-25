@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He wouldn't notice if I got a crew cut, shaved my head bald, or even grew an afro!"
+> "Charging from the front isn't the only way to cross a wall. If pushing doesn't work, why not try pulling? Try thinking from the opposite direction, you might be able to find a new way out."
 
-&mdash; [**Riku Harada**](https://myanimelist.net/character.php?q=Riku%20Harada&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Kou Kazamatsuri**](https://myanimelist.net/character.php?q=Kou%20Kazamatsuri&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
