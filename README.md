@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You want me to roll over like a dog? Give up, and accept defeat.. Ha! That seems to be the sort of language that your kind is used to using. Language for cowards who forfeited their humanity, because they were too weak to survive as such. Don’t look down on humans, you monsters. Come on. I’ll send you all to hell."
+> "Ever since I was little, I've always been curious. Why doesn't the witch, who can use her magic to transform a shabby girl into someone lovely, cast a spell on herself? If she used her magic on herself, she could become lovely too. The witch does not use her magic on herself because she knows the emptiness that follows when the spell breaks."
 
-&mdash; [**Integra Hellsing**](https://myanimelist.net/character.php?q=Integra%20Hellsing&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
