@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Haven't you already lifted your foot, preparing to step forward? Then you only have one option! Finish taking that step!"
+> "I'm just letting you know, I'm not telling you this because I want your pity! I'm just fed up with humans, that's all! They tell lie after lie, only accepting people who are the same as they are! Humans are such hypocrites!"
 
-&mdash; [**Sumire Kanō**](https://myanimelist.net/character.php?q=Sumire%20Kan%C5%8D&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
