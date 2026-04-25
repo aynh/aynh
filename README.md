@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, all it did was go around in a full circle."
+> "The things that are most important aren't written in books. You have to learn them by experiencing them yourself."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
