@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing you or your friends say will affect my life in any way, shape, or form."
+> "The society you all live in has long since turned into the Liar Game. Still, what all of you demonstrated through this game is that 'Believing' is by no means, an easy path to follow. Sometimes, taking it means allowing yourself be deceived or suffering heavy damage you will not ever recover from. And yet, 'Trust' born when you forget your personal interests and join forces to fight against the odds together holds tremendous power."
 
-&mdash; [**Jinta Yadomi**](https://myanimelist.net/character.php?q=Jinta%20Yadomi&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
+&mdash; [**Artier**](https://myanimelist.net/character.php?q=Artier&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
