@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You play like you're jacking off. [about Ryuu playing piano]"
+> "The first requirement of being a hero isn't being right. It's being strong. That's why the hero always wins."
 
-&mdash; [**Noda Megumi**](https://myanimelist.net/character.php?q=Noda%20Megumi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
