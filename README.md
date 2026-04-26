@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People are beings where a love of what's right goes hand in hand with a desire to do all manner of evil acts."
+> "If you truly desire greatness, you must first know what makes you weak!"
 
-&mdash; [**Yuuki Shinjuurou**](https://myanimelist.net/character.php?q=Yuuki%20Shinjuurou&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
