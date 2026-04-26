@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm selfish, I know. But to keep you only mine, I will do everything I needed to do, even if it's illegal."
+> "It's not like I'm pessimistic or anything... I'm just moving forward without looking back."
 
-&mdash; [**Gasai Yuno**](https://myanimelist.net/character.php?q=Gasai%20Yuno&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
