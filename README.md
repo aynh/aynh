@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Aang* You need to find someone who WAITS and LISTENS before striking."
+> "You play like you're jacking off. [about Ryuu playing piano]"
 
-&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Noda Megumi**](https://myanimelist.net/character.php?q=Noda%20Megumi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
