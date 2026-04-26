@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have a simpler motive. Experimentation and observation - that's all a true scientist cares about. And I am a scientist. Everything in the world is an experimental test subject, of course, that includes myself as well."
+> "A cowardly thief would sneak away in the night; the King of Conquerors leaves with his loot amidst songs of victory!"
 
-&mdash; [**Franken Stein**](https://myanimelist.net/character.php?q=Franken%20Stein&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
