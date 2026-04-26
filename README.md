@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I feel lonely when someone is leaving, it means that the person is very close to me."
+> "It's not the final judgement of 'good' and 'evil' that's important. What matters is that you come to that decision yourself. That you agonize over it and eventually accept it."
 
-&mdash; [**Yoshii Akihisa**](https://myanimelist.net/character.php?q=Yoshii%20Akihisa&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Akane Tsunemori**](https://myanimelist.net/character.php?q=Akane%20Tsunemori&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
