@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The Idealist says, everyone is born equal. We are all of equal worth. The sportsman screams, no effort goes unrewarded. Work hard for your dreams! It's about how you play the game. Obviously all untrue."
+> "*to Aang* You need to find someone who WAITS and LISTENS before striking."
 
-&mdash; [**Haruki Aritomi**](https://myanimelist.net/character.php?q=Haruki%20Aritomi&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
