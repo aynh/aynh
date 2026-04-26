@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kyo-kun! Kyo-kun! I do love you, Kyo-kun! I love you!!!"
+> "Hold your tongue, the dead don't speak."
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
