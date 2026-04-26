@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not like I'm pessimistic or anything... I'm just moving forward without looking back."
+> "Watching TV or playing games alone is more fun. Playing along with your friends' hobbies... Laughing at their jokes when they're not funny... All that does is tire me out."
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
