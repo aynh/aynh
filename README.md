@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I intended to listen to your voice, but it really was nothing but intentions. It's pretty obvious, huh? Of course there's more going on than what people choose to tell you... But I convinced myself that was all there is to a person. I knew that, but still I interpreted the stuff I didn't understand about you in ways convenient for me... That's just how I am."
+> "And there you go. You heard her, Iri. Our Heroic Spirit thinks a battlefield to be something better than Hell. What a joke. It's Hell itself. There is no hope on a battlefield. There is nothing but unspeakable despair. Just a crime we call victory, paid for by the pain of the defeated. But humanity has never recognized this truth. And the reason is that, in every era, a dazzling hero has blinded the people with their legends, and kept them from seeing the evil of bloodshed. True human nature has not advanced a step beyond the Stone Age."
 
-&mdash; [**Shouya Ishida**](https://myanimelist.net/character.php?q=Shouya%20Ishida&cat=character), [**Koe no Katachi**](https://myanimelist.net/search/all?q=Koe%20no%20Katachi&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
