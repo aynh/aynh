@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[looking through a periscope at the dust cloud Toph made] Hey... Look at that dust cloud. It's so...poofy! [Mimes by closing and opening her hand] Poof!"
+> "*To Haruhi Fujioka about him helping her search for her wallet in water* A little water never hurt anyone. Besides, people are always telling me that I'm dripping with good looks."
 
-&mdash; [**Ty Lee**](https://myanimelist.net/character.php?q=Ty%20Lee&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
