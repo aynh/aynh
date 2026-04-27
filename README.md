@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It is a tasteless life if you don't have something you regret."
+> "Words are imperfect. Putting it in words will just create misunderstandings. Words are the root of misunderstandings."
 
-&mdash; [**Inu X Boku SS**](https://myanimelist.net/character.php?q=Inu%20X%20Boku%20SS&cat=character), [**Inu X Boku SS**](https://myanimelist.net/search/all?q=Inu%20X%20Boku%20SS&cat=all)
+&mdash; [**Nagi Sanzenin**](https://myanimelist.net/character.php?q=Nagi%20Sanzenin&cat=character), [**Hayate no Gotoku!**](https://myanimelist.net/search/all?q=Hayate%20no%20Gotoku!&cat=all)
