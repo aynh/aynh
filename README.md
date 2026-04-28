@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Religion, ideology, resources, land, spite, love or just because. No matter how pathetic the reason, it's enough to start a war."
+> "When people make a mistake, it is nice to give them advice, but... if they don’t listen, just leave them alone. Otherwise you'll do yourself a disservice by wasting your time and effort."
 
-&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
