@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people make a mistake, it is nice to give them advice, but... if they don’t listen, just leave them alone. Otherwise you'll do yourself a disservice by wasting your time and effort."
+> "'Selection' is important. Even in life. Living, dying, killing are all the results from your selection. Bad luck? Poor fortune? Poor judges of character? You're wrong. It's a selection error for not thinking thoroughly and choosing the answer without proper consideration."
 
-&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Blue Owl**](https://myanimelist.net/character.php?q=Blue%20Owl&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
