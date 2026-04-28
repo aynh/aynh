@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Selection' is important. Even in life. Living, dying, killing are all the results from your selection. Bad luck? Poor fortune? Poor judges of character? You're wrong. It's a selection error for not thinking thoroughly and choosing the answer without proper consideration."
+> "Everyone's birthplace and upbringing is different. It's obviously impossible for them to understand each other."
 
-&mdash; [**Blue Owl**](https://myanimelist.net/character.php?q=Blue%20Owl&cat=character), [**Torikago no Tsugai**](https://myanimelist.net/search/all?q=Torikago%20no%20Tsugai&cat=all)
+&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
