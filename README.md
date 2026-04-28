@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone's birthplace and upbringing is different. It's obviously impossible for them to understand each other."
+> "You shy, little boy."
 
-&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
