@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Little by little, what you’ve begun will naturally become important to you. What you need at the start is a little bit of curiosity."
+> "Today, everything's shining brightly! The air, the people, and even this classroom; because today, I actually did my homework!"
 
-&mdash; [**Kiyoko Shimizu**](https://myanimelist.net/character.php?q=Kiyoko%20Shimizu&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Yuuko Aioi**](https://myanimelist.net/character.php?q=Yuuko%20Aioi&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
