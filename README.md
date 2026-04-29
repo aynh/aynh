@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Today, everything's shining brightly! The air, the people, and even this classroom; because today, I actually did my homework!"
+> "I will see the truth of this world... LORD OROCHIMARU WILL SHOW ME!!!"
 
-&mdash; [**Yuuko Aioi**](https://myanimelist.net/character.php?q=Yuuko%20Aioi&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
