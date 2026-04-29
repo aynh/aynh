@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Treecko! Use your Tail Slap attack!"
+> "You're your own worst enemy. If your worries and doubts torment you, then just stop thinking about them."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Binboda Momiji**](https://myanimelist.net/character.php?q=Binboda%20Momiji&cat=character), [**Binbougami Ga!**](https://myanimelist.net/search/all?q=Binbougami%20Ga!&cat=all)
