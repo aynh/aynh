@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say there's no such place... as Paradise. Even if you search to the ends of the Earth, there's nothing there. No matter how far you walk, it's always the same road. It just goes on and on. But, in spite of that... Why am I so driven to find it? A voice calls to me... It says, 'Search for Paradise.'"
+> "It doesn't matter how much trash you pick up. You just have a pile of trash."
 
-&mdash; [**Kiba**](https://myanimelist.net/character.php?q=Kiba&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
