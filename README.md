@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there's no door, then I'll make one!"
+> "I have a dream at last. The butterfly trapped in spiderweb has no wings. That butterfly is... me."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Alois Trancy**](https://myanimelist.net/character.php?q=Alois%20Trancy&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
