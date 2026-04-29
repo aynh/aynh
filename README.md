@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Strength is the only thing that matters in this world. Everything else is just a delusion for the weak."
+> "Treecko! Use your Tail Slap attack!"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
