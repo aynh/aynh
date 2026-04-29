@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter how much trash you pick up. You just have a pile of trash."
+> "[to Gin Ichimaru] If you make Hinamori shed even one drop of blood, I'll kill you."
 
-&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
