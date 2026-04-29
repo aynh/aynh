@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have a dream at last. The butterfly trapped in spiderweb has no wings. That butterfly is... me."
+> "Only a fool refuses a woman who offers herself."
 
-&mdash; [**Alois Trancy**](https://myanimelist.net/character.php?q=Alois%20Trancy&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
