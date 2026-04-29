@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Good evening, Espada. There has been an enemy attack. But first...Let us brew some tea."
+> "The fact that you consider yourself as an equal to me, is being arrogant in itself."
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
