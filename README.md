@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will see the truth of this world... LORD OROCHIMARU WILL SHOW ME!!!"
+> "If there's no door, then I'll make one!"
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
