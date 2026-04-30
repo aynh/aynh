@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've been under too much stress lately. Killing you should be a good remedy."
+> "You don't need a driver's license to hit and run!"
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
