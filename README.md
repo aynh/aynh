@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A lie yields hope when you realize it's a lie. On the other hand, when you feel that a cruel fact is reality, you fall into despair all the more."
+> "People like you disgust me. You can't even face your own weakness."
 
-&mdash; [**Miyazaki Ryuu**](https://myanimelist.net/character.php?q=Miyazaki%20Ryuu&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
