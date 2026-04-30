@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I devour the five lands and drain the three seas, yet only the sky is impossible to reach. With this body lacking wings, hands, or legs. I am the World Serpent. My name is Jormungand."
+> "Unnecessary thoughts will only interfere with your plays."
 
-&mdash; [**Jormungand**](https://myanimelist.net/character.php?q=Jormungand&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Gouenji Shuuya**](https://myanimelist.net/character.php?q=Gouenji%20Shuuya&cat=character), [**Inazuma Eleven**](https://myanimelist.net/search/all?q=Inazuma%20Eleven&cat=all)
