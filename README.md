@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Okay, I'll talk! Take the elevator to see my boss!"
+> "Being alive...is a sign of strength!"
 
-&mdash; [**Rocket Grunt**](https://myanimelist.net/character.php?q=Rocket%20Grunt&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
