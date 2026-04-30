@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The fact that you consider yourself as an equal to me, is being arrogant in itself."
+> "A lie yields hope when you realize it's a lie. On the other hand, when you feel that a cruel fact is reality, you fall into despair all the more."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Miyazaki Ryuu**](https://myanimelist.net/character.php?q=Miyazaki%20Ryuu&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
