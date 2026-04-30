@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being alive...is a sign of strength!"
+> "There's nothing more satisfying than conquering all types of girls."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Mikoto Mikoshiba**](https://myanimelist.net/character.php?q=Mikoto%20Mikoshiba&cat=character), [**Gekkan Shoujo Nozaki-kun**](https://myanimelist.net/search/all?q=Gekkan%20Shoujo%20Nozaki-kun&cat=all)
