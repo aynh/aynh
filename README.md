@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The rain, the wind, the sun... you bring them all with you. Every time our eyes meet. You bring the world to me."
+> "Man this guy is stupid, ugly and a bad shooter."
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
