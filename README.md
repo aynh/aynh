@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well I do have abilities you haven't yet been given, just like not everyones has the strengths you do."
+> "I like myself. I have never once hated myself. My high specs, my half-decent looks, my pessimistic, realist point of view... I don't hate any of it at all."
 
-&mdash; [**Asano Gakuho**](https://myanimelist.net/character.php?q=Asano%20Gakuho&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
