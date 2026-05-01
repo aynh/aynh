@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I like myself. I have never once hated myself. My high specs, my half-decent looks, my pessimistic, realist point of view... I don't hate any of it at all."
+> "In this small universe, it's an endless cycle of winning and losing until you begin losing your mind."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Rei Kiriyama**](https://myanimelist.net/character.php?q=Rei%20Kiriyama&cat=character), [**3-gatsu no Lion**](https://myanimelist.net/search/all?q=3-gatsu%20no%20Lion&cat=all)
