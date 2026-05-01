@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this small universe, it's an endless cycle of winning and losing until you begin losing your mind."
+> "If dying is the only way to get my freedom... Then I'm willing to die right now. And then I'll stop caring about people around me. Because they didn't care about me from the very start anyway."
 
-&mdash; [**Rei Kiriyama**](https://myanimelist.net/character.php?q=Rei%20Kiriyama&cat=character), [**3-gatsu no Lion**](https://myanimelist.net/search/all?q=3-gatsu%20no%20Lion&cat=all)
+&mdash; [**Aoyagi Ritsuka**](https://myanimelist.net/character.php?q=Aoyagi%20Ritsuka&cat=character), [**Loveless**](https://myanimelist.net/search/all?q=Loveless&cat=all)
