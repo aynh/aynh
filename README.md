@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If dying is the only way to get my freedom... Then I'm willing to die right now. And then I'll stop caring about people around me. Because they didn't care about me from the very start anyway."
+> "In my mind this jacked-up sideways ridiculousness is the normal state?"
 
-&mdash; [**Aoyagi Ritsuka**](https://myanimelist.net/character.php?q=Aoyagi%20Ritsuka&cat=character), [**Loveless**](https://myanimelist.net/search/all?q=Loveless&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
