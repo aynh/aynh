@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When something dies or is lost, that thing doesn't truly disappear, as long as someone remembers it. And that remembering it is to acknowledge its existence, and because of that, it can sometimes be seen again."
+> "But there's nothing wrong about worrying. It's like a wall you need to overcome, to make it to the next level. If you're running up against that wall, it means you're moving forward. I wonder how many walls I've broken up until now, but if you won't move yourself, you will never get anywhere."
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Aiko Mutō**](https://myanimelist.net/character.php?q=Aiko%20Mut%C5%8D&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
