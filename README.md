@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Without strength, you won't be able to save anyone."
+> "The rain, the wind, the sun... you bring them all with you. Every time our eyes meet. You bring the world to me."
 
-&mdash; [**Kizaru**](https://myanimelist.net/character.php?q=Kizaru&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
