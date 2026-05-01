@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I thought that, if I could shorten the distance between us, and if you would like me back, then the me that ran away - the dirty me - would be washed away. (To Kyo)"
+> "Well I do have abilities you haven't yet been given, just like not everyones has the strengths you do."
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Asano Gakuho**](https://myanimelist.net/character.php?q=Asano%20Gakuho&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
