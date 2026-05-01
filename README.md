@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mighty Katara..? I like that."
+> "If... If you have such good deductive skills, you should have been able to see through my sister's disguise easily... But... but... WHY...!!!"
 
-&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
