@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What If I didn't fold the toilet paper? Something like that could ruin my life forever. I can't be defeated by toilet paper, if I turn my back on this I shouldn't be allowed to live anymore."
+> "Once you miss the opportunity to say something, the words become increasingly toxic. The best thing to do is to just say everything."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Hayashida Nana**](https://myanimelist.net/character.php?q=Hayashida%20Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
