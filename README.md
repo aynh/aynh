@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People don't fall in love based on looks. And that's a scientific fact."
+> "Please don't tell people our bakery's motorbike ran you over."
 
-&mdash; [**Ichijou Kagetsu**](https://myanimelist.net/character.php?q=Ichijou%20Kagetsu&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
+&mdash; [**Haruko Haruhara**](https://myanimelist.net/character.php?q=Haruko%20Haruhara&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
