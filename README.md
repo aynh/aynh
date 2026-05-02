@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not a question of can or can't. There are some things in life you just do."
+> "Whether you like it or not, time will leave you behind. In the same way that your beauty will wither away with time. In order to cling to the glorious past, people achieve peace by hurting others. People know it isn't the right thing to do, but they're unable to stop any of it. Wouldn't you agree that someone needs to teach them a lesson?"
 
-&mdash; [**Éclair Farron**](https://myanimelist.net/character.php?q=%C3%89clair%20Farron&cat=character), [**Final Fantasy XIII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20XIII&cat=all)
+&mdash; [**Ribbons Almark**](https://myanimelist.net/character.php?q=Ribbons%20Almark&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
