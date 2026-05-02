@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Man this guy is stupid, ugly and a bad shooter."
+> "People don't fall in love based on looks. And that's a scientific fact."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ichijou Kagetsu**](https://myanimelist.net/character.php?q=Ichijou%20Kagetsu&cat=character), [**Koi to Uso**](https://myanimelist.net/search/all?q=Koi%20to%20Uso&cat=all)
