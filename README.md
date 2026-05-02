@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you miss the opportunity to say something, the words become increasingly toxic. The best thing to do is to just say everything."
+> "There's something you can't see unless you're standing at the top, to experience that for the first time, I'm struggling to a higher place than anyone else, isn't that what freedom is?"
 
-&mdash; [**Hayashida Nana**](https://myanimelist.net/character.php?q=Hayashida%20Nana&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
