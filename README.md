@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Belief in others is an illusion concocted by the clever to exploit the stupid."
+> "Sometimes, forgetting is a type of happiness."
 
-&mdash; [**Shin Hyuga Shaing**](https://myanimelist.net/character.php?q=Shin%20Hyuga%20Shaing&cat=character), [**Code Geass: Akito the Exiled**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Akito%20the%20Exiled&cat=all)
+&mdash; [**Kaname Kuran**](https://myanimelist.net/character.php?q=Kaname%20Kuran&cat=character), [**Vampire Knight**](https://myanimelist.net/search/all?q=Vampire%20Knight&cat=all)
