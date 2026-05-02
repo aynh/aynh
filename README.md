@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that in the end, I just care a lot about myself. I was the only one that I loved and respected. That's why I was scared to know what the others thought about me. I was afraid to get hurt, so I ran away and locked myself into my shell."
+> "It's not a question of can or can't. There are some things in life you just do."
 
-&mdash; [**Kirara**](https://myanimelist.net/character.php?q=Kirara&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Éclair Farron**](https://myanimelist.net/character.php?q=%C3%89clair%20Farron&cat=character), [**Final Fantasy XIII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20XIII&cat=all)
