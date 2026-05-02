@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's something you can't see unless you're standing at the top, to experience that for the first time, I'm struggling to a higher place than anyone else, isn't that what freedom is?"
+> "The beginning of a story is a sudden event; the start, a happy accident, the end, the fate for which it's meant. A story that never ends is a sad fate."
 
-&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Edel**](https://myanimelist.net/character.php?q=Edel&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
