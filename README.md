@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you like, you can stay over here tonight. If you're lucky, you may see some cannibalism and that's always fun..."
+> "We have to change our way of thinking if we really want to change the future."
 
-&mdash; [**Uta**](https://myanimelist.net/character.php?q=Uta&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Saki Watanabe**](https://myanimelist.net/character.php?q=Saki%20Watanabe&cat=character), [**Shinsekai Yori**](https://myanimelist.net/search/all?q=Shinsekai%20Yori&cat=all)
