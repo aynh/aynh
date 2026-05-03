@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'You can't run away' is an ideal for the strong. You're not always wrong. Society, the world, the people around you - often someone else is in the wrong. To think that you can change is adapting to this cruel, indifferent, trashy world. It's admitting defeat and servility. You're simply deceiving yourself by dressing it up with pretty words."
+> "It takes more courage to speak the truth than it does to wield a sword."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Sehara**](https://myanimelist.net/character.php?q=Sehara&cat=character), [**One thousand and one nights**](https://myanimelist.net/search/all?q=One%20thousand%20and%20one%20nights&cat=all)
