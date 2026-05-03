@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Choosing your calling based solely on your talents won't always guarantee you happiness."
+> "I'll show you a real assassination. No... Maybe you won't even be able to see it."
 
-&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
