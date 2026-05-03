@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Katara] If you want to be a bender, you have to let go of fear."
+> "Choosing your calling based solely on your talents won't always guarantee you happiness."
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kaminski Natalia**](https://myanimelist.net/character.php?q=Kaminski%20Natalia&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
