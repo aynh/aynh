@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Happiness is only happiness when everyone shares it."
+> "No matter how hard you try, you cannot exceed your true capabilities."
 
-&mdash; [**Ryuugajou Nanana**](https://myanimelist.net/character.php?q=Ryuugajou%20Nanana&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
+&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
