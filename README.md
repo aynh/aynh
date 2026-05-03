@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't develop feelings. That's how most idiots screw up."
+> "If you like, you can stay over here tonight. If you're lucky, you may see some cannibalism and that's always fun..."
 
-&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Uta**](https://myanimelist.net/character.php?q=Uta&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
