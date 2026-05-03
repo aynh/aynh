@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I picked up my first gun at the age of seven. And I shot. I remember how strangely easy it was to pull the trigger. Ha. I actually laughed. Because that one shot was all that was needed to silence that sickening piece of garbage who had the nerve to call himself my guardian. Ha. It was that simple. And so I was free. Yes, tomorrow would be different. Hm. Tomorrow. As much as I wanted to believe, it only went from bad to worse. A vicious cycle... I didn't want other kids to grow up like me, so I started my own orphanage. It was gratifying work, I was actually doing something for the good of others. It was my place of peace and happiness... yet sometimes, I still think to myself 'there's no place worse than this planet. It's horrible here.'"
+> "I can't develop feelings. That's how most idiots screw up."
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
