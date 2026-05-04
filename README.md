@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The truth is the truth, regardless of whether it comes out of a genius' mouth or a commoner's."
+> "Fine then, in exchange, you can roam around looking like a cosplayer, violate weapon laws, get arrested by the police, and get interviewed on television."
 
-&mdash; [**Tsuchimikado Natsume**](https://myanimelist.net/character.php?q=Tsuchimikado%20Natsume&cat=character), [**Tokyo Ravens**](https://myanimelist.net/search/all?q=Tokyo%20Ravens&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
