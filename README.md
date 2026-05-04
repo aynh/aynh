@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even when the answer’s obvious, making one wait for it is the worst thing you can do."
+> "WHO ARE YOU CALLING SO SMALL YOU WANNA CRUSH LIKE AN ANT?!"
 
-&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
