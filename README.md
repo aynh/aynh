@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The curtain that falls at the end...shall be pulled down by the blade of my sword."
+> "The truth is the truth, regardless of whether it comes out of a genius' mouth or a commoner's."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Tsuchimikado Natsume**](https://myanimelist.net/character.php?q=Tsuchimikado%20Natsume&cat=character), [**Tokyo Ravens**](https://myanimelist.net/search/all?q=Tokyo%20Ravens&cat=all)
