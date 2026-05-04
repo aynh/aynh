@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone starts doing the right thing, the others will follow."
+> "Look straight at the people you kill; don't take your eyes off them for a second. And don't ever forget them because they won't forget you."
 
-&mdash; [**Ronaldo Kuriki**](https://myanimelist.net/character.php?q=Ronaldo%20Kuriki&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
