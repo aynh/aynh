@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Games are not boring. Games purify our souls and leave room for new development that challenges the mind! They are the products of human wisdom!"
+> "Care to little, you lose them. Care too much, you get hurt."
 
-&mdash; [**Seto Kaiba**](https://myanimelist.net/character.php?q=Seto%20Kaiba&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
