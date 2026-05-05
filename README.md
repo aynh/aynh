@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's it! My head as a trampoline is where I draw the line!"
+> "You were wrong on two counts. Even the hardest substance can be broken, when crashed into itself. And the ability to feel pain is not a weakness. It’s a strength. Pain tells a creature its vulnerabilities, and not you expose them to attack. Your robot is dead. And so, I’m afraid, are you."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
