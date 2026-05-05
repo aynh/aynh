@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Besides, miracles don't exist in this world. There are only inevitabilities and accidents, and what you're going to do. That's it."
+> "The world is not meant just to be looked at, it’s important to get the feel of things. Don’t be captivated just by what’s in front of you and neglect the rest. Free your mind from evil and accept everything as it is. This is what we call enlightenment."
 
-&mdash; [**Himura Yuu**](https://myanimelist.net/character.php?q=Himura%20Yuu&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Priest**](https://myanimelist.net/character.php?q=Priest&cat=character), [**Kekkaishi**](https://myanimelist.net/search/all?q=Kekkaishi&cat=all)
