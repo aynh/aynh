@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you can't move anymore, or your back gets bent out of shape, it doesn't matter! What matters is what's inside! Not what someone looks like, dammit!"
+> "Babies aren't born after just 5 months!"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
