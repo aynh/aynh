@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you talking to me, scum? I'm God."
+> "You sure say some funny things. Solitude? Does that only apply to me? Who isn't alone in this society? The time when our connection to others was the basis of our selves is long gone. In this world where everyone is watched over by the system and live within the system's standards, a community isn't necessary. Everyone just lives in their own cell, and the system tames them by giving them each their own personal serenity."
 
-&mdash; [**Ayato Naoi**](https://myanimelist.net/character.php?q=Ayato%20Naoi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Makishima Shougo**](https://myanimelist.net/character.php?q=Makishima%20Shougo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
