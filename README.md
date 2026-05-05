@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My smile is nothing more than a pose, I can give it to anyone, anytime, anywhere..."
+> "Whether your words...are lies created to deceive me... or the truth that I have sought all my life... It makes no difference. You will rot."
 
-&mdash; [**Kojima Mizuiro**](https://myanimelist.net/character.php?q=Kojima%20Mizuiro&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sephiroth**](https://myanimelist.net/character.php?q=Sephiroth&cat=character), [**Final Fantasy VII: Advent Children**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII%3A%20Advent%20Children&cat=all)
