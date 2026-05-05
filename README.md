@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So you're trying to accept everyone and their feelings, aren't you? I think you already know this, but if you keep trying to do this 'accepting' thing with everyone, you're liable to be torn to bits."
+> "Games are not boring. Games purify our souls and leave room for new development that challenges the mind! They are the products of human wisdom!"
 
-&mdash; [**Rachnera Arachnera**](https://myanimelist.net/character.php?q=Rachnera%20Arachnera&cat=character), [**Monster Musume no Iru Nichijou**](https://myanimelist.net/search/all?q=Monster%20Musume%20no%20Iru%20Nichijou&cat=all)
+&mdash; [**Seto Kaiba**](https://myanimelist.net/character.php?q=Seto%20Kaiba&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
