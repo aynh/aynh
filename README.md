@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Care to little, you lose them. Care too much, you get hurt."
+> "Besides, miracles don't exist in this world. There are only inevitabilities and accidents, and what you're going to do. That's it."
 
-&mdash; [**Gajeel Redfox**](https://myanimelist.net/character.php?q=Gajeel%20Redfox&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Himura Yuu**](https://myanimelist.net/character.php?q=Himura%20Yuu&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
