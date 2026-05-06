@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes your biggest effort will be ignored, but your smallest mistake will be judged."
+> "Ciel, how are you?"
 
-&mdash; [**Kou Mabuchi**](https://myanimelist.net/character.php?q=Kou%20Mabuchi&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Elizabeth Middleford**](https://myanimelist.net/character.php?q=Elizabeth%20Middleford&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
