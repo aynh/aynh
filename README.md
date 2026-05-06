@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, we've become friends. When you're in the same party, there will be times when things don't go smoothly, when you get angry, and when you fight. But they really are your precious friends. It doesn't matter why you became friends, but that you are friends at this moment."
+> "To believe in someone can be a dangerous thing."
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**TimeKeeper**](https://myanimelist.net/character.php?q=TimeKeeper&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
