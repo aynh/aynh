@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ciel, how are you?"
+> "Once you have a power, sometimes you are put into a situation which make you carry extra burdens, and live all your life with pain."
 
-&mdash; [**Elizabeth Middleford**](https://myanimelist.net/character.php?q=Elizabeth%20Middleford&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
