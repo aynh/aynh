@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't achieve anything if you don't make a move. Love is an all-out assault."
+> "I probably won't be able to look forward to summer for a long time. My chest will hurt. My tears will be overflowing. But this warmth in my hands and these summer memories will live on in my heart."
 
-&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Hotaru Takegawa**](https://myanimelist.net/character.php?q=Hotaru%20Takegawa&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
