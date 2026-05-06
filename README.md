@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All I need is the power to be able to protect my comrades. So long as I can have the strength to do that, I don't care if I'm weaker than everyone else in the world."
+> "I won’t accept it! I want to have a choice, too! I don’t want to write poems about regret."
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Sumire Hanano**](https://myanimelist.net/character.php?q=Sumire%20Hanano&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
