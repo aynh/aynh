@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "NOW, SPARKLE, MY HOUSE OF LEARNING!!"
+> "Even if it’s a coincidence, it’s wonderful when someone understands how you feel."
 
-&mdash; [**Sohma Ayame**](https://myanimelist.net/character.php?q=Sohma%20Ayame&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Norie Okazaki**](https://myanimelist.net/character.php?q=Norie%20Okazaki&cat=character), [**Tamayura**](https://myanimelist.net/search/all?q=Tamayura&cat=all)
