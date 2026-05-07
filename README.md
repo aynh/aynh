@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't get me wrong. It's not like I'm worried about you. But if you don't come back I'll never forgive you."
+> "What took a very long time to build up takes mere moments to destroy. But you can always start over. Next time around, you'll do a better job."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Kenji Makabe**](https://myanimelist.net/character.php?q=Kenji%20Makabe&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
