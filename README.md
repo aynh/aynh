@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What took a very long time to build up takes mere moments to destroy. But you can always start over. Next time around, you'll do a better job."
+> "The wish of wanting everyone to be happy is merely a fairy tale!"
 
-&mdash; [**Kenji Makabe**](https://myanimelist.net/character.php?q=Kenji%20Makabe&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
