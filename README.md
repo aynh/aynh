@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Screw you, future me!"
+> "Ah, you're awake. I was hoping you'd cry out in your sleep, then I would have bitten your head off to silence you."
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
