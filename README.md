@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When receiving an illogical favor from others, one should do the same to return the illogical favor."
+> "If you smile once when you’re feeling down, you begin to feel better and become more cheerful."
 
-&mdash; [**Frontier Setter**](https://myanimelist.net/character.php?q=Frontier%20Setter&cat=character), [**Rakuen Tsuihō - Expelled from Paradise**](https://myanimelist.net/search/all?q=Rakuen%20Tsuih%C5%8D%20-%20Expelled%20from%20Paradise&cat=all)
+&mdash; [**Rito Yuuki**](https://myanimelist.net/character.php?q=Rito%20Yuuki&cat=character), [**To Love-Ru**](https://myanimelist.net/search/all?q=To%20Love-Ru&cat=all)
