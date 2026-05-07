@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ah, you're awake. I was hoping you'd cry out in your sleep, then I would have bitten your head off to silence you."
+> "When receiving an illogical favor from others, one should do the same to return the illogical favor."
 
-&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
+&mdash; [**Frontier Setter**](https://myanimelist.net/character.php?q=Frontier%20Setter&cat=character), [**Rakuen Tsuihō - Expelled from Paradise**](https://myanimelist.net/search/all?q=Rakuen%20Tsuih%C5%8D%20-%20Expelled%20from%20Paradise&cat=all)
