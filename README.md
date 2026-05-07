@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are both merchants, and I'll promise you one thing. We will not laugh until we get the money, and we will not cry until we go bankrupt. And guess what? We are going to laugh."
+> "Don't get me wrong. It's not like I'm worried about you. But if you don't come back I'll never forgive you."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
