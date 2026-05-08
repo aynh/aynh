@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One who relies overly on a single skill will be brought low by that very same skill."
+> "For the time being, all an idiot like me can do is to keep moving forward..."
 
-&mdash; [**Aikurō Mikisugi**](https://myanimelist.net/character.php?q=Aikur%C5%8D%20Mikisugi&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
+&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
