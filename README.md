@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if it’s a coincidence, it’s wonderful when someone understands how you feel."
+> "I was afraid of the me that didn't know what he wanted to do. And the days just keep on moving. But even then If I keep on going like this, will I be able to see it? Maybe someday."
 
-&mdash; [**Norie Okazaki**](https://myanimelist.net/character.php?q=Norie%20Okazaki&cat=character), [**Tamayura**](https://myanimelist.net/search/all?q=Tamayura&cat=all)
+&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
