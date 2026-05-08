@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once in a while when I wake up, I find myself crying. The dream I must’ve had, I can never seem to recall...But the sensation that I’ve lost something lingers for a long time after I wake up."
+> "One who relies overly on a single skill will be brought low by that very same skill."
 
-&mdash; [**Taki Tachibana**](https://myanimelist.net/character.php?q=Taki%20Tachibana&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
+&mdash; [**Aikurō Mikisugi**](https://myanimelist.net/character.php?q=Aikur%C5%8D%20Mikisugi&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
