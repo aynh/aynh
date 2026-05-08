@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was afraid of the me that didn't know what he wanted to do. And the days just keep on moving. But even then If I keep on going like this, will I be able to see it? Maybe someday."
+> "A sin, once committed, is never forgotten. It haunts you for all eternity."
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Shinobu Nunotaba**](https://myanimelist.net/character.php?q=Shinobu%20Nunotaba&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
