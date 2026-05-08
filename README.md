@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are many things in this world that can't be protected simply by thinking of them or praying for them. To protect our lambs from having their dreams stolen and fading into despair, we Bishops bear arms and fight."
+> "Once in a while when I wake up, I find myself crying. The dream I must’ve had, I can never seem to recall...But the sensation that I’ve lost something lingers for a long time after I wake up."
 
-&mdash; [**Castor**](https://myanimelist.net/character.php?q=Castor&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Taki Tachibana**](https://myanimelist.net/character.php?q=Taki%20Tachibana&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
