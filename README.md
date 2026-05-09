@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Readiness and sincerity, qualities that are indispensible in order to accomplish anything. Qualities you are well provided with."
+> "Learn to make your own decisions, instead of relying on others to make them for you. Otherwise, those decisions will never really be made."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
