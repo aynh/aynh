@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Learn to make your own decisions, instead of relying on others to make them for you. Otherwise, those decisions will never really be made."
+> "Country of birth, time period, parents, location... various factors make people's lives unequal from the very beginning."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Death Parade**](https://myanimelist.net/character.php?q=Death%20Parade&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
