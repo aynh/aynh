@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pirates are evil? The Marines are righteous? These terms have always changed throughout the course of history! Kids who have never seen peace and kids who have never seen war have different values! Those who stand at the top determine what's wrong and what's right! This very place is neutral ground! Justice will prevail, you say? But of course it will! Whoever wins this war becomes justice!"
+> "Kakarot, you’re quite impressive. I never stood a chance against Buu, you’re the only one who can fight him. I think I finally understand how a genius like myself can’t surpass you. I thought it was because you had something to protect. I thought your drive to protect allowed you to take advantage of your capabilities… this may have been a reason, but not I too have this drive. I fought to do as I wished, because it was fun to kill my enemies and feed my pride. But he’s different, he fights not to win but because he absolutely won’t lose, causing him to break his limits and he really doesn’t care who his opponent is. So when he didn’t kill me, it was because he saw I could care for others, like I do now… Go Kakarot, you’re number one!"
 
-&mdash; [**Donquixote Doflamingo**](https://myanimelist.net/character.php?q=Donquixote%20Doflamingo&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
