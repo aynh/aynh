@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Honest feelings can sometimes lead to cruel endings."
+> "Readiness and sincerity, qualities that are indispensible in order to accomplish anything. Qualities you are well provided with."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
