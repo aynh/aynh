@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how severe the situation is, if you continue to stay there, you'll accept everything as a everyday life."
+> "Learn to embrace the fear of feeling about what it's like to contemplate what it is to know true pain. Because when I had nothing and no one - I always had Pain."
 
-&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
