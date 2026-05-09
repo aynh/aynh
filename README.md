@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A boss is someone who puts his life on the line for his subordinates."
+> "Is it so strange to do something for someone else? If the people I love can stay smiling tomorrow... then you can call me foolish or whatever you want."
 
-&mdash; [**Reborn**](https://myanimelist.net/character.php?q=Reborn&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
+&mdash; [**Takatori Kotori**](https://myanimelist.net/character.php?q=Takatori%20Kotori&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
