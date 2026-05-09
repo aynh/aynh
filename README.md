@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But I think it’s natural that not everything you try will go well, right? So, I’m gonna start again from scratch."
+> "No matter how severe the situation is, if you continue to stay there, you'll accept everything as a everyday life."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
