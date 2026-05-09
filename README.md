@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Damn, at least one of us should've died!"
+> "Do you really intend to lose even more of your friends for something like that? I'll pass on that. As long as I'm alive, I'll live by my own rules. I'll live as I see fit and protect that which I hold dear."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
