@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tell me, are all you Saiyans so full of yourselves? Is this how you hide your incompetence? We androids will always be superior to your kind."
+> "[yelling angrily toward the sky] You've always thrown everything you could at me! Well, I can take it, and now I can give it back! Come on! STRIKE ME! You've never held back before!"
 
-&mdash; [**Android 17**](https://myanimelist.net/character.php?q=Android%2017&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
