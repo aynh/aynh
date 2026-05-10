@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't have much power and I'm trying to get stronger. But I'm not afraid of sharing my heart..."
+> "What are you, some tantrum throwing brat who forgot to buy his Jump? Having no money is like having a sinus infection. You just have to ignore it and not pick at it, and it'll go away."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
