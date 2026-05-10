@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans tend to think logically, but their actions are driven by emotions..."
+> "You cannot go into battle believing you will lose."
 
-&mdash; [**Sumire Muroto**](https://myanimelist.net/character.php?q=Sumire%20Muroto&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Akisame Koetsuji**](https://myanimelist.net/character.php?q=Akisame%20Koetsuji&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
