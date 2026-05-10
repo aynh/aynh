@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[yelling angrily toward the sky] You've always thrown everything you could at me! Well, I can take it, and now I can give it back! Come on! STRIKE ME! You've never held back before!"
+> "We don't know if this world is real or a dream. Maybe the world until now has been a convenient fake. But magic will probably disappear now. The dream is over."
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Mahiro Fuwa**](https://myanimelist.net/character.php?q=Mahiro%20Fuwa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
