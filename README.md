@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is no guarantee that your dreams are just good ones."
+> "Sometimes life is like jazz, and goes in an unexpected direction..."
 
-&mdash; [**Haji**](https://myanimelist.net/character.php?q=Haji&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
+&mdash; [**Kaoru Nishimi**](https://myanimelist.net/character.php?q=Kaoru%20Nishimi&cat=character), [**Kids on the Slope**](https://myanimelist.net/search/all?q=Kids%20on%20the%20Slope&cat=all)
