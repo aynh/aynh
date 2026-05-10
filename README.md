@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate it when knowledge is misused by people who have lost sight of reality, due to biased perceptions and prejudices. It is the source of misunderstanding, ignorance and conflict. I want us to understand each other."
+> "Tell me, are all you Saiyans so full of yourselves? Is this how you hide your incompetence? We androids will always be superior to your kind."
 
-&mdash; [**Aeolia Schenberg**](https://myanimelist.net/character.php?q=Aeolia%20Schenberg&cat=character), [**Gundam 00**](https://myanimelist.net/search/all?q=Gundam%2000&cat=all)
+&mdash; [**Android 17**](https://myanimelist.net/character.php?q=Android%2017&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
