@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes life is like jazz, and goes in an unexpected direction..."
+> "[about his deceased friend] I never overcame my shyness and told her that I actually liked clouds."
 
-&mdash; [**Kaoru Nishimi**](https://myanimelist.net/character.php?q=Kaoru%20Nishimi&cat=character), [**Kids on the Slope**](https://myanimelist.net/search/all?q=Kids%20on%20the%20Slope&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
