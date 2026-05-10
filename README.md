@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We all live under the same sky. If each of us learns to shine, it won't matter how far apart we are. We'll be able to see each other."
+> "I hate it when knowledge is misused by people who have lost sight of reality, due to biased perceptions and prejudices. It is the source of misunderstanding, ignorance and conflict. I want us to understand each other."
 
-&mdash; [**Minori Kushieda**](https://myanimelist.net/character.php?q=Minori%20Kushieda&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Aeolia Schenberg**](https://myanimelist.net/character.php?q=Aeolia%20Schenberg&cat=character), [**Gundam 00**](https://myanimelist.net/search/all?q=Gundam%2000&cat=all)
