@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Now I got some common sense for you,if I wore a tie, it wouldn't change who I am, if I had no piercings it wouldn't mean I'm nice, and if my hair was black it wouldn't stop me from kicking your ass!"
+> "True detective work is beyond the general masses. After all, we're advocates for the dead. We dig up what was lost to the grave and hurt the living to defend the honor of the dead. And we humiliate the dead to comfort the living."
 
-&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
