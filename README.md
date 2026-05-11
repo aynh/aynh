@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if the world doesn't accept you, I'll always be right by your side!"
+> "I wonder if our hearts really do determine our feelings. Or are they just some sort of aroma in the air?"
 
-&mdash; [**Tendou Kisara**](https://myanimelist.net/character.php?q=Tendou%20Kisara&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Jinno Yuu**](https://myanimelist.net/character.php?q=Jinno%20Yuu&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
