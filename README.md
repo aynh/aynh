@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder if our hearts really do determine our feelings. Or are they just some sort of aroma in the air?"
+> "As long as I'm with you, I get fed and nobody picks on me! I like being here!"
 
-&mdash; [**Jinno Yuu**](https://myanimelist.net/character.php?q=Jinno%20Yuu&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
+&mdash; [**South Italy**](https://myanimelist.net/character.php?q=South%20Italy&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
