@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He told me...that which is incomplete seeks completion... yet...that which is incomplete is no better than that which is complete. Do you understand?"
+> "I don't have have much time. It's not that I'm busy, but I'm only willing to give you about two and a half more minutes of my life!"
 
-&mdash; [**Argentine**](https://myanimelist.net/character.php?q=Argentine&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
+&mdash; [**Shizuo Heiwajima**](https://myanimelist.net/character.php?q=Shizuo%20Heiwajima&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
