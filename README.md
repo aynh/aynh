@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Watching TV or playing games alone is more fun. Playing along with your friends' hobbies... Laughing at their jokes when they're not funny... All that does is tire me out."
+> "[to Toboe] I wanted to take you to paradise."
 
-&mdash; [**Yuzuru Otonashi**](https://myanimelist.net/character.php?q=Yuzuru%20Otonashi&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Tsume**](https://myanimelist.net/character.php?q=Tsume&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
