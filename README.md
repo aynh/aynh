@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I just realized I love learning things that I don't know anything about. It sort of feels like I'm one step closer to my dream."
+> "To lose the woman you loved, not even being able to grieve… if not a tragedy, what is it?"
 
-&mdash; [**Midori Imai**](https://myanimelist.net/character.php?q=Midori%20Imai&cat=character), [**Shirobako**](https://myanimelist.net/search/all?q=Shirobako&cat=all)
+&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
