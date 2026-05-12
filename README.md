@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't forgive myself. I wanted something to happen without doing anything myself! I have to do it. I have to do it all... Or I can't even stand by her side!"
+> "[to Karin] Do as your heart desires! Jump into your father's bosom!"
 
-&mdash; [**Bell Cranel**](https://myanimelist.net/character.php?q=Bell%20Cranel&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
