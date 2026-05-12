@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Karin] Do as your heart desires! Jump into your father's bosom!"
+> "Words are shallow. Just talking doesn't bring world peace."
 
-&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Daichi Muroto**](https://myanimelist.net/character.php?q=Daichi%20Muroto&cat=character), [**Kotoura-san**](https://myanimelist.net/search/all?q=Kotoura-san&cat=all)
