@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I used to think that eating was only consuming needed nutrients. I never thought it could fill the emptiness in me."
+> "I just realized I love learning things that I don't know anything about. It sort of feels like I'm one step closer to my dream."
 
-&mdash; [**Teito Klein**](https://myanimelist.net/character.php?q=Teito%20Klein&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Midori Imai**](https://myanimelist.net/character.php?q=Midori%20Imai&cat=character), [**Shirobako**](https://myanimelist.net/search/all?q=Shirobako&cat=all)
