@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Words are shallow. Just talking doesn't bring world peace."
+> "You have gone and taken all those lives, and not even because you were thirsty! Is it fun... Huh! Is that what it takes for filth like you to get off..? Cheap little two bit terrors."
 
-&mdash; [**Daichi Muroto**](https://myanimelist.net/character.php?q=Daichi%20Muroto&cat=character), [**Kotoura-san**](https://myanimelist.net/search/all?q=Kotoura-san&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
