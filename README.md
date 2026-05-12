@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have gone and taken all those lives, and not even because you were thirsty! Is it fun... Huh! Is that what it takes for filth like you to get off..? Cheap little two bit terrors."
+> "I used to think that eating was only consuming needed nutrients. I never thought it could fill the emptiness in me."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Teito Klein**](https://myanimelist.net/character.php?q=Teito%20Klein&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
