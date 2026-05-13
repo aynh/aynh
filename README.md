@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey hun! I've got a great idea, let's trade! Yo take my spot and I'll fight Hercule!"
+> "There’s no such thing as fair or unfair in battle. There is only victory or in your case, defeat."
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
