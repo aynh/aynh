@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You shouldn't talk to yourself. People will wonder."
+> "Hey hun! I've got a great idea, let's trade! Yo take my spot and I'll fight Hercule!"
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
