@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sketching a scene as you see it gives you a sense of being there, that's totally different from painting a copy of a photograph."
+> "Identity? What? The people who yap about identities all the time are usually the ones with no identity. Like something that changes so easily could really be an 'identity', anyway."
 
-&mdash; [**Eriri Spencer Sawamura**](https://myanimelist.net/character.php?q=Eriri%20Spencer%20Sawamura&cat=character), [**Saenai Heroine no Sodatekata**](https://myanimelist.net/search/all?q=Saenai%20Heroine%20no%20Sodatekata&cat=all)
+&mdash; [**Komachi Hikigaya**](https://myanimelist.net/character.php?q=Komachi%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
