@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not the goodbyes that hurt, it's the flashbacks that follow..."
+> "You shouldn't talk to yourself. People will wonder."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
