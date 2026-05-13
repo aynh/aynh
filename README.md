@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To lose the woman you loved, not even being able to grieve… if not a tragedy, what is it?"
+> "Yes, I saw it over and over... Meaningless massacres. Meaningless suffering. Meaningless happiness! I was forced to watch it all. Even when I refused to look, it surrounded me. That isn't what I wished for! I didn't become a Guardian for this!"
 
-&mdash; [**Hakaze Kusaribe**](https://myanimelist.net/character.php?q=Hakaze%20Kusaribe&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
