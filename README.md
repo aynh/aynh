@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I have no idea what just happened, but I'll gladly take credit for it."
+> "It's not the goodbyes that hurt, it's the flashbacks that follow..."
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
