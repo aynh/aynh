@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your so-called 'self-sacrifice' only satisfies yourself. Do you think you can save people with it? You're only protecting yourself! You don't know the suffering endured by those left alive. With your childish actions, you're only pushing the pain onto other people!"
+> "I have not changed at all. There were two of me to begin with. It was merely a swap between us. I have no intent on hiding this. Whether or not you believe it is up to you, Tetsuya. However, if you want to call it a 'change', then that was because it was necessary. The team did not change because I had changed. I changed because the team had changed."
 
-&mdash; [**Elliot Nightray**](https://myanimelist.net/character.php?q=Elliot%20Nightray&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
+&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko's Basketball TV 3**](https://myanimelist.net/search/all?q=Kuroko's%20Basketball%20TV%203&cat=all)
