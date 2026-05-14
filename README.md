@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There’s no such thing as fair or unfair in battle. There is only victory or in your case, defeat."
+> "Do you know about the Happy Prince? It's such a happy story. The Prince helps everyone together with a little swallow, then he dies happily. But I wonder how the swallow felt? His wish wasn't granted because he helped the foolish Prince. Was the swallow really happy? It's always like that. The Prince and all the people he helped are happy, but what about the swallow? He helped the Prince more than anyone, so why is he ignored completely?"
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Azusa Azuki**](https://myanimelist.net/character.php?q=Azusa%20Azuki&cat=character), [**Hentai Ouji To Warawanai Neko**](https://myanimelist.net/search/all?q=Hentai%20Ouji%20To%20Warawanai%20Neko&cat=all)
