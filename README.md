@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can call me Roy Mustang, or just Lieutenant Colonel. Hell, you can call me the Flame Alchemist. Whatever you do, remember the pain."
+> "Now that I think about it, I really didn't understand anything back then. Neither what it meant to pray for a miracle...nor the price of one."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Sayaka Miki**](https://myanimelist.net/character.php?q=Sayaka%20Miki&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
