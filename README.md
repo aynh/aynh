@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If something is possible, carry on as planned. Even if it isn't possible, do it anyway."
+> "You can call me Roy Mustang, or just Lieutenant Colonel. Hell, you can call me the Flame Alchemist. Whatever you do, remember the pain."
 
-&mdash; [**Karasuma Tadaomi**](https://myanimelist.net/character.php?q=Karasuma%20Tadaomi&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
