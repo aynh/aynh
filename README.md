@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only reason I must rely on this sword is because I am imperfect. A true warrior...Needs no sword"
+> "Even if no one in the world believes you, stick out your chest and scream in defiance."
 
-&mdash; [**Thors**](https://myanimelist.net/character.php?q=Thors&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
