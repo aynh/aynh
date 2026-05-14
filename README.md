@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know about the Happy Prince? It's such a happy story. The Prince helps everyone together with a little swallow, then he dies happily. But I wonder how the swallow felt? His wish wasn't granted because he helped the foolish Prince. Was the swallow really happy? It's always like that. The Prince and all the people he helped are happy, but what about the swallow? He helped the Prince more than anyone, so why is he ignored completely?"
+> "In our society, letting others find out that you're a nice person is a very risky move. It's extremely likely that someone would take advantage of that."
 
-&mdash; [**Azusa Azuki**](https://myanimelist.net/character.php?q=Azusa%20Azuki&cat=character), [**Hentai Ouji To Warawanai Neko**](https://myanimelist.net/search/all?q=Hentai%20Ouji%20To%20Warawanai%20Neko&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
