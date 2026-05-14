@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In our society, letting others find out that you're a nice person is a very risky move. It's extremely likely that someone would take advantage of that."
+> "If something is possible, carry on as planned. Even if it isn't possible, do it anyway."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Karasuma Tadaomi**](https://myanimelist.net/character.php?q=Karasuma%20Tadaomi&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
