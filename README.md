@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The King lives to the fullest! He needs to live more fully than anyone else. He is a figure of admiration to his people!"
+> "This world that we live in is gentle yet sad, fun yet sorrowful, strong yet ephemeral... ...but as long as you're alive, something good is bound to happen. I'm sure of it."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Subarashii Sekai**](https://myanimelist.net/character.php?q=Subarashii%20Sekai&cat=character), [**Subarashii Sekai**](https://myanimelist.net/search/all?q=Subarashii%20Sekai&cat=all)
