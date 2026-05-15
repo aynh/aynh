@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "First, we are born in the same galaxy. Born of the same species. Our lifetimes overlap. The meetings between humans are so unlikely as to be miraculous. To laugh, to cry, and to fall in love... Everyone is made up of a collection of 1% chances. Thus, I'm dazzled by the fact that there are so many miracles in this world."
+> "Death by a god of death, this may be a proud moment."
 
-&mdash; [**Kou Ichinomiya**](https://myanimelist.net/character.php?q=Kou%20Ichinomiya&cat=character), [**Arakawa Under the Bridge**](https://myanimelist.net/search/all?q=Arakawa%20Under%20the%20Bridge&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
