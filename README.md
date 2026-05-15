@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if a fool dies, he won't be cured."
+> "I want to believe that memories, even sad and painful ones, should not be forgotten forever."
 
-&mdash; [**Atsushi Shimao**](https://myanimelist.net/character.php?q=Atsushi%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
+&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
