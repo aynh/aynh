@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Repeat. I'll repeat it for however many times I have to. Until I find the only way out."
+> "That curse will spread throughout your whole body, bone and flesh alike and finally kill you. Now leave this place at sunrise. Return and *I* shall kill you."
 
-&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Moro**](https://myanimelist.net/character.php?q=Moro&cat=character), [**Princess Mononoke**](https://myanimelist.net/search/all?q=Princess%20Mononoke&cat=all)
