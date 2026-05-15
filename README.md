@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The person you like the most, likes you back the most. It seems so simple. But why is it? It feels like it will never come together...forever like this..."
+> "And so... I have written down the lesson I've learned from this vital experience in form of a title suitable for a business reference book: 'Never hold meetings. The outcome is determined before the meeting begins.'"
 
-&mdash; [**Ayumi Yamada**](https://myanimelist.net/character.php?q=Ayumi%20Yamada&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
