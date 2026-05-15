@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are times when there's a great pleasure waiting at the end of laments, pains, and near-death experiences."
+> "This has nothing to do with will. There is neither an egg that refuses to hatch nor a seed that evades it's eventual sprouting."
 
-&mdash; [**Hinagiku Katsura**](https://myanimelist.net/character.php?q=Hinagiku%20Katsura&cat=character), [**Hayate the Combat Butler**](https://myanimelist.net/search/all?q=Hayate%20the%20Combat%20Butler&cat=all)
+&mdash; [**Scythe Master**](https://myanimelist.net/character.php?q=Scythe%20Master&cat=character), [**Phantom: Requiem For The Phantom**](https://myanimelist.net/search/all?q=Phantom%3A%20Requiem%20For%20The%20Phantom&cat=all)
