@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Half breed or full breed, to me it don't matter. But when you insult my mother, that's when I get angry. For her sake then if for nothing else... I'm gonna make you pay! [he jumps up and attacks Sesshoumaru, hitting him for the first time]"
+> "People have the strength to overcome their obstacles – everyone can."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Belldandy**](https://myanimelist.net/character.php?q=Belldandy&cat=character), [**Aah! Megami-Sama**](https://myanimelist.net/search/all?q=Aah!%20Megami-Sama&cat=all)
