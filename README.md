@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I kinda like that about you. If only everyone had the guts to fight for each other like you do, the world might have been a better place."
+> "...but as they say, it ain't over till the fat lady sings. I don't know which fat lady is doing the singing or where she's planning on doing her singing. But if I find out where she is, I'd like to put her out of commission for a year!"
 
-&mdash; [**Maria Cadenzavna Eve**](https://myanimelist.net/character.php?q=Maria%20Cadenzavna%20Eve&cat=character), [**Senki Zesshō Symphogear G**](https://myanimelist.net/search/all?q=Senki%20Zessh%C5%8D%20Symphogear%20G&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
