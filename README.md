@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment people come to know love, they run the risk of carrying hate."
+> "I don’t want to change. I want to change. We all hold in our hearts conflicting feelings, each back to back. And so, we live our days."
 
-&mdash; [**Obito Uchiha**](https://myanimelist.net/character.php?q=Obito%20Uchiha&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
+&mdash; [**Dera Mochimazzi**](https://myanimelist.net/character.php?q=Dera%20Mochimazzi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
