@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Such a shame. I overestimated you. As a vampire, you were just a pathetic piece of shit. And now you're nothing but dog shit!"
+> "Half breed or full breed, to me it don't matter. But when you insult my mother, that's when I get angry. For her sake then if for nothing else... I'm gonna make you pay! [he jumps up and attacks Sesshoumaru, hitting him for the first time]"
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
