@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people focus on what they want to do, they’ll show off an inexplicable charm."
+> "You don't stand a single chance to win, unless you fight."
 
-&mdash; [**Kinoshita Yuuko**](https://myanimelist.net/character.php?q=Kinoshita%20Yuuko&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
