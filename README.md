@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You think you're special? You're not. Everyone lies, everyone hides things... Nobody makes it through this life being completely honest."
+> "Swords exists for just judging and killing. They can never save others."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Kourin Shimizu**](https://myanimelist.net/character.php?q=Kourin%20Shimizu&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
