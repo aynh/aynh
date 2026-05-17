@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A guy who can't do what needs to be done today, definitely can't do it tomorrow."
+> "Tests are a good thing. The knowledge gained from a night of cramming will be all but forgotten once you hit adulthood. And that's fine. The experience you gain through competition, having sharpened your skills and broadened your minds all under the same set of rules? That's the real treasure."
 
-&mdash; [**Goro Shigeno**](https://myanimelist.net/character.php?q=Goro%20Shigeno&cat=character), [**Major**](https://myanimelist.net/search/all?q=Major&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
