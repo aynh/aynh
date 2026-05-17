@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "On this earth, there are lots of difficult and painful things. I want to fly away and escape from it all. I want to flap my wings freely."
+> "Your grievance shall be avenged."
 
-&mdash; [**Noe Isurugi**](https://myanimelist.net/character.php?q=Noe%20Isurugi&cat=character), [**True Tears**](https://myanimelist.net/search/all?q=True%20Tears&cat=all)
+&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
