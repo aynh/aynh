@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Swords exists for just judging and killing. They can never save others."
+> "Forget what hurt you in the past, but never forget what it taught you."
 
-&mdash; [**Kourin Shimizu**](https://myanimelist.net/character.php?q=Kourin%20Shimizu&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
