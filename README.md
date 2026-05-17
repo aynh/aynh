@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing interesting ever happens. It's the same everyday."
+> "They are more like “people who don’t follow rules…” There are different kinds of people in different worlds! … Between you two and them, what is the difference? It isn’t unusual… to put it to an extreme… A hero during a war would be just another murderer in peaceful times."
 
-&mdash; [**Kei Takishima**](https://myanimelist.net/character.php?q=Kei%20Takishima&cat=character), [**Special A**](https://myanimelist.net/search/all?q=Special%20A&cat=all)
+&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
