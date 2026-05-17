@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They are more like “people who don’t follow rules…” There are different kinds of people in different worlds! … Between you two and them, what is the difference? It isn’t unusual… to put it to an extreme… A hero during a war would be just another murderer in peaceful times."
+> "Whether a fish lives in a clear stream or a water ditch, so long as it continues swimming forward, it will grow up beautifully."
 
-&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
