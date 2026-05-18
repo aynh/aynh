@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some things that can only be conveyed through words."
+> "If you keep your vision clear you will see the future. What happens in our future is our own responsibility."
 
-&mdash; [**Winry Rockbell**](https://myanimelist.net/character.php?q=Winry%20Rockbell&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Rem Saverem**](https://myanimelist.net/character.php?q=Rem%20Saverem&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
