@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's only the end if you give up!"
+> "Why have I come to have this conscience? If it’s this agonizing, I shouldn’t have had it. Just what am I?"
 
-&mdash; [**Elfman Strauss**](https://myanimelist.net/character.php?q=Elfman%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Alcor**](https://myanimelist.net/character.php?q=Alcor&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
