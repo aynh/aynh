@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you keep your vision clear you will see the future. What happens in our future is our own responsibility."
+> "It's only the end if you give up!"
 
-&mdash; [**Rem Saverem**](https://myanimelist.net/character.php?q=Rem%20Saverem&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Elfman Strauss**](https://myanimelist.net/character.php?q=Elfman%20Strauss&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
