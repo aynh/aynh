@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look at this world, so many people deserve to be killed. At the same time, a murderer must be ready to be killed as he lives. That's what retribution is. So, in this world, evil or whatever, a person strongly determined to live is the one who survives in the end."
+> "All those who wander in the darkness seek the light, but when they reach the light, they turn away their eyes from the blinding glare."
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Kazkis Hauer**](https://myanimelist.net/character.php?q=Kazkis%20Hauer&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
