@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because nothing makes one happier than being with the one you love."
+> "Don't be too negative. You haven't become ashes just yet. You have your flesh and blood, and your bones are supporting you."
 
-&mdash; [**Isla**](https://myanimelist.net/character.php?q=Isla&cat=character), [**Plastic Memories**](https://myanimelist.net/search/all?q=Plastic%20Memories&cat=all)
+&mdash; [**Sakurako Kujō**](https://myanimelist.net/character.php?q=Sakurako%20Kuj%C5%8D&cat=character), [**Sakurako-san no Ashioto ni wa Shitai ga Umatteiru**](https://myanimelist.net/search/all?q=Sakurako-san%20no%20Ashioto%20ni%20wa%20Shitai%20ga%20Umatteiru&cat=all)
