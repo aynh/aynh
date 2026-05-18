@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why have I come to have this conscience? If it’s this agonizing, I shouldn’t have had it. Just what am I?"
+> "Look at this world, so many people deserve to be killed. At the same time, a murderer must be ready to be killed as he lives. That's what retribution is. So, in this world, evil or whatever, a person strongly determined to live is the one who survives in the end."
 
-&mdash; [**Alcor**](https://myanimelist.net/character.php?q=Alcor&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
