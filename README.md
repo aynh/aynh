@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You STILL don't get it? When you tossed all of that away, a few important things were discarded as well. You abandoned your friends? More like you were afraid of BEING abandoned. You fight by yourself? More like you hid yourself in solitude from the beginning. You abandoned yourself? No... You just couldn't bear the pain of having a heavy load place upon you, or being a heavy load, so you ran. Like the coward you are. If you want to live your life abandoning one thing after another, that's your choice. But to try to incite your student to join you because you can't handle being alone, makes you a fool."
+> "There's some skill involved in the creation of anything. That skill is like a map made of the failures people have made in the past and learned from. That map can guide people. If you follow a certain route you'll fail. However, if you follow a different route you'll succeed. You can make something just by following the map. It will take form. It might be very hard task to walk the way others have told you. But if you have the will, it might turn out to be easy. But if you follow the path created by others, you'll eventually have to stop somewhere. Then what will you do? Will you create a new path for yourself? Or will you wait until someone creates one for you? Either one is fine. Stopping or moving forward. Because the path you'll follow is something you have to choose for yourself."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Madera**](https://myanimelist.net/character.php?q=Madera&cat=character), [**Shining Hearts**](https://myanimelist.net/search/all?q=Shining%20Hearts&cat=all)
