@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All those who wander in the darkness seek the light, but when they reach the light, they turn away their eyes from the blinding glare."
+> "'If I do this, I can stop the rebellion', 'if I do that, I can stop the rebellion'... Open your eyes, princess! Your zealous idealism disgusts me! Ideals can only be spoken by those powerful enough to carry them out. And that excludes you!"
 
-&mdash; [**Kazkis Hauer**](https://myanimelist.net/character.php?q=Kazkis%20Hauer&cat=character), [**Ergo Proxy**](https://myanimelist.net/search/all?q=Ergo%20Proxy&cat=all)
+&mdash; [**Crocodile**](https://myanimelist.net/character.php?q=Crocodile&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
