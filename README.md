@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who aim further for other's sake. Those who think of others before themselves. ...And those who hate themselves more than anyone. These are the qualities of a Magus. This is a contradiction you can only have if you are born broken."
+> "Even if you put aside regret, you´ll end up feeling it anyway. Right now, you need to make sure you grasp this good feeling and never forget it."
 
-&mdash; [**Tohsaka Rin**](https://myanimelist.net/character.php?q=Tohsaka%20Rin&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Ryūnosuke Tanaka**](https://myanimelist.net/character.php?q=Ry%C5%ABnosuke%20Tanaka&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
