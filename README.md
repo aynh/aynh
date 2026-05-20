@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not eating early. In my country, we always ate hot dogs during class."
+> "You know, I really can't stand it when guys pick on people weaker than them...but I guess I'll do it to you anyway!"
 
-&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
