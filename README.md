@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those bound by superficial rules who do not use their pawns to the utmost are fools."
+> "It's true, I don't have a body, but I'm here. This is my punishment for setting foot on holy ground where mortals are forbidden. We made a mistake, Rose, and we're paying for it."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
