@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's true, I don't have a body, but I'm here. This is my punishment for setting foot on holy ground where mortals are forbidden. We made a mistake, Rose, and we're paying for it."
+> "I'm not eating early. In my country, we always ate hot dogs during class."
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
