@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Accept that your life will be painful, bite back your grief and find the power to stand again."
+> "Nobody thinks they're cuter than others unless they're conceited."
 
-&mdash; [**Nakiami**](https://myanimelist.net/character.php?q=Nakiami&cat=character), [**Bounen No Zamned**](https://myanimelist.net/search/all?q=Bounen%20No%20Zamned&cat=all)
+&mdash; [**Maki Nishikino**](https://myanimelist.net/character.php?q=Maki%20Nishikino&cat=character), [**Love Live! School idol project TV 2/2014**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project%20TV%202%2F2014&cat=all)
