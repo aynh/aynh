@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, I really can't stand it when guys pick on people weaker than them...but I guess I'll do it to you anyway!"
+> "Accept that your life will be painful, bite back your grief and find the power to stand again."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Nakiami**](https://myanimelist.net/character.php?q=Nakiami&cat=character), [**Bounen No Zamned**](https://myanimelist.net/search/all?q=Bounen%20No%20Zamned&cat=all)
