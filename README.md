@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Y-you actually used your head??? You're going to get a fever!"
+> "I can't deny, I don't know very much about Rukia. That's not the point, I might not risk my life for her, but Ichigo wants to save her life and that's all I need to know. What may seem like an unworthy cause to you is more than enough reason for me."
 
-&mdash; [**Tobio Kageyama**](https://myanimelist.net/character.php?q=Tobio%20Kageyama&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
