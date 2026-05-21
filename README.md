@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't deny, I don't know very much about Rukia. That's not the point, I might not risk my life for her, but Ichigo wants to save her life and that's all I need to know. What may seem like an unworthy cause to you is more than enough reason for me."
+> "If it's a wish that can be fulfilled, then fulfill it. If there's hesitation and worries, then remove the sources of worries altogether."
 
-&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yoite**](https://myanimelist.net/character.php?q=Yoite&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
