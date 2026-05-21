@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A miracle never comes to those who seek it."
+> "[thinking] Step awaaaay from the psycho..."
 
-&mdash; [**Amamiya Yuuko**](https://myanimelist.net/character.php?q=Amamiya%20Yuuko&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
+&mdash; [**Manta Oyamada**](https://myanimelist.net/character.php?q=Manta%20Oyamada&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
