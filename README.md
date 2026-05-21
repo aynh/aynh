@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's a wish that can be fulfilled, then fulfill it. If there's hesitation and worries, then remove the sources of worries altogether."
+> "A miracle never comes to those who seek it."
 
-&mdash; [**Yoite**](https://myanimelist.net/character.php?q=Yoite&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Amamiya Yuuko**](https://myanimelist.net/character.php?q=Amamiya%20Yuuko&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
