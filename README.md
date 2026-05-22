@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, why does this situation look like something at the end of a shonen manga?!"
+> "I know the loneliness of being a prisoner. I know the joy you feel when your friends come to rescue you and the fear of them being injured and defeated."
 
-&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
