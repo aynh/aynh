@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You and I, our levels are as distant as the earth from the heavens. Must I spell it out for you? I have discarded my left arm, discarded my left leg, and yet even then I have not nearly lowered myself to your level."
+> "Let us talk about the brain. The brain is said to be the place where our consciousness resides. As we speak, each of us possesses our own distinct consciousness. We are all experiencing reality through our own point of view. To each of us, reality unfolds as a unique story as a result of our consciousness. However, looking to the outside from this box called the self, reality is subjective."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Akihiko Chuuzenji**](https://myanimelist.net/character.php?q=Akihiko%20Chuuzenji&cat=character), [**Mouryou No Hako**](https://myanimelist.net/search/all?q=Mouryou%20No%20Hako&cat=all)
