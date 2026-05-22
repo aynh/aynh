@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...As they played the game...I waited for someone to call 'onigiri'. But no one called. I was very little then. I had almost forgotten about that. But they knew...there would never be room for an onigiri...in a fruits basket."
+> "About marriage or about future, I don't know what will happen in the future. In this world, it's normal that when there's a preparation, then a new grief is born, but everyone has the right to desire happiness. Our efforts need to be held for the sake of our future."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
