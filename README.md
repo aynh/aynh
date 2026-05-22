@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let us talk about the brain. The brain is said to be the place where our consciousness resides. As we speak, each of us possesses our own distinct consciousness. We are all experiencing reality through our own point of view. To each of us, reality unfolds as a unique story as a result of our consciousness. However, looking to the outside from this box called the self, reality is subjective."
+> "Hey, why does this situation look like something at the end of a shonen manga?!"
 
-&mdash; [**Akihiko Chuuzenji**](https://myanimelist.net/character.php?q=Akihiko%20Chuuzenji&cat=character), [**Mouryou No Hako**](https://myanimelist.net/search/all?q=Mouryou%20No%20Hako&cat=all)
+&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
