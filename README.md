@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "About marriage or about future, I don't know what will happen in the future. In this world, it's normal that when there's a preparation, then a new grief is born, but everyone has the right to desire happiness. Our efforts need to be held for the sake of our future."
+> "You can't change anything unless you can discard part of yourself too. To surpass monsters, you must be willing to abandon your humanity."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
