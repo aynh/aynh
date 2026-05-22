@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The summer continues to make me wonder. So my head, boiling like a pot, will never cool. With the heat. With the cicadas buzzing. With the twinkling of the myriad stars floating in the sky."
+> "You’re like big umbrella. You’re the shade from the strong sun’s rays when the weather is good. And you’re the shelter from the cold rain when the weather is bad. You’re always protecting others."
 
-&mdash; [**Makoto Niwa**](https://myanimelist.net/character.php?q=Makoto%20Niwa&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Angelina Nanatsu Sewell**](https://myanimelist.net/character.php?q=Angelina%20Nanatsu%20Sewell&cat=character), [**Mashiroiro Symphony - The color of lovers**](https://myanimelist.net/search/all?q=Mashiroiro%20Symphony%20-%20The%20color%20of%20lovers&cat=all)
