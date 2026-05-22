@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You’re like big umbrella. You’re the shade from the strong sun’s rays when the weather is good. And you’re the shelter from the cold rain when the weather is bad. You’re always protecting others."
+> "...As they played the game...I waited for someone to call 'onigiri'. But no one called. I was very little then. I had almost forgotten about that. But they knew...there would never be room for an onigiri...in a fruits basket."
 
-&mdash; [**Angelina Nanatsu Sewell**](https://myanimelist.net/character.php?q=Angelina%20Nanatsu%20Sewell&cat=character), [**Mashiroiro Symphony - The color of lovers**](https://myanimelist.net/search/all?q=Mashiroiro%20Symphony%20-%20The%20color%20of%20lovers&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
