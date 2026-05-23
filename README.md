@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm gonna slit your stomach, take out your guts, and put them in a bowl. By the time I'm through with you, you're going to wish it was you who was dead."
+> "Consume wine, don't let the wine consume you."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
