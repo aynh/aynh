@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only someone that's prepared to devote oneself to others' happiness, without caring about his own, is allowed to become a king."
+> "True kindness isn't something we're born with. It's something we had to work on... (to Tohru)"
 
-&mdash; [**Oomine Daiya**](https://myanimelist.net/character.php?q=Oomine%20Daiya&cat=character), [**Utsuro no Hako to Zero no Maria**](https://myanimelist.net/search/all?q=Utsuro%20no%20Hako%20to%20Zero%20no%20Maria&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
