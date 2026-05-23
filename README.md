@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dreams, ambition, love, hope; in this world, could the glories of a youthful heart be.. forbidden?"
+> "She's been like that ever since I bought a box of donuts and had one more than her."
 
-&mdash; [**Berserk**](https://myanimelist.net/character.php?q=Berserk&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
