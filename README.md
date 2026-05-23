@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I know the loneliness of being a prisoner. I know the joy you feel when your friends come to rescue you and the fear of them being injured and defeated."
+> "The easiest way to test a person's real ability is under extreme conditions. Therefore, it's appropriate to choose the Shaman King through fighting."
 
-&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yoh Asakura**](https://myanimelist.net/character.php?q=Yoh%20Asakura&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
