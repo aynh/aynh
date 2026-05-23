@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "She's been like that ever since I bought a box of donuts and had one more than her."
+> "Do you know how they say that love is like a dream? With a dream, you eventually wake up from it. It's hard to force yourself to wake up."
 
-&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Kumin Tsuyuri**](https://myanimelist.net/character.php?q=Kumin%20Tsuyuri&cat=character), [**Chuunibyou Demo Koi Ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyou%20Demo%20Koi%20Ga%20Shitai!&cat=all)
