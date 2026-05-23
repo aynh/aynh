@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know how they say that love is like a dream? With a dream, you eventually wake up from it. It's hard to force yourself to wake up."
+> "I'll help you... But not by death, this world has enough of that. You can keep your life as long as you change the way you live it. It's never too late, believe me."
 
-&mdash; [**Kumin Tsuyuri**](https://myanimelist.net/character.php?q=Kumin%20Tsuyuri&cat=character), [**Chuunibyou Demo Koi Ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyou%20Demo%20Koi%20Ga%20Shitai!&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
