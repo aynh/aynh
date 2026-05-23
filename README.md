@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When people are faced with a situation they don't understand, it's easy for fear to take hold."
+> "Look Goku, you can go out in public and have your hair sticking out in every direction if you want to, but not me!"
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Bulma Briefs**](https://myanimelist.net/character.php?q=Bulma%20Briefs&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
