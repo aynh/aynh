@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have memories no one else remembers, what's the point in remembering them?"
+> "When people are faced with a situation they don't understand, it's easy for fear to take hold."
 
-&mdash; [**Liu Cheng-Long**](https://myanimelist.net/character.php?q=Liu%20Cheng-Long&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
