@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll help you... But not by death, this world has enough of that. You can keep your life as long as you change the way you live it. It's never too late, believe me."
+> "Ladies and gentlemen, THE FLAMEO'S!"
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
