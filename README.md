@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love in real life isn’t as smooth as in manga..."
+> "If I told her how I feel, she'd miss me even more. Afterall, I'm the guy who keeps breaking her heart by making her wait an eternity... even though I'm always by her side. I don't wanna see her cry anymore. Even if it means I no longer have a place in her heart. Seems pretty childish of me, doesn't it?"
 
-&mdash; [**Shōta Kisa**](https://myanimelist.net/character.php?q=Sh%C5%8Dta%20Kisa&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
