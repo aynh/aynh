@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm the tomato box fairy!"
+> "You know... You like me more than you think you do."
 
-&mdash; [**North Italy**](https://myanimelist.net/character.php?q=North%20Italy&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Masamune Takano**](https://myanimelist.net/character.php?q=Masamune%20Takano&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
