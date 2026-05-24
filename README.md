@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I told her how I feel, she'd miss me even more. Afterall, I'm the guy who keeps breaking her heart by making her wait an eternity... even though I'm always by her side. I don't wanna see her cry anymore. Even if it means I no longer have a place in her heart. Seems pretty childish of me, doesn't it?"
+> "The devil made me do it. It was all his fault. Yup, all him. Look at them shake. I don't blame them. The second I spotted them, I put a lid on the tin and ran away. In other words, I kidnapped them. Is there any way to spin this? I mean, any way to solve the problem?"
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
