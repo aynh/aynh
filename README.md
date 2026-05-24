@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People fear death because they don't 'understand' it, and we're afraid of strangers because we don't 'know' them. Not being able to understand the one you love... is the worst fear of all."
+> "It won't work. You country-bumpkins will stand out a mile. [Eats food with her hands]"
 
-&mdash; [**Mitsuzaki Yosuga**](https://myanimelist.net/character.php?q=Mitsuzaki%20Yosuga&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
