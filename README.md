@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I can do it tomorrow, I won't do it today!"
+> "But... If you're the kind of person who can devote herself like that to someone, then I'll bet you anything there's someone out there who'll fall in love with you."
 
-&mdash; [**KyÅko ToshinÅ**](https://myanimelist.net/character.php?q=Ky%C3%85%C2%8Dko%20Toshin%C3%85%C2%8D&cat=character), [**Yuri Yuri**](https://myanimelist.net/search/all?q=Yuri%20Yuri&cat=all)
+&mdash; [**Ichijou Raku**](https://myanimelist.net/character.php?q=Ichijou%20Raku&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
