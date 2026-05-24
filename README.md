@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It won't work. You country-bumpkins will stand out a mile. [Eats food with her hands]"
+> "[to Karin] Do as your heart desires! Jump into your father's bosom!"
 
-&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
