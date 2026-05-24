@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forget about revenge, and live on."
+> "I think... memories never disappear. Just like the paint I use. Even if I mix it with a new color. The old one still remains. Forever."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Ana Gram**](https://myanimelist.net/character.php?q=Ana%20Gram&cat=character), [**Phi Brain: Kami No Puzzle**](https://myanimelist.net/search/all?q=Phi%20Brain%3A%20Kami%20No%20Puzzle&cat=all)
