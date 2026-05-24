@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think... memories never disappear. Just like the paint I use. Even if I mix it with a new color. The old one still remains. Forever."
+> "Just like wine, some human relationships need time to mature."
 
-&mdash; [**Ana Gram**](https://myanimelist.net/character.php?q=Ana%20Gram&cat=character), [**Phi Brain: Kami No Puzzle**](https://myanimelist.net/search/all?q=Phi%20Brain%3A%20Kami%20No%20Puzzle&cat=all)
+&mdash; [**Daisuke Aramaki**](https://myanimelist.net/character.php?q=Daisuke%20Aramaki&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
