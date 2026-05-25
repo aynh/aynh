@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Karin] Do as your heart desires! Jump into your father's bosom!"
+> "I’d rather have my physical pain exceed my mental pain than the other way around. By hurting myself just enough, I could turn my attention to that."
 
-&mdash; [**Kurosaki Isshin**](https://myanimelist.net/character.php?q=Kurosaki%20Isshin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
