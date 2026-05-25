@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't just accept loss or defeat! Accept it after you're dead. If you lose without dying... it means that luck is on your side. If that happens - focus on surviving! Survive and Kill the one who couldn't kill YOU!"
+> "You've trapped yourself in a body you hated hiding in the pain, and now you want to torture yourself again for eternity...haven't we both paid enough?"
 
-&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
