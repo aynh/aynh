@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I shall cleanse away thy bitterness..."
+> "As long as it's for the right cause, there's nothing wrong with playing dirty."
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Kureo Mado**](https://myanimelist.net/character.php?q=Kureo%20Mado&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
