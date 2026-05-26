@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can look high or low but you wont find a bigger guy than me!"
+> "You talk big yet you're nothing but Akito's toy! (To Yuki)"
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
