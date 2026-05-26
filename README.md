@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've trapped yourself in a body you hated hiding in the pain, and now you want to torture yourself again for eternity...haven't we both paid enough?"
+> "I think that loving someone is utterly useless. The more you want to be loved the more it will make you miserable."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
