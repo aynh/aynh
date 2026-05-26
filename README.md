@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The summer continues to make me wonder. So my head, boiling like a pot, will never cool. With the heat. With the cicadas buzzing. With the twinkling of the myriad stars floating in the sky."
+> "You can look high or low but you wont find a bigger guy than me!"
 
-&mdash; [**Makoto Niwa**](https://myanimelist.net/character.php?q=Makoto%20Niwa&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
