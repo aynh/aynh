@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that loving someone is utterly useless. The more you want to be loved the more it will make you miserable."
+> "Stupid ocean!!! Ya want me to kill you? Huh??"
 
-&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
