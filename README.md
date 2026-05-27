@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "So long as a problem doesn't cause problems, it can't be called a problem."
+> "Whenever you fight from this point on, there is one thing you must never do. Which is...to die alone."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
