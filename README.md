@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever you fight from this point on, there is one thing you must never do. Which is...to die alone."
+> "I always knew you were no mere mortal... but I had no idea that you were a cat."
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
