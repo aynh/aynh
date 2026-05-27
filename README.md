@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I always knew you were no mere mortal... but I had no idea that you were a cat."
+> "If the results come true, it's as if there's only one future. If it fails, we can think that other futures exist... I want to believe that in our future there are many possibilities waiting."
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Fujibayashi Kyou**](https://myanimelist.net/character.php?q=Fujibayashi%20Kyou&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
