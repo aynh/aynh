@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "DON'T LEAVE ME!!"
+> "Games are fun because you can do things you couldn’t in real life, right?"
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Akatsuki**](https://myanimelist.net/character.php?q=Akatsuki&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
