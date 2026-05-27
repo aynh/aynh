@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Lives are never of equal value. There is always a ranking order."
+> "DON'T LEAVE ME!!"
 
-&mdash; [**Mako Fujisaki**](https://myanimelist.net/character.php?q=Mako%20Fujisaki&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
