@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the results come true, it's as if there's only one future. If it fails, we can think that other futures exist... I want to believe that in our future there are many possibilities waiting."
+> "We didn’t give up on our dreams! We changed our dreams into your dream! That’s what parents do! That’s what a family does!"
 
-&mdash; [**Fujibayashi Kyou**](https://myanimelist.net/character.php?q=Fujibayashi%20Kyou&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Furukawa Akio**](https://myanimelist.net/character.php?q=Furukawa%20Akio&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
