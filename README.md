@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Using a simple method to accomplish something impressive, far outshines using a complex method to achieve the same thing."
+> "If I'd known that the end would come so fast, I would have said so much more."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Daiki Mamura**](https://myanimelist.net/character.php?q=Daiki%20Mamura&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
