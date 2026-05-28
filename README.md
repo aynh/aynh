@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Anything can be a sword if you polish it enough."
+> "However far I fall as long as there's so much as a thread left I will use it to climb. I'll take hold of it. I refuse to give up while I'm still human I can do that much. But every person must decide on his own whether to grab it."
 
-&mdash; [**Nagisa Shiota**](https://myanimelist.net/character.php?q=Nagisa%20Shiota&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
