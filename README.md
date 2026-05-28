@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Games are fun because you can do things you couldn’t in real life, right?"
+> "Wear the best shoes you can, because those shoes will take you to great places."
 
-&mdash; [**Akatsuki**](https://myanimelist.net/character.php?q=Akatsuki&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Todo Shizuka**](https://myanimelist.net/character.php?q=Todo%20Shizuka&cat=character), [**Hana Yori Dango**](https://myanimelist.net/search/all?q=Hana%20Yori%20Dango&cat=all)
