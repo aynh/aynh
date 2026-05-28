@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "However far I fall as long as there's so much as a thread left I will use it to climb. I'll take hold of it. I refuse to give up while I'm still human I can do that much. But every person must decide on his own whether to grab it."
+> "I'm pathetic. I was observing the world from a safe distance. I was just scared of being hurt. I was lonely."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Amano Yukiteru**](https://myanimelist.net/character.php?q=Amano%20Yukiteru&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
