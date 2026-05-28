@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, nothing in life is ever certain."
+> "Using a simple method to accomplish something impressive, far outshines using a complex method to achieve the same thing."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
