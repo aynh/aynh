@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Meals are always better with lots of people at the table."
+> "You can die anytime, but living takes true courage."
 
-&mdash; [**Kido Tsubomi**](https://myanimelist.net/character.php?q=Kido%20Tsubomi&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
