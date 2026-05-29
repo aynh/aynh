@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If your opponent is of choleric temper, seek to irritate."
+> "Even innocent foolish children will grow up in the face of pain, until their thoughts and beliefs are the same as their doubts."
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Pain**](https://myanimelist.net/character.php?q=Pain&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
