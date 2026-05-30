@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...A human's belief can make the impossible possible."
+> "Don’t push your feelings onto others. No matter what pretty words you use, your kindness is just hypocrisy. You’re pretending to be nice only to make yourself feel better."
 
-&mdash; [**Kouta Tsuchiya**](https://myanimelist.net/character.php?q=Kouta%20Tsuchiya&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Hallelujah Haptism**](https://myanimelist.net/character.php?q=Hallelujah%20Haptism&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
