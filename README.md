@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Believe you can do it. For sure. Because I... belong to you now."
+> "If there's no eye to see, there's no difference between the darkness and the light."
 
-&mdash; [**Inori Yuzuriha**](https://myanimelist.net/character.php?q=Inori%20Yuzuriha&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Subaru**](https://myanimelist.net/character.php?q=Subaru&cat=character), [**Houkago no Pleiades**](https://myanimelist.net/search/all?q=Houkago%20no%20Pleiades&cat=all)
