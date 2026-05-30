@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If there's no eye to see, there's no difference between the darkness and the light."
+> "...A human's belief can make the impossible possible."
 
-&mdash; [**Subaru**](https://myanimelist.net/character.php?q=Subaru&cat=character), [**Houkago no Pleiades**](https://myanimelist.net/search/all?q=Houkago%20no%20Pleiades&cat=all)
+&mdash; [**Kouta Tsuchiya**](https://myanimelist.net/character.php?q=Kouta%20Tsuchiya&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
