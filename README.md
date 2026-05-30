@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Suna, maybe people all have a hot, molten core inside their hearts, but they just live their lives, never showing it to the world, as if nothing is really going on."
+> "Ever since that fiery night, my time has been stopped. But it was you who melted my frozen heart and kindly made my stopped time begin to move forward again."
 
-&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Rem (re:zero)**](https://myanimelist.net/character.php?q=Rem%20(re%3Azero)&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
