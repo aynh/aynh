@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans who lose the capacity to think become creatures who's existence has no value. Think, you humans who are split into two worlds, unless you want the gulf between humans to expand into oblivion, you must think!"
+> "My name is Duck. Yes, like the bird. Take it up with my parents. They never loved me!"
 
-&mdash; [**Michael Seebach**](https://myanimelist.net/character.php?q=Michael%20Seebach&cat=character), [**The Big O**](https://myanimelist.net/search/all?q=The%20Big%20O&cat=all)
+&mdash; [**Ahiru Arima**](https://myanimelist.net/character.php?q=Ahiru%20Arima&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
