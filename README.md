@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ever since that fiery night, my time has been stopped. But it was you who melted my frozen heart and kindly made my stopped time begin to move forward again."
+> "The more fun I have, the more it'll hurt when we part ways. I know that all too well."
 
-&mdash; [**Rem (re:zero)**](https://myanimelist.net/character.php?q=Rem%20(re%3Azero)&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
+&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
