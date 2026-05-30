@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more fun I have, the more it'll hurt when we part ways. I know that all too well."
+> "I am Horo the Wise Wolf, and I am a very proud wolf."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
