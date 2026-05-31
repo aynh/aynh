@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[as Zhao threatens the moon spirit] Whatever you do to that spirit, I'll unleash on you tenfold! Let it go now!"
+> "You do them one favor and they think you're their best friend. This is why I could care less if their entire species was swallowed up."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
