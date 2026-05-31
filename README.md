@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even a child that receives one bit of praise has the ability to excel in a single talent, and those who receive regular encouragement can feel confidence, achieve success, and become leading members of society. Because they don’t believe they are worthless, they don’t need to raise a fist and have vengeance against fate or the world at large…"
+> "Kakarot, you’re quite impressive. I never stood a chance against Buu, you’re the only one who can fight him. I think I finally understand how a genius like myself can’t surpass you. I thought it was because you had something to protect. I thought your drive to protect allowed you to take advantage of your capabilities… this may have been a reason, but not I too have this drive. I fought to do as I wished, because it was fun to kill my enemies and feed my pride. But he’s different, he fights not to win but because he absolutely won’t lose, causing him to break his limits and he really doesn’t care who his opponent is. So when he didn’t kill me, it was because he saw I could care for others, like I do now… Go Kakarot, you’re number one!"
 
-&mdash; [**Inspector Lunge**](https://myanimelist.net/character.php?q=Inspector%20Lunge&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
