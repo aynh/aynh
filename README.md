@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You find a glimmer of hope, only to lose it. That is when your despair tastes the most divine."
+> "No one can justify life by linking happy moments into a rosary."
 
-&mdash; [**Takaya Kurisu**](https://myanimelist.net/character.php?q=Takaya%20Kurisu&cat=character), [**Amagi Brilliant Park**](https://myanimelist.net/search/all?q=Amagi%20Brilliant%20Park&cat=all)
+&mdash; [**Shinji Ikari**](https://myanimelist.net/character.php?q=Shinji%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
