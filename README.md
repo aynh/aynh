@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not Toph! I am Melon Lord! (Toph laughs maniacally)"
+> "Even a child that receives one bit of praise has the ability to excel in a single talent, and those who receive regular encouragement can feel confidence, achieve success, and become leading members of society. Because they don’t believe they are worthless, they don’t need to raise a fist and have vengeance against fate or the world at large…"
 
-&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Inspector Lunge**](https://myanimelist.net/character.php?q=Inspector%20Lunge&cat=character), [**Monster**](https://myanimelist.net/search/all?q=Monster&cat=all)
