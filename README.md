@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We have no choice but to accept the one and only life we're given, no matter how cruel and heartless it might be."
+> "I can't stand that witch, stupid snake woman."
 
-&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Eruka Frog**](https://myanimelist.net/character.php?q=Eruka%20Frog&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
