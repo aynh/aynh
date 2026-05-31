@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You do them one favor and they think you're their best friend. This is why I could care less if their entire species was swallowed up."
+> "We have no choice but to accept the one and only life we're given, no matter how cruel and heartless it might be."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
