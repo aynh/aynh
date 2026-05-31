@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am Horo the Wise Wolf, and I am a very proud wolf."
+> "[as Zhao threatens the moon spirit] Whatever you do to that spirit, I'll unleash on you tenfold! Let it go now!"
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
