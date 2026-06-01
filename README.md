@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People's thoughts, wishes, hopes and desires... We live in a time where technology can read everything in your mind, and yet, this place teems with people who hate, lie, steal and try to harm others. If that's not irrational, then what is it?"
+> "If you hurt somebody or if someone hurts you, - the same red blood will be shed."
 
-&mdash; [**Tomomi Masaoka**](https://myanimelist.net/character.php?q=Tomomi%20Masaoka&cat=character), [**Psycho-Pass Extended Edition**](https://myanimelist.net/search/all?q=Psycho-Pass%20Extended%20Edition&cat=all)
+&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
