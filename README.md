@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you hurt somebody or if someone hurts you, - the same red blood will be shed."
+> "If all things are in fact preordained, then why... why is humanity able to think for itself?"
 
-&mdash; [**One Piece**](https://myanimelist.net/character.php?q=One%20Piece&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Alcor**](https://myanimelist.net/character.php?q=Alcor&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
