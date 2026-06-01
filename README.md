@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how strong one may be, no one can stop the flow of time."
+> "You can catch a mouse that's shut in a cage. However, catching a mouse in a field is like trying to catch a cloud."
 
-&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Beatrice**](https://myanimelist.net/character.php?q=Beatrice&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
