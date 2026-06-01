@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know why people stress over things? Because there aren't any easy answers."
+> "However, I do know one guy who whines, cries, and throws tantrums but still manages to save everyone. He's a crazy man who's not afraid of anything. Even though he's been scarred from head to toe, he'll always be there."
 
-&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
