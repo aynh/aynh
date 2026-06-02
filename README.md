@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People don't realize they aren't able to choose whether or not to believe something. If they subconsciously believe something, therein lies the potential for a curse."
+> "There are only two professions in the whole world that give meaning to those who have died and what have been lost... They're writers and detectives. Writers are the only ones able to revive what was lost through their visions. Detectives are the only ones able to dig up the grave and bring back lost information. But the information us detectives dig up is nothing more than the truth as recorded in Heaven's Memo Pad."
 
-&mdash; [**Kanoe Yuuko**](https://myanimelist.net/character.php?q=Kanoe%20Yuuko&cat=character), [**Tasogare Otome X Amnesia**](https://myanimelist.net/search/all?q=Tasogare%20Otome%20X%20Amnesia&cat=all)
+&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
