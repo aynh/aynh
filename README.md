@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Words are shallow. Just talking doesn't bring world peace."
+> "There's no way I'm dying before you do, you morally bankrupt Colonel with a God complex."
 
-&mdash; [**Daichi Muroto**](https://myanimelist.net/character.php?q=Daichi%20Muroto&cat=character), [**Kotoura-san**](https://myanimelist.net/search/all?q=Kotoura-san&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
