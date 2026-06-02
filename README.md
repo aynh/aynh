@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The fake is of far greater value. In its deliberate attempt to be real, it's more real than the real thing."
+> "Words are shallow. Just talking doesn't bring world peace."
 
-&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Daichi Muroto**](https://myanimelist.net/character.php?q=Daichi%20Muroto&cat=character), [**Kotoura-san**](https://myanimelist.net/search/all?q=Kotoura-san&cat=all)
