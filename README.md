@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are only two professions in the whole world that give meaning to those who have died and what have been lost... They're writers and detectives. Writers are the only ones able to revive what was lost through their visions. Detectives are the only ones able to dig up the grave and bring back lost information. But the information us detectives dig up is nothing more than the truth as recorded in Heaven's Memo Pad."
+> "The fake is of far greater value. In its deliberate attempt to be real, it's more real than the real thing."
 
-&mdash; [**Shionji Yuuko**](https://myanimelist.net/character.php?q=Shionji%20Yuuko&cat=character), [**Kamisama No Memochou**](https://myanimelist.net/search/all?q=Kamisama%20No%20Memochou&cat=all)
+&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
