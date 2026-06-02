@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Angels banished from heaven have no choice but to become devils."
+> "People don't realize they aren't able to choose whether or not to believe something. If they subconsciously believe something, therein lies the potential for a curse."
 
-&mdash; [**Vicious**](https://myanimelist.net/character.php?q=Vicious&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Kanoe Yuuko**](https://myanimelist.net/character.php?q=Kanoe%20Yuuko&cat=character), [**Tasogare Otome X Amnesia**](https://myanimelist.net/search/all?q=Tasogare%20Otome%20X%20Amnesia&cat=all)
