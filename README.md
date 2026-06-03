@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't keep something without fighting for it."
+> "That's why Kagome sent me, so I can protect you from being protected by him."
 
-&mdash; [**Hajime Kanzaki**](https://myanimelist.net/character.php?q=Hajime%20Kanzaki&cat=character), [**Beelzebub**](https://myanimelist.net/search/all?q=Beelzebub&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
