@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's why Kagome sent me, so I can protect you from being protected by him."
+> "It's too late to regret. Reality is just cruelly moving forward."
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Tobi**](https://myanimelist.net/character.php?q=Tobi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
