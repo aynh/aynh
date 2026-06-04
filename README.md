@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why are you staring at me? Are you annoyed that I am the only one who has cake?"
+> "Aahhh someone saves me."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
