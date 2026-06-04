@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is only a fine line separating art from madness."
+> "I don't understand the feelings of the weak. The law of the world is survival at its fittest. Its how the weak are weeded out. It just means those people that died were too weak. Its only natural for the weak to perish."
 
-&mdash; [**Nathan Mahler**](https://myanimelist.net/character.php?q=Nathan%20Mahler&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
+&mdash; [**Esdeath**](https://myanimelist.net/character.php?q=Esdeath&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
