@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Aahhh someone saves me."
+> "There is only a fine line separating art from madness."
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Nathan Mahler**](https://myanimelist.net/character.php?q=Nathan%20Mahler&cat=character), [**Blood+**](https://myanimelist.net/search/all?q=Blood%2B&cat=all)
