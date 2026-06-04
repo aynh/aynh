@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think anyone is born with a reason to live. It's something you have to find for yourself."
+> "Why are you staring at me? Are you annoyed that I am the only one who has cake?"
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
