@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "<About Ciel> He turns his back towards the light without hesitation. That figure that charges into the abyss at a dignified pace. How beautiful and foolish."
+> "I don't think anyone is born with a reason to live. It's something you have to find for yourself."
 
-&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
