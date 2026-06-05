@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Making his presence felt on his favorite piece of work - this is an oppurtunity no otaku would miss."
+> "If I suddenly showed up, would I bother him? Surprise him? There’s no way we could meet. But what if we did? What should I do? Would I annoy him? Would it be awkward? Or maybe… He’d be a bit glad to see me?"
 
-&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
+&mdash; [**Mitsuha Miyamizu**](https://myanimelist.net/character.php?q=Mitsuha%20Miyamizu&cat=character), [**Kimi no Na wa**](https://myanimelist.net/search/all?q=Kimi%20no%20Na%20wa&cat=all)
