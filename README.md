@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "See, 'empty' just means you have plenty of room to take in all kinds of new things. Fun things, precious things, painful things, things you've never seen before!"
+> "Life is like a tube of toothpaste. When you've used all the toothpaste down the last squeeze, that's when you've really lived. Live with all your might. And struggle as long as you have life."
 
-&mdash; [**Hana N. Fontainestand**](https://myanimelist.net/character.php?q=Hana%20N.%20Fontainestand&cat=character), [**Hanayamata**](https://myanimelist.net/search/all?q=Hanayamata&cat=all)
+&mdash; [**Sonozaki Mion**](https://myanimelist.net/character.php?q=Sonozaki%20Mion&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
