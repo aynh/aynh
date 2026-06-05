@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's one good thing about being an idiot. When they really get into something, they can simple-mindedly devote all of their attention to it. I guess some people would just call them obsessed, but to them, that's high praise!"
+> "... After all, our goal each year should be to increase the NUMBER of goals we set for ourselves!"
 
-&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
