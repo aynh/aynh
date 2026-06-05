@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're a hero to other poor people, Fujioka. You've shown the world that even a poor person can excel at an elite private academy. It must be hard for you to constantly be looked down upon by others... Spurned, neglected, but that doesn't matter now. Long live the poor! We welcome you, poor man, to our world... of beauty!"
+> "See, 'empty' just means you have plenty of room to take in all kinds of new things. Fun things, precious things, painful things, things you've never seen before!"
 
-&mdash; [**Suoh Tamaki**](https://myanimelist.net/character.php?q=Suoh%20Tamaki&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Hana N. Fontainestand**](https://myanimelist.net/character.php?q=Hana%20N.%20Fontainestand&cat=character), [**Hanayamata**](https://myanimelist.net/search/all?q=Hanayamata&cat=all)
