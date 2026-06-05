@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is like a tube of toothpaste. When you've used all the toothpaste down the last squeeze, that's when you've really lived. Live with all your might. And struggle as long as you have life."
+> "There's one good thing about being an idiot. When they really get into something, they can simple-mindedly devote all of their attention to it. I guess some people would just call them obsessed, but to them, that's high praise!"
 
-&mdash; [**Sonozaki Mion**](https://myanimelist.net/character.php?q=Sonozaki%20Mion&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Sakamoto Yuuji**](https://myanimelist.net/character.php?q=Sakamoto%20Yuuji&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
