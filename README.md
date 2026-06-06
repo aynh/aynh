@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've been around longer than you have, kid. And I've seen my share of troubles. You're not the only one who knows what it's like to lose somebody. It looks like neither of us has led a charming life, have we? Still, it's not that bad. At least you and I have been lucky enough to find new comrades to help fill the void."
+> "So you want to die honorably? You are being selfish. Each and every person you killed had his own life. Whether that life was blessed or not ... everyone is born into this world ... they grow up ... some people have family ... some are alone in this world ... some have young children ... some are engaged ... some have pets ...some people have high hopes and great dreams ... other have no ambition at all and you ended everything for them Takezo"
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Takuan Sōhō**](https://myanimelist.net/character.php?q=Takuan%20S%C5%8Dh%C5%8D&cat=character), [**Vagabond**](https://myanimelist.net/search/all?q=Vagabond&cat=all)
