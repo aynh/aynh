@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't intentionally ignore anyone. Their words simply don't resonate with me."
+> "I see. I feel a strong pulse."
 
-&mdash; [**Asaba Yuki**](https://myanimelist.net/character.php?q=Asaba%20Yuki&cat=character), [**Kimi To Boku.**](https://myanimelist.net/search/all?q=Kimi%20To%20Boku.&cat=all)
+&mdash; [**Rukia Kuchiki**](https://myanimelist.net/character.php?q=Rukia%20Kuchiki&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
