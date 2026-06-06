@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Helping other people is the best way to make up for your mistakes."
+> "Even if you put aside regret, you´ll end up feeling it anyway. Right now, you need to make sure you grasp this good feeling and never forget it."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Ryūnosuke Tanaka**](https://myanimelist.net/character.php?q=Ry%C5%ABnosuke%20Tanaka&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
