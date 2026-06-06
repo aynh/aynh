@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I will acknowledge you as my enemy and destroy you."
+> "It's better trusting someone than to die doubting people altogether."
 
-&mdash; [**Acnologia**](https://myanimelist.net/character.php?q=Acnologia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kaitou Kid**](https://myanimelist.net/character.php?q=Kaitou%20Kid&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
