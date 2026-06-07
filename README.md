@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A half moon. A bright half and a dark half. Just like me."
+> "Whenever we pray for someone's happiness, someone else must be cursed in exchange."
 
-&mdash; [**Gasai Yuno**](https://myanimelist.net/character.php?q=Gasai%20Yuno&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Sayaka Miki**](https://myanimelist.net/character.php?q=Sayaka%20Miki&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
