@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Lately, I've been looking at these two guys only. As expected, I see flowers when there are women in the workplace... the atmosphere!"
+> "Put away your sword and you shall live...unless you're still dreaming about defeating me. Did you forget, or did it just never occur to you...that I have Bankai as well?"
 
-&mdash; [**Urahara Kisuke**](https://myanimelist.net/character.php?q=Urahara%20Kisuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
