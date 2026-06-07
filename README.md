@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Never trust anyone too much, remember the devil was once an angel."
+> "No matter the journey, when you come to a fork in the road, you must decide in an instant which path to take."
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
