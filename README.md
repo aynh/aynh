@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Put away your sword and you shall live...unless you're still dreaming about defeating me. Did you forget, or did it just never occur to you...that I have Bankai as well?"
+> "And can you offer me proof of your existence? How can you, when neither modern science nor philosophy can explain what life is?"
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Puppet Master**](https://myanimelist.net/character.php?q=Puppet%20Master&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
