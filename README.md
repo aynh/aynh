@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And can you offer me proof of your existence? How can you, when neither modern science nor philosophy can explain what life is?"
+> "Chasing someone is tiring, and being chased is mentally exhausting. But making someone chase you can be fun."
 
-&mdash; [**Puppet Master**](https://myanimelist.net/character.php?q=Puppet%20Master&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Ikta Solork**](https://myanimelist.net/character.php?q=Ikta%20Solork&cat=character), [**Alderamin on the Sky**](https://myanimelist.net/search/all?q=Alderamin%20on%20the%20Sky&cat=all)
