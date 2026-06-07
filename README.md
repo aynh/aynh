@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My mom always says, strangers are just friends you haven't met yet."
+> "Never trust anyone too much, remember the devil was once an angel."
 
-&mdash; [**Jaune Arc**](https://myanimelist.net/character.php?q=Jaune%20Arc&cat=character), [**RWBY**](https://myanimelist.net/search/all?q=RWBY&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
