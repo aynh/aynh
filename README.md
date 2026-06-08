@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say that if you change yourself, you'll change the world. but that's a complete lie. They're just forcing you to compromise, by feeding you a convenient little fib."
+> "Upon researching the concept of demons, I believe that, among all life, humans are the closest thing to it."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Migi**](https://myanimelist.net/character.php?q=Migi&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
