@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Upon researching the concept of demons, I believe that, among all life, humans are the closest thing to it."
+> "When you’re in love, you start to worry about the most trivial details. It should feel really restrictive, but worrying about this kind of thing makes me really happy instead."
 
-&mdash; [**Migi**](https://myanimelist.net/character.php?q=Migi&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
+&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
