@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do not fear death. I fear only that my rage will fade over time."
+> "There're too many people who worry about the things I don't worry about."
 
-&mdash; [**Kurapika**](https://myanimelist.net/character.php?q=Kurapika&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Takeshi Nanase**](https://myanimelist.net/character.php?q=Takeshi%20Nanase&cat=character), [**Magical Warfare**](https://myanimelist.net/search/all?q=Magical%20Warfare&cat=all)
