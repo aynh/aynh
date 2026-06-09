@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should cry while you still can. When you get bigger, sometimes, you can't cry even if you have something you wanna cry about."
+> "If you can't give up one, learn to balance both at the same time. Why does it have to be all or nothing?"
 
-&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Kenji Yamaguchi**](https://myanimelist.net/character.php?q=Kenji%20Yamaguchi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
