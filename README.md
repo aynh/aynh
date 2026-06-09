@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can't give up one, learn to balance both at the same time. Why does it have to be all or nothing?"
+> "If I kill you, that means I'll be the one closest to you when you're on your deathbed. Isn't it romantic?"
 
-&mdash; [**Kenji Yamaguchi**](https://myanimelist.net/character.php?q=Kenji%20Yamaguchi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
