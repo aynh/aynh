@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I kill you, that means I'll be the one closest to you when you're on your deathbed. Isn't it romantic?"
+> "I kiss you!"
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
