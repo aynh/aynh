@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it’s an important memory, then you shouldn't forget it. Since those who aren't with us only live on in our memories."
+> "If anyone else kills you, I'll kill that person."
 
-&mdash; [**Wataru Takagi**](https://myanimelist.net/character.php?q=Wataru%20Takagi&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
