@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Starting today... I'll be with you! I'll always be by your side! (to a young Kyo)"
+> "If it’s an important memory, then you shouldn't forget it. Since those who aren't with us only live on in our memories."
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Wataru Takagi**](https://myanimelist.net/character.php?q=Wataru%20Takagi&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
