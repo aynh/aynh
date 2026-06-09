@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I kiss you!"
+> "Problems that cannot be solved do not exist in this world."
 
-&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Yuki Nagato**](https://myanimelist.net/character.php?q=Yuki%20Nagato&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
