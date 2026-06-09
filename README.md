@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Problems that cannot be solved do not exist in this world."
+> "You can't change the world without getting your hands dirty."
 
-&mdash; [**Yuki Nagato**](https://myanimelist.net/character.php?q=Yuki%20Nagato&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
