@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as you do not give up, nothing is over."
+> "Is fighting right, or wrong? Does winning in the end mean justice? Truthfully, I don't know. But I know we must fight this battle! Or we will never save the world."
 
-&mdash; [**Yuzuki Eba**](https://myanimelist.net/character.php?q=Yuzuki%20Eba&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
+&mdash; [**Haru Glory**](https://myanimelist.net/character.php?q=Haru%20Glory&cat=character), [**Rave Master**](https://myanimelist.net/search/all?q=Rave%20Master&cat=all)
