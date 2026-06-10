@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do whatever you want now. But if you disturb me, I'll kill you."
+> "Protecting a man’s pride… is a woman’s duty."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Saeko Busujima**](https://myanimelist.net/character.php?q=Saeko%20Busujima&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
