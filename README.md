@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don’t have the resolve to take responsibility for her until the very end, then don’t do anything unnecessary."
+> "As long as you do not give up, nothing is over."
 
-&mdash; [**Itami Youji**](https://myanimelist.net/character.php?q=Itami%20Youji&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Yuzuki Eba**](https://myanimelist.net/character.php?q=Yuzuki%20Eba&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
