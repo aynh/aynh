@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A dream... It's something you do for yourself, not for others."
+> "Live, Clare! Your staying alive is the only proof that Teresa ever existed."
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Irene**](https://myanimelist.net/character.php?q=Irene&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
