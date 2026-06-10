@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Protecting a man’s pride… is a woman’s duty."
+> "If you don’t have the resolve to take responsibility for her until the very end, then don’t do anything unnecessary."
 
-&mdash; [**Saeko Busujima**](https://myanimelist.net/character.php?q=Saeko%20Busujima&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Itami Youji**](https://myanimelist.net/character.php?q=Itami%20Youji&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
