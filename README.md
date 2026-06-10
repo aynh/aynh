@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Live, Clare! Your staying alive is the only proof that Teresa ever existed."
+> "Do whatever you want now. But if you disturb me, I'll kill you."
 
-&mdash; [**Irene**](https://myanimelist.net/character.php?q=Irene&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
