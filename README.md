@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who cares about school?! The real me lives on the Internet!"
+> "Emblem? Looks like a grumbling, drunken tapeworm to me."
 
-&mdash; [**Natsume Asako**](https://myanimelist.net/character.php?q=Natsume%20Asako&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
