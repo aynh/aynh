@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We've just witnessed a classic example of what I like to call 'misdirected rage'. Though I believe the technical term is being an ass."
+> "My legend dates back to the 12th Century thank you very much."
 
-&mdash; [**Sohma Shigure**](https://myanimelist.net/character.php?q=Sohma%20Shigure&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
