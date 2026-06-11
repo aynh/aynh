@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only those who do their jobs on the battlefield get the rewards they desire. That's the life of a warrior."
+> "Emotions? Nope, I've got nothin' like that. I told you when we first met, didn't I? I'm a snake. With cold skin, no emotions, that slithers around searching for prey with its tongue, swallowing down whatever looks tasty."
 
-&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Ichimaru Gin**](https://myanimelist.net/character.php?q=Ichimaru%20Gin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
