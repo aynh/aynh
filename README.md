@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't stray from my path for those I've left behind."
+> "Blah, blah, blah, blah… quit your blabbering. Look at this. [holds up an empty glass] Thanks to you assholes, my chocolate parfait [hits one of the amanto with his bokuto] fell to the ground!"
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
