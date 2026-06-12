@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Blah, blah, blah, blah… quit your blabbering. Look at this. [holds up an empty glass] Thanks to you assholes, my chocolate parfait [hits one of the amanto with his bokuto] fell to the ground!"
+> "The one who holds power has no self-awareness of his responsibilities and the one aware of the responsibilities has no power at all."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Arslan**](https://myanimelist.net/character.php?q=Arslan&cat=character), [**The Heroic Legend of Arslan**](https://myanimelist.net/search/all?q=The%20Heroic%20Legend%20of%20Arslan&cat=all)
