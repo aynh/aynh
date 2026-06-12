@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who close their eyes to the past, become blind to the future."
+> "I'm not going to protect you by being your shield or armor, but I'll be the dagger hidden below your pillow."
 
-&mdash; [**Juzo Okita**](https://myanimelist.net/character.php?q=Juzo%20Okita&cat=character), [**Space Battleship Yamato**](https://myanimelist.net/search/all?q=Space%20Battleship%20Yamato&cat=all)
+&mdash; [**Shuu Tsukiyama**](https://myanimelist.net/character.php?q=Shuu%20Tsukiyama&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
