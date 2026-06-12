@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I CAN DO THAT TOO!' *He takes out a banana and squishes it, giggling evilly*"
+> "Those who close their eyes to the past, become blind to the future."
 
-&mdash; [**Imadori Kyousuke**](https://myanimelist.net/character.php?q=Imadori%20Kyousuke&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
+&mdash; [**Juzo Okita**](https://myanimelist.net/character.php?q=Juzo%20Okita&cat=character), [**Space Battleship Yamato**](https://myanimelist.net/search/all?q=Space%20Battleship%20Yamato&cat=all)
