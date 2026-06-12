@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[about his deceased friend] I never overcame my shyness and told her that I actually liked clouds."
+> "I can't stray from my path for those I've left behind."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
