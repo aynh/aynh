@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I sunk again. *after sinking in the desert*"
+> "When you go easy on the ones with just a bit of power, they give you more trouble than anybody else."
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Madara**](https://myanimelist.net/character.php?q=Madara&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
