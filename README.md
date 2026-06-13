@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just killing time until the world ends."
+> "It would be cruelest to keep your hopes up when I already know the answer."
 
-&mdash; [**Furude Rika**](https://myanimelist.net/character.php?q=Furude%20Rika&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
