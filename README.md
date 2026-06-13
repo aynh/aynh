@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Tamaki* It's easy to feel sorry for him, but the hardships that he endured as a child, molded him into the person he is today. He'll be fine, the Host Club is his refuge, which means when all is said and done... he still has us."
+> "Violence is never the right answer, unless used against heathens and monsters."
 
-&mdash; [**Kyoya Ootori**](https://myanimelist.net/character.php?q=Kyoya%20Ootori&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Alexander Anderson**](https://myanimelist.net/character.php?q=Alexander%20Anderson&cat=character), [**Hellsing Ultimate**](https://myanimelist.net/search/all?q=Hellsing%20Ultimate&cat=all)
