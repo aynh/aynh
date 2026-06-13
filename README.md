@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If all humans were saints and sages, all truths would be exposed. And every just cause, expedient, ideal, and lie would no longer be necessary, yes?"
+> "Memories of someone who’s passed away remains beautiful forever and a person’s heart will linger over them, they say."
 
-&mdash; [**Kaishou Rinroku**](https://myanimelist.net/character.php?q=Kaishou%20Rinroku&cat=character), [**Un-Go**](https://myanimelist.net/search/all?q=Un-Go&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
