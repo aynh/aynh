@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you go easy on the ones with just a bit of power, they give you more trouble than anybody else."
+> "I can see the ending!"
 
-&mdash; [**Madara**](https://myanimelist.net/character.php?q=Madara&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
