@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It might be ridiculous to save the people. But when there are sad people in front of us... we can't just ignore them."
+> "We humans can indeed lose again something we've lost already."
 
-&mdash; [**Angelique**](https://myanimelist.net/character.php?q=Angelique&cat=character), [**Neo Angelique Abyss**](https://myanimelist.net/search/all?q=Neo%20Angelique%20Abyss&cat=all)
+&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
