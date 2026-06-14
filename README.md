@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I confessed you know!? Many, many times! Even though I knew the answer from my mouth... with my voice! I confessed you know!? Have you ever looked at Raku straight in the eyes!? Is that all you've got for Raku!? At least for the last time, you need to be a little more truthful to yourself!! If you really liked him, then you can't just pretend like nothing ever happened!!"
+> "[Onizuka's p*nis is bit by a snake]Someone. Suck the poison out! ...Fuyutsuki-chan! I beg you! Suck it out quickly!"
 
-&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
