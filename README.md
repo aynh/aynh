@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But its power goes beyond what is necessary... Does one really need the power to destroy everything?"
+> "Weaklings will stay weak forever. But weakness is not evil, since human beings are weak creatures to begin with. Alone, you feel nothing but insecurity; that's why we form guilds, that's why we have friends. We walk together in order to live a strong life. The clumsy ones will walk into more walls than the others, and it may also take them longer to get there. If you believe in tomorrow and put yourself out there, you can naturally obtain your strength. That's how you will be able to smile and live strong."
 
-&mdash; [**Fei Fong Wong**](https://myanimelist.net/character.php?q=Fei%20Fong%20Wong&cat=character), [**Xenogears**](https://myanimelist.net/search/all?q=Xenogears&cat=all)
+&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
