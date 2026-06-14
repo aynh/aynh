@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Working hard alone doesn't assure you that you'll achieve your dreams. Actually there are more cases where you don't. Even so, working hard and achieving something is some consolation at least."
+> "I confessed you know!? Many, many times! Even though I knew the answer from my mouth... with my voice! I confessed you know!? Have you ever looked at Raku straight in the eyes!? Is that all you've got for Raku!? At least for the last time, you need to be a little more truthful to yourself!! If you really liked him, then you can't just pretend like nothing ever happened!!"
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
