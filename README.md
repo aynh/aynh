@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Onizuka's p*nis is bit by a snake]Someone. Suck the poison out! ...Fuyutsuki-chan! I beg you! Suck it out quickly!"
+> "It might be ridiculous to save the people. But when there are sad people in front of us... we can't just ignore them."
 
-&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
+&mdash; [**Angelique**](https://myanimelist.net/character.php?q=Angelique&cat=character), [**Neo Angelique Abyss**](https://myanimelist.net/search/all?q=Neo%20Angelique%20Abyss&cat=all)
