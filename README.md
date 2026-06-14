@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The question is what does it take to be the one in control? Money? Brains? Strategic Prowess? Of course, all three are very important. However, there is something that outshines them all and provides a faster and more effective way to victory. And that is... information. The one in possession of information will be able to easily become the ruler of the liar game."
+> "There are two kinds of people in this world. Those who eat the things they hate first, and those who eat them last."
 
-&mdash; [**Yokoya Norihiko**](https://myanimelist.net/character.php?q=Yokoya%20Norihiko&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Fukuda Nanjirou**](https://myanimelist.net/character.php?q=Fukuda%20Nanjirou&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
