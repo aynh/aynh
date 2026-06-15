@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how hard or impossible it is, never lose sight of your goal."
+> "Without strength, you won't be able to save anyone."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Kizaru**](https://myanimelist.net/character.php?q=Kizaru&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
