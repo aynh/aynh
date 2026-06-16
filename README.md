@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[a giant satellite bomb is headed towards the city] If that thing hits, do you think we'll have school tomorrow?"
+> "Sit upon the frozen heavens! Hyōrinmaru!!"
 
-&mdash; [**Mamimi Samejima**](https://myanimelist.net/character.php?q=Mamimi%20Samejima&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
