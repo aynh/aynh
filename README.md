@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sit upon the frozen heavens! Hyōrinmaru!!"
+> "We're all lost... That's why we're sad."
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Van Hohenheim**](https://myanimelist.net/character.php?q=Van%20Hohenheim&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
