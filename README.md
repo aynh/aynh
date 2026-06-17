@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you aren't remembered, then you never existed."
+> "Being alive...is a sign of strength!"
 
-&mdash; [**Arisu Mizuki**](https://myanimelist.net/character.php?q=Arisu%20Mizuki&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
