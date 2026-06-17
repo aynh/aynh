@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is Living? Living is continuing to make choices. Living is enjoying oneself. Living is continuing to make choices. Living is expressing one’s will. Living is enjoying oneself. Living is continuing to search. Living is eating. Living is continuing to fight. Living is being lost. Living is preparing oneself."
+> "Humans are easily tempted. When they are poised on the edge of hellish despair, and a spider-thin thread of salvation presents itself, they will invariably grasp it. No matter the human."
 
-&mdash; [**Devil Survivor 2**](https://myanimelist.net/character.php?q=Devil%20Survivor%202&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
