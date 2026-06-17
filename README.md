@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're going to selfishly admire someone only to be disillusioned later, then maybe you shouldn't try to get to know them better at all."
+> "Nobody knows what will happen in the future. Something even better might happen tomorrow."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
