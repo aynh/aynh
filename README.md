@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The moment you find the courage to give up your life for someone, would be the moment you understand love."
+> "If you're going to selfishly admire someone only to be disillusioned later, then maybe you shouldn't try to get to know them better at all."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Samurai X: Trust & Betrayal**](https://myanimelist.net/search/all?q=Samurai%20X%3A%20Trust%20%26%20Betrayal&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
