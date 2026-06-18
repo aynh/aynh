@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It might be ridiculous to save the people. But when there are sad people in front of us... we can't just ignore them."
+> "I'm prepared for it all. Even if my chest hurts, even if I'm ripped apart, I won't let myself taste any regret."
 
-&mdash; [**Angelique**](https://myanimelist.net/character.php?q=Angelique&cat=character), [**Neo Angelique Abyss**](https://myanimelist.net/search/all?q=Neo%20Angelique%20Abyss&cat=all)
+&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
