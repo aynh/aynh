@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's a battle of life and death, and I'm still alive! So I'm not going to give up, and I'll keep living. I'll keep living until I die."
+> "Sometimes, mermaids can devour tigers."
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Kagura Mikazuchi**](https://myanimelist.net/character.php?q=Kagura%20Mikazuchi&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
