@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one really starts out kind. All we know how to do at first is want. We want food, we want attention... It's just natural survival instinct, I guess... But kindness is something that we all have to learn as we go. It's something that grows and develops slowly over time... The same way our bodies do..."
+> "It's a battle of life and death, and I'm still alive! So I'm not going to give up, and I'll keep living. I'll keep living until I die."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
