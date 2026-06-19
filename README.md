@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not always possible to do what we want to do, but it's important to believe in something before you actually do it."
+> "It must be the way you look, Vash the Stampede. Your very existence seems to cause me undue irritation."
 
-&mdash; [**Might Guy**](https://myanimelist.net/character.php?q=Might%20Guy&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
+&mdash; [**Legato Bluesummers**](https://myanimelist.net/character.php?q=Legato%20Bluesummers&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
