@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that having no relationships with others is the loneliest thing in the world."
+> "Kira... fails to see he's being manipulated by the Naturals! Brilliant as he is, he is also naive and good-natured. They're exploiting him, but he's blind to it. That's why I have to go back! I have to reason with him! Kira is still a fellow Coordinator! I'm positive that he'll come around to our way of thinking."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
