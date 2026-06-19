@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm prepared for it all. Even if my chest hurts, even if I'm ripped apart, I won't let myself taste any regret."
+> "It's not always possible to do what we want to do, but it's important to believe in something before you actually do it."
 
-&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
+&mdash; [**Might Guy**](https://myanimelist.net/character.php?q=Might%20Guy&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
