@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There ain't a single coward who'd turn tail and run from just that! Not among the men of the Shiba clan!"
+> "If one feels it is fun now, one will be able to enjoy life the most. Everything will change over time, so we must treasure the happy moments before us."
 
-&mdash; [**Ganju Shiba**](https://myanimelist.net/character.php?q=Ganju%20Shiba&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Akari Mizunashi**](https://myanimelist.net/character.php?q=Akari%20Mizunashi&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
