@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There was no reason for me to get attacked by you. And therefore, there was no reason to dodge."
+> "It's strange isn't it. The two groups, which looked like they hated each other, are now shining the same color as they vanish into the distant sky."
 
-&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
