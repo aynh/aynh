@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If one feels it is fun now, one will be able to enjoy life the most. Everything will change over time, so we must treasure the happy moments before us."
+> "There was no reason for me to get attacked by you. And therefore, there was no reason to dodge."
 
-&mdash; [**Akari Mizunashi**](https://myanimelist.net/character.php?q=Akari%20Mizunashi&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
+&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
