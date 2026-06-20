@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if I can’t see you… Even if we are separated far apart from each other… I’ll always be watching after you. I’ll definitely watch over you forever…"
+> "Humans are things that don't know the true value of something precious until they lose it...and if somehow, they get that precious thing back, they'll forget its value again."
 
-&mdash; [**Makarov Dreyar**](https://myanimelist.net/character.php?q=Makarov%20Dreyar&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Midou Ban**](https://myanimelist.net/character.php?q=Midou%20Ban&cat=character), [**Getbackers**](https://myanimelist.net/search/all?q=Getbackers&cat=all)
