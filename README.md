@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I bet that when they run out of delicacy points, girls turn into old ladies."
+> "A person can work for their ideals. But if you lose sight of those ideals, when things don't work out as you hoped, you'll never accomplish anything! You won't be able to protect yourself or those dear to you."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Hiroomi Nase**](https://myanimelist.net/character.php?q=Hiroomi%20Nase&cat=character), [**Kyoukai No Kanata**](https://myanimelist.net/search/all?q=Kyoukai%20No%20Kanata&cat=all)
