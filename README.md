@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even though one is dumped, no matter how one shows his misfortune and seeks kindness, the world doesn't give a damn about it."
+> "But you're thinking on too large a scale there, kid... If we don't want to drive ourselves crazy, we can only deal with what's directly in front of us."
 
-&mdash; [**Kenji Harima**](https://myanimelist.net/character.php?q=Kenji%20Harima&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
