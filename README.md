@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, hurting girls isn't one of my hobbies. That's why I'll make it my hobby... to stomp on their cell phones. Hahahahahaha!"
+> "I realized why I was lost. It's not because I didn't have a map... It was because I didn't have a destination."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
