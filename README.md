@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because we can’t understand each other, it makes us want to make things clear even more."
+> "Well, hurting girls isn't one of my hobbies. That's why I'll make it my hobby... to stomp on their cell phones. Hahahahahaha!"
 
-&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
