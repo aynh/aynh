@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...Watermelon. Or like a panda with a mean face, or like sandals with pressure points drawn on them, or the smell of a blackboard eraser, or a Sunday morning where you wake up and it's raining. Well, I like him more than hard bread."
+> "Even though one is dumped, no matter how one shows his misfortune and seeks kindness, the world doesn't give a damn about it."
 
-&mdash; [**Mamimi Samejima**](https://myanimelist.net/character.php?q=Mamimi%20Samejima&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Kenji Harima**](https://myanimelist.net/character.php?q=Kenji%20Harima&cat=character), [**School Rumble**](https://myanimelist.net/search/all?q=School%20Rumble&cat=all)
