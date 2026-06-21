@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kyo-kun! Kyo-kun! I do love you, Kyo-kun! I love you!!!"
+> "Because we can’t understand each other, it makes us want to make things clear even more."
 
-&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Sawako Kuronuma**](https://myanimelist.net/character.php?q=Sawako%20Kuronuma&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
