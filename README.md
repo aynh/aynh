@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm the one who's in the wrong, so if you really want to break someone's nose, break mine."
+> "If you don't have the courage to change things then you might as well just die!!!"
 
-&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
