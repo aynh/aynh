@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm the tomato box fairy!"
+> "I'm the one who's in the wrong, so if you really want to break someone's nose, break mine."
 
-&mdash; [**North Italy**](https://myanimelist.net/character.php?q=North%20Italy&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Risa Koizumi**](https://myanimelist.net/character.php?q=Risa%20Koizumi&cat=character), [**Lovely Complex**](https://myanimelist.net/search/all?q=Lovely%20Complex&cat=all)
