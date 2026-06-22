@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The hot blood that flows through my body... is not something that can be suppressed by other people!"
+> "I'm the tomato box fairy!"
 
-&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**North Italy**](https://myanimelist.net/character.php?q=North%20Italy&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
