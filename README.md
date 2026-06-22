@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Neutral Jing is the key to earthbending. It involves listening and waiting for the right moment to strike."
+> "The hot blood that flows through my body... is not something that can be suppressed by other people!"
 
-&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
