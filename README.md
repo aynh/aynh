@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You are from a world Su will never understand."
+> "We aren't flying away from everyone to leave them, but rather so we might see them again someday."
 
-&mdash; [**Su**](https://myanimelist.net/character.php?q=Su&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
