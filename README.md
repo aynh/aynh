@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regardless of whether your friends believe, you still care for them, correct? Isn't that why you feel so sad?"
+> "You are from a world Su will never understand."
 
-&mdash; [**Harumi Sakuraba**](https://myanimelist.net/character.php?q=Harumi%20Sakuraba&cat=character), [**Rokujouma no Shinryakusha!?**](https://myanimelist.net/search/all?q=Rokujouma%20no%20Shinryakusha!%3F&cat=all)
+&mdash; [**Su**](https://myanimelist.net/character.php?q=Su&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
