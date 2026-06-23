@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think the best disciplining is pain."
+> "To cry because there is something you want to do and to cry because you can't find it. Which is more painful? The only thing I can say is even with all the words I have now, I can't stop her tears."
 
-&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
