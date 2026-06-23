@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To cry because there is something you want to do and to cry because you can't find it. Which is more painful? The only thing I can say is even with all the words I have now, I can't stop her tears."
+> "If you feel the ends justify the means, how does that make you different from us demons, exactly?"
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Maou Sadao**](https://myanimelist.net/character.php?q=Maou%20Sadao&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
