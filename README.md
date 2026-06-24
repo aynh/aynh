@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All this time, I've lived in hope of telling you how sorry I am, I've fought armies, just to have this chance, but now, there's nothing I can say.. That's good enough."
+> "To stop or to keep going? The one who decides is yourself."
 
-&mdash; [**Lucy**](https://myanimelist.net/character.php?q=Lucy&cat=character), [**Elfen Lied**](https://myanimelist.net/search/all?q=Elfen%20Lied&cat=all)
+&mdash; [**Shōkichi Naruko**](https://myanimelist.net/character.php?q=Sh%C5%8Dkichi%20Naruko&cat=character), [**Yowamushi Pedal**](https://myanimelist.net/search/all?q=Yowamushi%20Pedal&cat=all)
