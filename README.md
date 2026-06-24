@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're so silly. Even adults cry from a broken heart. It's okay to cry."
+> "Humans have always spent a lot of time on love. I’m not too interested in karuta, but I’m willing to work hard for love."
 
-&mdash; [**Sana Hidaka**](https://myanimelist.net/character.php?q=Sana%20Hidaka&cat=character), [**Myself ; Yourself**](https://myanimelist.net/search/all?q=Myself%20%3B%20Yourself&cat=all)
+&mdash; [**Sumire Hanano**](https://myanimelist.net/character.php?q=Sumire%20Hanano&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
