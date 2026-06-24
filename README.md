@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Aren’t we family? Aren’t I like your family too? So it’s okay to cry if you’re having a hard time. Then I’ll do anything to help."
+> "Girls' hearts are reflected by their underwear's color...!!"
 
-&mdash; [**Haruto Kirishima**](https://myanimelist.net/character.php?q=Haruto%20Kirishima&cat=character), [**Kimi no Iru Machi**](https://myanimelist.net/search/all?q=Kimi%20no%20Iru%20Machi&cat=all)
+&mdash; [**Miyamura Toranosuke**](https://myanimelist.net/character.php?q=Miyamura%20Toranosuke&cat=character), [**Yamada-kun to 7-nin no Majo**](https://myanimelist.net/search/all?q=Yamada-kun%20to%207-nin%20no%20Majo&cat=all)
