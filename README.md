@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans have always spent a lot of time on love. I’m not too interested in karuta, but I’m willing to work hard for love."
+> "Charging from the front isn't the only way to cross a wall. If pushing doesn't work, why not try pulling? Try thinking from the opposite direction, you might be able to find a new way out."
 
-&mdash; [**Sumire Hanano**](https://myanimelist.net/character.php?q=Sumire%20Hanano&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Kou Kazamatsuri**](https://myanimelist.net/character.php?q=Kou%20Kazamatsuri&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
