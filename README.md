@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Charging from the front isn't the only way to cross a wall. If pushing doesn't work, why not try pulling? Try thinking from the opposite direction, you might be able to find a new way out."
+> "Sadness is just another wall that blocks you from moving on. I know it's hard to get past it, but you got to break through."
 
-&mdash; [**Kou Kazamatsuri**](https://myanimelist.net/character.php?q=Kou%20Kazamatsuri&cat=character), [**Whistle!**](https://myanimelist.net/search/all?q=Whistle!&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
