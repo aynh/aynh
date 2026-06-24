@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Girls' hearts are reflected by their underwear's color...!!"
+> "I probably won't be able to look forward to summer for a long time. My chest will hurt. My tears will be overflowing. But this warmth in my hands and these summer memories will live on in my heart."
 
-&mdash; [**Miyamura Toranosuke**](https://myanimelist.net/character.php?q=Miyamura%20Toranosuke&cat=character), [**Yamada-kun to 7-nin no Majo**](https://myanimelist.net/search/all?q=Yamada-kun%20to%207-nin%20no%20Majo&cat=all)
+&mdash; [**Hotaru Takegawa**](https://myanimelist.net/character.php?q=Hotaru%20Takegawa&cat=character), [**Hotarubi no Mori e**](https://myanimelist.net/search/all?q=Hotarubi%20no%20Mori%20e&cat=all)
