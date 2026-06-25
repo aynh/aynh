@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't matter where I look, it's always idiots as far as the eye can see."
+> "You can't sit around envying other peoples worlds. You have to go out and change your own."
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Chiaki Shinichi**](https://myanimelist.net/character.php?q=Chiaki%20Shinichi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
