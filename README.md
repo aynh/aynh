@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To stop or to keep going? The one who decides is yourself."
+> "In order to save a life, you must throw another life away."
 
-&mdash; [**Shōkichi Naruko**](https://myanimelist.net/character.php?q=Sh%C5%8Dkichi%20Naruko&cat=character), [**Yowamushi Pedal**](https://myanimelist.net/search/all?q=Yowamushi%20Pedal&cat=all)
+&mdash; [**Nishi Joichiro**](https://myanimelist.net/character.php?q=Nishi%20Joichiro&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
