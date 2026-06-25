@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have enough breath to say you don't have energy, I haven't push you far enough!"
+> "It doesn't matter where I look, it's always idiots as far as the eye can see."
 
-&mdash; [**Barbara**](https://myanimelist.net/character.php?q=Barbara&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
