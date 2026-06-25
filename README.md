@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You only need a strong will and a clear purpose."
+> "If you have enough breath to say you don't have energy, I haven't push you far enough!"
 
-&mdash; [**Kureo Mado**](https://myanimelist.net/character.php?q=Kureo%20Mado&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Barbara**](https://myanimelist.net/character.php?q=Barbara&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
