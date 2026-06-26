@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've already made up my mind, to the statement: 'The most important thing in life is money'. I answered 'No'."
+> "Relax, Sokka. Where we're going, you won't need any pants!"
 
-&mdash; [**Akiyama Shinichi**](https://myanimelist.net/character.php?q=Akiyama%20Shinichi&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
+&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
