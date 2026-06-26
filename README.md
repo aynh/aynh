@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't have to be reasonable when you're in love."
+> "Sometimes the person who tries to keep everyone happy is the the most lonely one."
 
-&mdash; [**Emi Yusa**](https://myanimelist.net/character.php?q=Emi%20Yusa&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Makoto Ōgami**](https://myanimelist.net/character.php?q=Makoto%20%C5%8Cgami&cat=character), [**Ghost Hound**](https://myanimelist.net/search/all?q=Ghost%20Hound&cat=all)
