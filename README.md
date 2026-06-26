@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My ears do more than just frame my face."
+> "...If Tohru-chan were to die, I...I wonder if I'd be able to smile again one year later? Or if I'd wish that I could forget ever having met her. ...Tohru-chan... has tried really hard..."
 
-&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Saki Hanajima**](https://myanimelist.net/character.php?q=Saki%20Hanajima&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
