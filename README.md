@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This epidemic leads innocent people to their deaths, and yet it's pathogen will never be eradicated. This is a disease called serenity, a form of death that people have wished for."
+> "I think you've got me all wrong. My motives aren't so sophisticated as 'revenge' or 'honor' or any of that... The reason I killed all of those men... was because I could. It's that simple."
 
-&mdash; [**Rikako Oryo**](https://myanimelist.net/character.php?q=Rikako%20Oryo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
