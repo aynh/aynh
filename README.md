@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think you've got me all wrong. My motives aren't so sophisticated as 'revenge' or 'honor' or any of that... The reason I killed all of those men... was because I could. It's that simple."
+> "How should I put this... There are times when you begin to hate everything around you."
 
-&mdash; [**Solf J. Kimblee**](https://myanimelist.net/character.php?q=Solf%20J.%20Kimblee&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
