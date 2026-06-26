@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes the person who tries to keep everyone happy is the the most lonely one."
+> "This epidemic leads innocent people to their deaths, and yet it's pathogen will never be eradicated. This is a disease called serenity, a form of death that people have wished for."
 
-&mdash; [**Makoto Ōgami**](https://myanimelist.net/character.php?q=Makoto%20%C5%8Cgami&cat=character), [**Ghost Hound**](https://myanimelist.net/search/all?q=Ghost%20Hound&cat=all)
+&mdash; [**Rikako Oryo**](https://myanimelist.net/character.php?q=Rikako%20Oryo&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
