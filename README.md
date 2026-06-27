@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't break anyone's heart, they only have one. Break their bones, they have 206."
+> "The only thing we're allowed to do... is to believe that we won't regret the choice we made."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
