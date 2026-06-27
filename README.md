@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Put away your sword and you shall live...unless you're still dreaming about defeating me. Did you forget, or did it just never occur to you...that I have Bankai as well?"
+> "Every single one of them died while furiously giving off the light that resided within them and that light is then inherited by the next person where it will go on to shine with an even greater radiance. And thus people are connected together... allowing us to work towards a better tomorrow."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ei Sei**](https://myanimelist.net/character.php?q=Ei%20Sei&cat=character), [**Kingdom**](https://myanimelist.net/search/all?q=Kingdom&cat=all)
