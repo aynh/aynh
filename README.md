@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's best to go up against strong guys, if you want to get stronger."
+> "I shall light a fire upon the fang that falls short, so that I needn't see that star...So that it shall not tear this throat of mine."
 
-&mdash; [**Shōyō Hinata**](https://myanimelist.net/character.php?q=Sh%C5%8Dy%C5%8D%20Hinata&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
