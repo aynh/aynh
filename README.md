@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even the worst evil saves something... even the greatest good hurts someone."
+> "It's best to go up against strong guys, if you want to get stronger."
 
-&mdash; [**Rouka Numachi**](https://myanimelist.net/character.php?q=Rouka%20Numachi&cat=character), [**Hanamonogatari**](https://myanimelist.net/search/all?q=Hanamonogatari&cat=all)
+&mdash; [**Shōyō Hinata**](https://myanimelist.net/character.php?q=Sh%C5%8Dy%C5%8D%20Hinata&cat=character), [**Haikyuu!! Second Season**](https://myanimelist.net/search/all?q=Haikyuu!!%20Second%20Season&cat=all)
