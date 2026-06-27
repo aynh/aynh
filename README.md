@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I shall light a fire upon the fang that falls short, so that I needn't see that star...So that it shall not tear this throat of mine."
+> "When you love someone, sometimes your head hurts. And it's so agonizing that you want to burst into tears. But even the smallest thing can bring you happiness. It's complicated, but simple. Perhaps all these emotions are irreplaceable and precious."
 
-&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Ageha Shiroi**](https://myanimelist.net/character.php?q=Ageha%20Shiroi&cat=character), [**Velvet Blue Rose**](https://myanimelist.net/search/all?q=Velvet%20Blue%20Rose&cat=all)
