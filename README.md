@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Sesshoumaru after he steals the Tetsuaiga] Blah, blah, blah. A guy gets his hands on a new sword, and already he's lookin' for a soap box to stand on and preach it to the world!"
+> "Glad you're okay *wink* I kinda like you."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
