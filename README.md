@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Rather than leaving someone to die, I'd much rather die together with them."
+> "[to Sesshoumaru after he steals the Tetsuaiga] Blah, blah, blah. A guy gets his hands on a new sword, and already he's lookin' for a soap box to stand on and preach it to the world!"
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
