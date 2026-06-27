@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The only thing we're allowed to do... is to believe that we won't regret the choice we made."
+> "Even if you're not interested, just read my recommendation. Putting aside disliking the food before trying it, I won't forgive you if you dismiss manga without giving it a chance."
 
-&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Kagami Junichirou**](https://myanimelist.net/character.php?q=Kagami%20Junichirou&cat=character), [**Denpa Kyoushi**](https://myanimelist.net/search/all?q=Denpa%20Kyoushi&cat=all)
