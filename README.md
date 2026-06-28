@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am an ice sculpture mage. I can make anything."
+> "Maybe worrying about the future partings so much that you miss out on happiness in the present is a waste."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
