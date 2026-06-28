@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe worrying about the future partings so much that you miss out on happiness in the present is a waste."
+> "Clean up after yourself. If you want to be accepted, you must accept yourself first."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
