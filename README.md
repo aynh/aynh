@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "These days, I feel more comfortable in dark places.  I look at these shadows as a part of you.  They absorb all the light.  There's no one in the world who has this color but you."
+> "Urushibara Ruka. The mannerisms and voice of a woman... No. More feminine than ANY woman. But he's a guy. Taller than Mayuri, but so very thin... But he's a guy. Looks great in a miko outfit... But he's a guy. It's already twilight and yet, it's so hot. The cicadas are crying. But... He's a guy."
 
-&mdash; [**Shinra Kishitani**](https://myanimelist.net/character.php?q=Shinra%20Kishitani&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
