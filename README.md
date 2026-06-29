@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right now, we're all really only taking it day by day. Even if we can't get used to things, even if we can't win at something, even if we don't have any excess...In order to live day by day, we work, we fail, and we succeed. Sometimes we laugh. For the blessing before our very eyes, for our friends, we're thankful. Who knew that people could feel happiness just from living?"
+> "I don't know if we chose the right path, brother. But I do know this: I don't want to be in this suit anymore. I want to feel things again. It's strange. We've been right beside each other all this time. But I can't remember what your skin feels like, or how you smell."
 
-&mdash; [**Sei**](https://myanimelist.net/character.php?q=Sei&cat=character), [**Suicide Island**](https://myanimelist.net/search/all?q=Suicide%20Island&cat=all)
+&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
