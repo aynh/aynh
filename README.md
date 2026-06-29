@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't know if we chose the right path, brother. But I do know this: I don't want to be in this suit anymore. I want to feel things again. It's strange. We've been right beside each other all this time. But I can't remember what your skin feels like, or how you smell."
+> "All for one, one for all! There are times when a man has no choice but to act!"
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
