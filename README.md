@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We can't waste time worrying about the what-if's. Rukia's execution date has been changed to noon tomorrow. So what? If the deadline has been changed to tomorrow... I'll just have to finish today!"
+> "Everyone wants to have someone else's attention, and to be noticed. But the same thing goes for the other person too."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Nanana Ryuugajou**](https://myanimelist.net/character.php?q=Nanana%20Ryuugajou&cat=character), [**Ryuugajou Nanana No Maizoukin**](https://myanimelist.net/search/all?q=Ryuugajou%20Nanana%20No%20Maizoukin&cat=all)
