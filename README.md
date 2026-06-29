@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All for one, one for all! There are times when a man has no choice but to act!"
+> "When I was little, I was teased because of my weight. I tried dieting, but diets always failed. Little by little I started feeling gloomy. I got to the point where I couldn't make friends, and I started hating myself more and more. I became completely unable to smile. I thought, no one in the world would ever like me the way I am now. But at the same time I also thought, if that's the way it is, then I should at least like myself."
 
-&mdash; [**Brook**](https://myanimelist.net/character.php?q=Brook&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Tsumugi Motohashi**](https://myanimelist.net/character.php?q=Tsumugi%20Motohashi&cat=character), [**Pochama ni**](https://myanimelist.net/search/all?q=Pochama%20ni&cat=all)
