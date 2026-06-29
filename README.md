@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Crying over ill luck won't do you any good. You must believe tomorrow will be better than today and smile."
+> "You're as good as naked before my spear."
 
-&mdash; [**Amane Rui**](https://myanimelist.net/character.php?q=Amane%20Rui&cat=character), [**Gakuen Alice**](https://myanimelist.net/search/all?q=Gakuen%20Alice&cat=all)
+&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
