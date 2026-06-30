@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not so grand, not as a god. I am Horo, and Horo is all that I am."
+> "Let me tell you something. Humans don't even have the patience to wait even ten minutes for something!"
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
