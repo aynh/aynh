@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't know if you noticed, but you just called him 'Captain.'"
+> "The scariest and the most painful thing is to be hated by someone you truly love."
 
-&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
