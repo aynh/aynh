@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter the journey, when you come to a fork in the road, you must decide in an instant which path to take."
+> "No matter how many good deeds you perform, your past sins cannot be erased."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Sheele**](https://myanimelist.net/character.php?q=Sheele&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
