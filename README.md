@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't carry me AND dodge at the same time, Tetsuzaemon!"
+> "I am not so grand, not as a god. I am Horo, and Horo is all that I am."
 
-&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
