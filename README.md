@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm Faust VIII, your opponent. Please be gentle."
+> "You can't carry me AND dodge at the same time, Tetsuzaemon!"
 
-&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Madarame Ikkaku**](https://myanimelist.net/character.php?q=Madarame%20Ikkaku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
