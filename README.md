@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You think something like that would hurt, after all I've been through?"
+> "I am strong. Stronger than all of you. Extremely strong. I can kill all the titans out there. Even if I am alone."
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
