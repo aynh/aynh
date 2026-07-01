@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don't dress stylishly or put on makeup to impress guys. You do it to keep other girls in their place."
+> "Life is something that can never be lived twice. Even this pointless act will eventually end. And while thinking that one day, I'll surely regret its end..."
 
-&mdash; [**Rika Yoshitake**](https://myanimelist.net/character.php?q=Rika%20Yoshitake&cat=character), [**Genshiken: Second Generation**](https://myanimelist.net/search/all?q=Genshiken%3A%20Second%20Generation&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
