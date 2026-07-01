@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me tell you something. Humans don't even have the patience to wait even ten minutes for something!"
+> "You don't dress stylishly or put on makeup to impress guys. You do it to keep other girls in their place."
 
-&mdash; [**Yuri Nakamura**](https://myanimelist.net/character.php?q=Yuri%20Nakamura&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Rika Yoshitake**](https://myanimelist.net/character.php?q=Rika%20Yoshitake&cat=character), [**Genshiken: Second Generation**](https://myanimelist.net/search/all?q=Genshiken%3A%20Second%20Generation&cat=all)
