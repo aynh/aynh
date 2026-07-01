@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are bad ways to win and good ways to lose. What's interesting and troubling, is that it's not always clear which is which. A flipped coin doesn't always land heads or tails. Sometimes it may never land at all."
+> "I can't lose weight, I don't know how to deal with being any skinnier than I already am."
 
-&mdash; [**Grimsley**](https://myanimelist.net/character.php?q=Grimsley&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
