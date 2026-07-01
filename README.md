@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am strong. Stronger than all of you. Extremely strong. I can kill all the titans out there. Even if I am alone."
+> "The life of each human is worth one life, that's it. Nothing more, nothing less."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
