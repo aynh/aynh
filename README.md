@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The life of each human is worth one life, that's it. Nothing more, nothing less."
+> "There are bad ways to win and good ways to lose. What's interesting and troubling, is that it's not always clear which is which. A flipped coin doesn't always land heads or tails. Sometimes it may never land at all."
 
-&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Grimsley**](https://myanimelist.net/character.php?q=Grimsley&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
