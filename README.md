@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But our world as we knew it had already been completely destroyed."
+> "A Gun is Good. Unlike A sword or a knife, it doesn't leave the feeling of a person dying in your hands."
 
-&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
