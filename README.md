@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A Gun is Good. Unlike A sword or a knife, it doesn't leave the feeling of a person dying in your hands."
+> "An idiot that knows he's an idiot, is even harder to deal with than an idiot that thinks he isn't."
 
-&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
