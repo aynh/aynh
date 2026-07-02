@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I could give you baseless hope through empty encouragement, but you'd just make the same mistake again. You won't live long if you don't own up to your failures."
+> "If you truly loved her, you'd save her even if you were weak or it would be painful. That's the pride of a man"
 
-&mdash; [**Mononobe Yuu**](https://myanimelist.net/character.php?q=Mononobe%20Yuu&cat=character), [**Juuou Mujin no Fafnir**](https://myanimelist.net/search/all?q=Juuou%20Mujin%20no%20Fafnir&cat=all)
+&mdash; [**Kyouya Sata**](https://myanimelist.net/character.php?q=Kyouya%20Sata&cat=character), [**Ookami Shoujo To Kuro Ouji**](https://myanimelist.net/search/all?q=Ookami%20Shoujo%20To%20Kuro%20Ouji&cat=all)
