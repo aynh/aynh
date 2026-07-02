@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you only face forward, there is something you will miss seeing."
+> "[To Kyo] Seriously... Must you break something every time you come home? When are you going to learn? You're too weak."
 
-&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
