@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An idiot that knows he's an idiot, is even harder to deal with than an idiot that thinks he isn't."
+> "As a leader, you need to learn from the mistakes of others, not your own."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
