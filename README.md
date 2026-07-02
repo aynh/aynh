@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Kyo] Seriously... Must you break something every time you come home? When are you going to learn? You're too weak."
+> "No matter the reason, I don't think anyone who loses consciousness in the battlefield has any right to survive!"
 
-&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
