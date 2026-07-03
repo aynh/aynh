@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And it seems you've acquired a new power. However, is that all you are capable of achieving with it? This is the end. You will no longer interfere. The sun has already set in our hands."
+> "Dammit! I'm fine, I just stepped in a hole."
 
-&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
