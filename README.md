@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the shinobi world, those that break the written and unwritten rules are deemed trash... but be that as it may... Those that would desregard their comrades so easily are even worse than trash. And those who don't have the decency to respect the memories of their comrades are the worst."
+> "The probability of success was zero percent. But I've learned that probabilities are meaningless when it comes to you guys."
 
-&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Lordgenome**](https://myanimelist.net/character.php?q=Lordgenome&cat=character), [**Tengen Toppa Gurren Laggan**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Laggan&cat=all)
