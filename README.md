@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Red is supposed to be the color of fate, right? Even if it’s annoying now, it might connect to something good when you least expect it."
+> "And it seems you've acquired a new power. However, is that all you are capable of achieving with it? This is the end. You will no longer interfere. The sun has already set in our hands."
 
-&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
+&mdash; [**Ulquiorra Schiffer**](https://myanimelist.net/character.php?q=Ulquiorra%20Schiffer&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
