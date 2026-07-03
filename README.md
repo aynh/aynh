@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As a leader, you need to learn from the mistakes of others, not your own."
+> "My motto is to be stronger than yesterday, if I have to I'll be stronger than half a day ago, even a minute ago!"
 
-&mdash; [**Nobuchika Ginoza**](https://myanimelist.net/character.php?q=Nobuchika%20Ginoza&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Rock Lee**](https://myanimelist.net/character.php?q=Rock%20Lee&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
