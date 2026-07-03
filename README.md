@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My motto is to be stronger than yesterday, if I have to I'll be stronger than half a day ago, even a minute ago!"
+> "I learned that no matter how much you want something, no matter how much you scream for it, sometimes it's out of your reach."
 
-&mdash; [**Rock Lee**](https://myanimelist.net/character.php?q=Rock%20Lee&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
