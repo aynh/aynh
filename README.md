@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wanted to save you because you're you. I didn't want you to leave, because you're you. I can't find another reason. I don't need another reason to save you."
+> "I know no one expects much from me! And I know better than anyone how useless a C Class hero is! I know I'm too weak even for B Class! I know more than anyone else that I'll never beat you! But I must fight you anyway! I'm the only one left! It's not about winning or losing! I just have to stand here and face you!"
 
-&mdash; [**Bell Cranel**](https://myanimelist.net/character.php?q=Bell%20Cranel&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Mumen Rider**](https://myanimelist.net/character.php?q=Mumen%20Rider&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
