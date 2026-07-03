@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The probability of success was zero percent. But I've learned that probabilities are meaningless when it comes to you guys."
+> "We finally became friends. I've said everything I wanted to say. Now we know everything about each other. Though, from the moment we become friends, we'll never speak to each other again."
 
-&mdash; [**Lordgenome**](https://myanimelist.net/character.php?q=Lordgenome&cat=character), [**Tengen Toppa Gurren Laggan**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Laggan&cat=all)
+&mdash; [**Touma Kazusa**](https://myanimelist.net/character.php?q=Touma%20Kazusa&cat=character), [**White Album 2**](https://myanimelist.net/search/all?q=White%20Album%202&cat=all)
