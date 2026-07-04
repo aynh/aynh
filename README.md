@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The world isn't as bad as you think."
+> "Eat righteous Ponyta dust!"
 
-&mdash; [**Celty Sturluson**](https://myanimelist.net/character.php?q=Celty%20Sturluson&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
