@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't go believing everyone with glasses is smart!"
+> "Kyo-kun! Kyo-kun! I do love you, Kyo-kun! I love you!!!"
 
-&mdash; [**Hyuuga Junpei**](https://myanimelist.net/character.php?q=Hyuuga%20Junpei&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
