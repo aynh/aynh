@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if all the confidence and pride you've built over the years is blown to pieces by a major failure, even if you've had a soul-crushing experience, you still have to open the shop the next day. That's who chefs are."
+> "The world isn't as bad as you think."
 
-&mdash; [**Sōma Yukihira**](https://myanimelist.net/character.php?q=S%C5%8Dma%20Yukihira&cat=character), [**Shokugeki no Sōma: Ni no Sara**](https://myanimelist.net/search/all?q=Shokugeki%20no%20S%C5%8Dma%3A%20Ni%20no%20Sara&cat=all)
+&mdash; [**Celty Sturluson**](https://myanimelist.net/character.php?q=Celty%20Sturluson&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
