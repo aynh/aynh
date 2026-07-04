@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We finally became friends. I've said everything I wanted to say. Now we know everything about each other. Though, from the moment we become friends, we'll never speak to each other again."
+> "Unfortunately, a psychotic virgin, starved for love and likely to fall for anyone who would be a little nice to her, has set eyes on you."
 
-&mdash; [**Touma Kazusa**](https://myanimelist.net/character.php?q=Touma%20Kazusa&cat=character), [**White Album 2**](https://myanimelist.net/search/all?q=White%20Album%202&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
