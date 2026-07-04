@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How rude! You knocked his block off, and you didn't even have the courtesy to yell 'Heads up'!"
+> "Bonds that are too strong create flaws over time."
 
-&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Road Kamelot**](https://myanimelist.net/character.php?q=Road%20Kamelot&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
