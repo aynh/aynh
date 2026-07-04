@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unfortunately, a psychotic virgin, starved for love and likely to fall for anyone who would be a little nice to her, has set eyes on you."
+> "How rude! You knocked his block off, and you didn't even have the courtesy to yell 'Heads up'!"
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
