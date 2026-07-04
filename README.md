@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Eat righteous Ponyta dust!"
+> "A sword is a weapon. The art of swordsmanship is learning how to kill. What Miss Kaoru says is nothing but sweet and innocent talk, only those whose hands have never been stained with the blood of man can believe."
 
-&mdash; [**Ash Ketchum**](https://myanimelist.net/character.php?q=Ash%20Ketchum&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
