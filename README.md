@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True freedom can't lean on anything. It's transient, lonely, and arduous."
+> "The opposite of love isn't hate, it’s apathy."
 
-&mdash; [**Yoshii Kazuho**](https://myanimelist.net/character.php?q=Yoshii%20Kazuho&cat=character), [**Texhnolyze**](https://myanimelist.net/search/all?q=Texhnolyze&cat=all)
+&mdash; [**Kyouko Houin**](https://myanimelist.net/character.php?q=Kyouko%20Houin&cat=character), [**Kodomo no Jikan**](https://myanimelist.net/search/all?q=Kodomo%20no%20Jikan&cat=all)
