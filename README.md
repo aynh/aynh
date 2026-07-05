@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's because we don't unterstand! It's because we don't unterstand that we wonder what the other is thinking and try desperately to unterstand every word they say... You end up thinking too much about the other person, and being close to them becomes painful so you try to distance yourself... I believe you become friends with somebody by doing that over and over, and that's how... As much as I hate to admit it, it's how I became friends with these guys."
+> "I have nothing but me. I'll give you myself. You can use me however you like for the rest of my life. (To Shigure)"
 
-&mdash; [**Maki Honoka**](https://myanimelist.net/character.php?q=Maki%20Honoka&cat=character), [**Kiznaiver**](https://myanimelist.net/search/all?q=Kiznaiver&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
