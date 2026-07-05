@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yo... Are you ready for me to break your neck... Rat-boy?"
+> "All truths are easy to understand once they are discovered. The point is to discover them."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Galilei**](https://myanimelist.net/character.php?q=Galilei&cat=character), [**Galilei Donna**](https://myanimelist.net/search/all?q=Galilei%20Donna&cat=all)
