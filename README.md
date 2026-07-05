@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*on the phone* I'm sorry to interrupt you, Major, but let me offer a bit of feminine advice. BABIES AREN'T BORN AFTER JUST FIVE MONTHS!"
+> "It's not about doing what it takes to win. Sei-chan told me before 'Winning is just like breathing'. Victory isn't something that Sei-chan seeks. It's a natural part of his life. It's a basic bodily function."
 
-&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Reo Mibuchi**](https://myanimelist.net/character.php?q=Reo%20Mibuchi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
