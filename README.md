@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are people out there who would say there's nothing more important than love. But is love really that great? There are women, who because of love, get chased around by men. And there are men, who because of love, get killed by women. To put it down, for love to be so great, there's gotta be something else behind it that's even greater."
+> "Before creation there must be destruction. If my soul stands in the way, then I'll toss it aside. Yes, I have no choice but to move forward."
 
-&mdash; [**Dante**](https://myanimelist.net/character.php?q=Dante&cat=character), [**Devil May Cry**](https://myanimelist.net/search/all?q=Devil%20May%20Cry&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
