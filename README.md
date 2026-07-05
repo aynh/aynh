@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A fight you can't win becomes an obsession"
+> "I already lost this life. I do not intend to stretch it out at the cost of my honor."
 
-&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
+&mdash; [**Jean**](https://myanimelist.net/character.php?q=Jean&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
