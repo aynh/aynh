@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not about doing what it takes to win. Sei-chan told me before 'Winning is just like breathing'. Victory isn't something that Sei-chan seeks. It's a natural part of his life. It's a basic bodily function."
+> "When you love someone, you can never be sure that you'll be loved in return."
 
-&mdash; [**Reo Mibuchi**](https://myanimelist.net/character.php?q=Reo%20Mibuchi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
