@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Before creation there must be destruction. If my soul stands in the way, then I'll toss it aside. Yes, I have no choice but to move forward."
+> "A fight you can't win becomes an obsession"
 
-&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
+&mdash; [**Askeladd**](https://myanimelist.net/character.php?q=Askeladd&cat=character), [**Vinland Saga**](https://myanimelist.net/search/all?q=Vinland%20Saga&cat=all)
