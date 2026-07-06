@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Rei Miyamoto* I'd be an actor if I could look happy right now."
+> "*thinking* Normally, one would call an ambulance or ask for help from one of the nearby residents, but this particular boy decided to carry the unconscious, innocent girl... and where the hell are you taking her, bastard?"
 
-&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Kyon**](https://myanimelist.net/character.php?q=Kyon&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
