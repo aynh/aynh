@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans don’t see what they don’t want to see. No one wants to be put down. That’s why people do nothing even when they do know something is happening."
+> "Sometimes you can't see what's right in front of you."
 
-&mdash; [**Kouta Hirano**](https://myanimelist.net/character.php?q=Kouta%20Hirano&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
+&mdash; [**Ryuunosuke Uryuu**](https://myanimelist.net/character.php?q=Ryuunosuke%20Uryuu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
