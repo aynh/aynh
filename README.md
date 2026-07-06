@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The opposite of love isn't hate, it’s apathy."
+> "*to Rei Miyamoto* I'd be an actor if I could look happy right now."
 
-&mdash; [**Kyouko Houin**](https://myanimelist.net/character.php?q=Kyouko%20Houin&cat=character), [**Kodomo no Jikan**](https://myanimelist.net/search/all?q=Kodomo%20no%20Jikan&cat=all)
+&mdash; [**Takashi Komuro**](https://myanimelist.net/character.php?q=Takashi%20Komuro&cat=character), [**Highschool Of The Dead**](https://myanimelist.net/search/all?q=Highschool%20Of%20The%20Dead&cat=all)
