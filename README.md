@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you want to do damage to the other ship you have to ram them in the middle! Now do it again!"
+> "There is one thing I've learned here. To keep doing your best, up until the very end."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
