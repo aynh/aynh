@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There is one thing I've learned here. To keep doing your best, up until the very end."
+> "Just like humans, approve killing animals in society, we, approve the killing of humans."
 
-&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Mutou Tohru**](https://myanimelist.net/character.php?q=Mutou%20Tohru&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
