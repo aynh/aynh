@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Team isn't just something to be protected. A team also protects you. We don't support each because we are a team. We are a team because we support each other."
+> "What's wrong with change? In life, if you don't take shortcuts, you're the only one losing out."
 
-&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Chihiro Iwasaki**](https://myanimelist.net/character.php?q=Chihiro%20Iwasaki&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
