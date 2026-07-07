@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your past shouldn't stop you from achieving your goals and dreams."
+> "If you want to do damage to the other ship you have to ram them in the middle! Now do it again!"
 
-&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
