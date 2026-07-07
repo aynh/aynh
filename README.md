@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What's wrong with change? In life, if you don't take shortcuts, you're the only one losing out."
+> "It's just that... It's just that not being able to fight with everyone makes me feel lonely...!! But what would make me feel worse than being lonely is getting in everyone's way... that would make me feel worse!! If it means getting in the way of Kurosaki-kun and everyone... then I would rather be lonely, very lonely."
 
-&mdash; [**Chihiro Iwasaki**](https://myanimelist.net/character.php?q=Chihiro%20Iwasaki&cat=character), [**Again!!**](https://myanimelist.net/search/all?q=Again!!&cat=all)
+&mdash; [**Inoue Orihime**](https://myanimelist.net/character.php?q=Inoue%20Orihime&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
