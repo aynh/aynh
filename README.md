@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "However happy or sad something is, you’ll soon forget it if you don’t get a chance to recall it. What people don’t realize is that they’ve forgotten about forgetting. If everyone really preserved the happiest memory from their past perfectly, they’d only be sadder living in their relatively hollow present. And if everyone preserved the worst memory from their past perfectly, well, they’d still be sad. Everyone just remembers what it’s inconvenient not to remember."
+> "There are times when people who are different cannot understand each other. Even if you think you understand the other person, you really don't. And what awaits in the end, usually, is despair."
 
-&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
+&mdash; [**Corticarte Apa Lagranges**](https://myanimelist.net/character.php?q=Corticarte%20Apa%20Lagranges&cat=character), [**Shinkyoku Soukai Polyphonica**](https://myanimelist.net/search/all?q=Shinkyoku%20Soukai%20Polyphonica&cat=all)
