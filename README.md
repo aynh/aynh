@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don’t put much trust in words like 'personality' or 'disposition' or 'character.' Those things all change depending on the situation. Looking at it in the long run, what changes people is what situations they get into. People put a lot of faith in consistency, but it’s something more superficial than most people think."
+> "I don't know what's happened to you, but you shouldn't suppress your feelings if you're angry or sad. It's okay to let it all out."
 
-&mdash; [**Kusonoki**](https://myanimelist.net/character.php?q=Kusonoki&cat=character), [**Three Days of Happiness**](https://myanimelist.net/search/all?q=Three%20Days%20of%20Happiness&cat=all)
+&mdash; [**Rea Sanka**](https://myanimelist.net/character.php?q=Rea%20Sanka&cat=character), [**Sankarea**](https://myanimelist.net/search/all?q=Sankarea&cat=all)
