@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "She was stolen away before I even realized I liked her."
+> "Reflecting upon death, one appreciates life. If that’s the case, does it take a mistake for people to choose the right path? Behold the brilliance of the heavens burdened with sin."
 
-&mdash; [**Kento Miura**](https://myanimelist.net/character.php?q=Kento%20Miura&cat=character), [**Kimi ni Todoke**](https://myanimelist.net/search/all?q=Kimi%20ni%20Todoke&cat=all)
+&mdash; [**Mobile Suit Gundam 00**](https://myanimelist.net/character.php?q=Mobile%20Suit%20Gundam%2000&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
