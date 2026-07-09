@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are so many weapons scattered across my path that it makes me wonder if this world is made of little more than lead and gunpowder."
+> "We're always trying to justify our actions with ideals. But ideals cannot give grounds for killing another person. The act of taking a life will always be considered... evil."
 
-&mdash; [**Jonathan Mar**](https://myanimelist.net/character.php?q=Jonathan%20Mar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Yoshimura**](https://myanimelist.net/character.php?q=Yoshimura&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
