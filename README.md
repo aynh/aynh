@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[sounding like Marlon Brando] I'm the Godfather of Games. Capsice?"
+> "When someone does something nice for you… shut up and accept it!"
 
-&mdash; [**Joey Wheeler**](https://myanimelist.net/character.php?q=Joey%20Wheeler&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Tsugumi**](https://myanimelist.net/character.php?q=Tsugumi&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
