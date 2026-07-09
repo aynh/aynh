@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When someone does something nice for you… shut up and accept it!"
+> "War brings death. And wounds and pain to both sides. There's nothing harder to accept, than the deaths of those you love. So you believe they could never die. Especially those who haven't known war."
 
-&mdash; [**Tsugumi**](https://myanimelist.net/character.php?q=Tsugumi&cat=character), [**Guilty Crown**](https://myanimelist.net/search/all?q=Guilty%20Crown&cat=all)
+&mdash; [**Nagato**](https://myanimelist.net/character.php?q=Nagato&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
