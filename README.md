@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "War brings death. And wounds and pain to both sides. There's nothing harder to accept, than the deaths of those you love. So you believe they could never die. Especially those who haven't known war."
+> "There are so many weapons scattered across my path that it makes me wonder if this world is made of little more than lead and gunpowder."
 
-&mdash; [**Nagato**](https://myanimelist.net/character.php?q=Nagato&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Jonathan Mar**](https://myanimelist.net/character.php?q=Jonathan%20Mar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
