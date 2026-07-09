@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Reflecting upon death, one appreciates life. If that’s the case, does it take a mistake for people to choose the right path? Behold the brilliance of the heavens burdened with sin."
+> "Ash will never really be alone cause he's got... me."
 
-&mdash; [**Mobile Suit Gundam 00**](https://myanimelist.net/character.php?q=Mobile%20Suit%20Gundam%2000&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
