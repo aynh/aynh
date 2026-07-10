@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When surviving today is so simple and matter-of-fact people tend to forget. They forget what it means to eat a pig. They say all life is equal, but how much life is consumed to keep them alive everyday?"
+> "But you're thinking on too large a scale there, kid... If we don't want to drive ourselves crazy, we can only deal with what's directly in front of us."
 
-&mdash; [**Tanaka Misumi**](https://myanimelist.net/character.php?q=Tanaka%20Misumi&cat=character), [**Bokurano**](https://myanimelist.net/search/all?q=Bokurano&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
