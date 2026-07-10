@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I understand the pain of losing a comrade. I've experienced it, too. Please do not forget the pain. You will move forward while holding on to that pain. Please treasure the comrades you have now. Once they are gone, they will not return. Usually, you don't realize this until afterwards."
+> "I'm an abomination! I'm filthy and dirty! And unbalanced! Why is there only one set of stripes?! I'm garbage! Asymmetrical garbage! I deserve to die!"
 
-&mdash; [**Shinohara**](https://myanimelist.net/character.php?q=Shinohara&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
