@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm an abomination! I'm filthy and dirty! And unbalanced! Why is there only one set of stripes?! I'm garbage! Asymmetrical garbage! I deserve to die!"
+> "We shouldn't blame ourselves for bad things that happened to us. Sometimes, no matter what we do, we are victims of the circumstances. We should just have to pull ourselves out."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
