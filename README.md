@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know how they say that love is like a dream? With a dream, you eventually wake up from it. It's hard to force yourself to wake up."
+> "While I’m here wasting time, how hard is Kakarot training?"
 
-&mdash; [**Kumin Tsuyuri**](https://myanimelist.net/character.php?q=Kumin%20Tsuyuri&cat=character), [**Chuunibyou Demo Koi Ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyou%20Demo%20Koi%20Ga%20Shitai!&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
