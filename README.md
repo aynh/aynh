@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world with only despair, how do you live?"
+> "When surviving today is so simple and matter-of-fact people tend to forget. They forget what it means to eat a pig. They say all life is equal, but how much life is consumed to keep them alive everyday?"
 
-&mdash; [**Shuntarou Chishiya**](https://myanimelist.net/character.php?q=Shuntarou%20Chishiya&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Tanaka Misumi**](https://myanimelist.net/character.php?q=Tanaka%20Misumi&cat=character), [**Bokurano**](https://myanimelist.net/search/all?q=Bokurano&cat=all)
