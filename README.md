@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You chose to go with the flow and you think that doesn't make you guilty?"
+> "I'm actually a hardcore otaku who likes maids more than having three meals a day. And I only read books related to maids. Also, I only visit maid cafes. Of course, I also collect maid figurines. I play games which feature female maids and it turns me on so much. Then I wear maid uniforms and jump in joy. I'll take my leave now."
 
-&mdash; [**Murasaki**](https://myanimelist.net/character.php?q=Murasaki&cat=character), [**Hamatora: The Animation**](https://myanimelist.net/search/all?q=Hamatora%3A%20The%20Animation&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
