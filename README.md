@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether I go or not, I'll die anyway. I have an organ more important than my heart. Although you can't see it, I feel it going through my head down to my feet, and I know it exists within me. It lets me stand on my feet, it lets me walk forward without trembling. If I stop here, I feel like it would break... My soul will break."
+> "There's no way someone who can't even protect himself can protect anyone else, is there?"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Touka Kirishima**](https://myanimelist.net/character.php?q=Touka%20Kirishima&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
