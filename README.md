@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If praying does not work, and words are ineffective... what's left is to fight."
+> "People aren't all perfect. They're weak, ugly, and they get jealous and try to bring others down. Oddly enough, the better you are, the harder it is to live. That's why I'm going to change this world and the people in it..."
 
-&mdash; [**Meme Oshino**](https://myanimelist.net/character.php?q=Meme%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Yukino Yukinoshita**](https://myanimelist.net/character.php?q=Yukino%20Yukinoshita&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
