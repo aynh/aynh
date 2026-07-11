@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't tell people to disappear like it's nothing! Words can hurt people! You can't ever take them back! Even if you regret it, you can never take them back!"
+> "If we are to die one day, wouldn't it be better to have no regrets?"
 
-&mdash; [**Naruse Jun**](https://myanimelist.net/character.php?q=Naruse%20Jun&cat=character), [**Kokoro ga Sakebitagatterunda.**](https://myanimelist.net/search/all?q=Kokoro%20ga%20Sakebitagatterunda.&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
