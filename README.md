@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Good is predicated on corruption and evil."
+> "SHII-CHAN, YOU SON OF A BITCH!!!! (after learning that Shigure invited Akito to the summer house)"
 
-&mdash; [**Tamaki Tsunenaga**](https://myanimelist.net/character.php?q=Tamaki%20Tsunenaga&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Sohma Kagura**](https://myanimelist.net/character.php?q=Sohma%20Kagura&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
