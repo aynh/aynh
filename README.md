@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But even though she's gone... she's not really gone, right? That the light won't go on in that apartment... is a lie, right?"
+> "People are strongest when they have got nothing to lose."
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Katsuragi**](https://myanimelist.net/character.php?q=Katsuragi&cat=character), [**Assassins**](https://myanimelist.net/search/all?q=Assassins&cat=all)
