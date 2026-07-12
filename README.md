@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People aren't all perfect. They're weak, ugly, and they get jealous and try to bring others down. Oddly enough, the better you are, the harder it is to live. That's why I'm going to change this world and the people in it..."
+> "While we talk,  look forward to making up for all the time you've wasted looking back! We can start by talking about tomorrow. You can say anything like, whether you'll make Japanese or Western style breakfast tomorrow, or whether you'll put on your right or left shoe first. It can be something silly like that. No matter how silly it is, you can talk about tomorrow because you have a tomorrow."
 
-&mdash; [**Yukino Yukinoshita**](https://myanimelist.net/character.php?q=Yukino%20Yukinoshita&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Subaru Natsuki**](https://myanimelist.net/character.php?q=Subaru%20Natsuki&cat=character), [**Re:Zero kara Hajimeru Isekai Seikatsu**](https://myanimelist.net/search/all?q=Re%3AZero%20kara%20Hajimeru%20Isekai%20Seikatsu&cat=all)
