@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "And so it all begins. This boy's name is Yusuke. He's 14 years old and is supposed to be the hero of the story... but oddly enough, he's dead."
+> "There are some things you can gain by letting some things go. Happiness isn't just what you have here and now."
 
-&mdash; [**Yu Yu Hakusho**](https://myanimelist.net/character.php?q=Yu%20Yu%20Hakusho&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kunio Yaobi**](https://myanimelist.net/character.php?q=Kunio%20Yaobi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
