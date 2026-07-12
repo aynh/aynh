@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm no expert, but I think people mope when their expectations are too high. It's tiring when you always have to overachieve. Don't overdo it. Just work on achieving what you can."
+> "And so it all begins. This boy's name is Yusuke. He's 14 years old and is supposed to be the hero of the story... but oddly enough, he's dead."
 
-&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Yu Yu Hakusho**](https://myanimelist.net/character.php?q=Yu%20Yu%20Hakusho&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
