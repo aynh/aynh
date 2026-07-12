@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don’t allow hatred to devour your heart. The one that you care for will only move farther away."
+> "*to Araragi* I'm suprised you know such useless things. This is the first time since birth that I've admired you."
 
-&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
