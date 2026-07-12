@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It works better if you don't try as hard, just like in real life."
+> "Killed in action and promoted two ranks for it. Brigadier General Hughes. You were the guy who was supposed to work below me and to push me to the top. Then you get yourself killed and surpass me in the ranks. I don't know what's more absurd, You or the State."
 
-&mdash; [**Nagisa Hazuki**](https://myanimelist.net/character.php?q=Nagisa%20Hazuki&cat=character), [**Free!**](https://myanimelist.net/search/all?q=Free!&cat=all)
+&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
