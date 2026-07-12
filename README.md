@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Lan Fan] Brat, quit blabbering on about trifling topics such as love and sadness. Don't underestimate us. She's the woman I chose. A will is unnecessary between us. That's usually how it is between a King and his companion."
+> "Don’t allow hatred to devour your heart. The one that you care for will only move farther away."
 
-&mdash; [**King Bradley**](https://myanimelist.net/character.php?q=King%20Bradley&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Frau**](https://myanimelist.net/character.php?q=Frau&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
