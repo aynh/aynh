@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "However rough the waters in the outside world may be, to find your own lighthouse and swim for it is only logical, isn't it?"
+> "No, things can change. But things don't have to change. Whatever is fine."
 
-&mdash; [**Hayabusa Shou**](https://myanimelist.net/character.php?q=Hayabusa%20Shou&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
+&mdash; [**Hikari Sakishima**](https://myanimelist.net/character.php?q=Hikari%20Sakishima&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
