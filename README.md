@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Go ahead! I'll just turn you into the police for assaulting a minor! (To Kyo)"
+> "The strength of life lies in the possibility of dying."
 
-&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kouichi Aizawa**](https://myanimelist.net/character.php?q=Kouichi%20Aizawa&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
