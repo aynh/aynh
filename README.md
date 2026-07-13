@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The strength of life lies in the possibility of dying."
+> "Children aren't sweet or innocent. The weird ones are left unchecked. It's rare to find anyone you can trust!"
 
-&mdash; [**Kouichi Aizawa**](https://myanimelist.net/character.php?q=Kouichi%20Aizawa&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Y**](https://myanimelist.net/character.php?q=Y&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
