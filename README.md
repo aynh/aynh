@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No, things can change. But things don't have to change. Whatever is fine."
+> "If I wouldn't have tripped, you wouldn't have stopped, now would you?"
 
-&mdash; [**Hikari Sakishima**](https://myanimelist.net/character.php?q=Hikari%20Sakishima&cat=character), [**Nagi no Asukara**](https://myanimelist.net/search/all?q=Nagi%20no%20Asukara&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
