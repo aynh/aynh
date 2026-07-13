@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can run away, but that'll just make it worse!"
+> "Go ahead! I'll just turn you into the police for assaulting a minor! (To Kyo)"
 
-&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Sohma Hiro**](https://myanimelist.net/character.php?q=Sohma%20Hiro&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
