@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Children aren't sweet or innocent. The weird ones are left unchecked. It's rare to find anyone you can trust!"
+> "However rough the waters in the outside world may be, to find your own lighthouse and swim for it is only logical, isn't it?"
 
-&mdash; [**Y**](https://myanimelist.net/character.php?q=Y&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Hayabusa Shou**](https://myanimelist.net/character.php?q=Hayabusa%20Shou&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
