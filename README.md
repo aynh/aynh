@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm going to teach you how to talk to your seniors, baldy."
+> "When cats are near death, they leave their owner's side, right? I'm sure that's exactly how I feel. I want to disappear while they can think, 'What a noisy, stupid girl she was, I wonder if she's doing okay.'"
 
-&mdash; [**Hyuuga Junpei**](https://myanimelist.net/character.php?q=Hyuuga%20Junpei&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Makina Irisu**](https://myanimelist.net/character.php?q=Makina%20Irisu&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
