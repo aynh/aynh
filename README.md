@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can really change. When they're far away from each other, their hearts will change. It's so cruel that the only thing I can do is wait."
+> "If you were in this situation, what would you have done? You would run after Byakuya...And then kick him in the butt, right? No matter how one captain complains, the Central Government won't change their decision for one person. But if it was you, you would still run around appealing to save Kuchiki...No. You would probably do something completely different. You always chose the path that lead to the most danger. Am I right...Kaien?"
 
-&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
