@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People do not exist to follow rules. Rules exist to protect the people."
+> "People can really change. When they're far away from each other, their hearts will change. It's so cruel that the only thing I can do is wait."
 
-&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
+&mdash; [**Ran Mouri**](https://myanimelist.net/character.php?q=Ran%20Mouri&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
