@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He is so twisted that if he sees someone wandering around lost, he's the kind of guy who will screw and toy around with the poor soul before he even bothers to help...IF he even bothers to help!"
+> "(to Katara) I know who killed your mother."
 
-&mdash; [**Misaki Takahashi**](https://myanimelist.net/character.php?q=Misaki%20Takahashi&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
