@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I pity you. You just don't get it at all... there's not a thing I don't cherish!"
+> "This is how culture spreads. When someone has a new idea, it is immediately copied."
 
-&mdash; [**Cloud Strife**](https://myanimelist.net/character.php?q=Cloud%20Strife&cat=character), [**Final Fantasy VII**](https://myanimelist.net/search/all?q=Final%20Fantasy%20VII&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
