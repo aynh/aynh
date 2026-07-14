@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am who I am now because of everything that's happened. If I try to deny my past, I'm denying the person I've become. I don't want to do that."
+> "If you keep lying like that, no one, not even yourself, will believe you anymore."
 
-&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Aladdin**](https://myanimelist.net/character.php?q=Aladdin&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
