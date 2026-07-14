@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me teach you a thing. Normally the weak person's weakness is the strong person, but the strong person's weakness is also the weak person."
+> "I'm going to teach you how to talk to your seniors, baldy."
 
-&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Hyuuga Junpei**](https://myanimelist.net/character.php?q=Hyuuga%20Junpei&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
