@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once a person is ready to die, anything is possible."
+> "Check it out yo, how kick ass is my new fighter plane of doom!? Dude, it blowin your mind yet or what?"
 
-&mdash; [**Shimada Minami**](https://myanimelist.net/character.php?q=Shimada%20Minami&cat=character), [**Baka to Test to Shoukanjuu**](https://myanimelist.net/search/all?q=Baka%20to%20Test%20to%20Shoukanjuu&cat=all)
+&mdash; [**America**](https://myanimelist.net/character.php?q=America&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
