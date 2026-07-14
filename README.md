@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can hardly tell anymore where the truth ends and the lies begin."
+> "People do not exist to follow rules. Rules exist to protect the people."
 
-&mdash; [**Naota Nandaba**](https://myanimelist.net/character.php?q=Naota%20Nandaba&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Medaka Kurokami**](https://myanimelist.net/character.php?q=Medaka%20Kurokami&cat=character), [**Medaka Box**](https://myanimelist.net/search/all?q=Medaka%20Box&cat=all)
