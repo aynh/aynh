@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you were in this situation, what would you have done? You would run after Byakuya...And then kick him in the butt, right? No matter how one captain complains, the Central Government won't change their decision for one person. But if it was you, you would still run around appealing to save Kuchiki...No. You would probably do something completely different. You always chose the path that lead to the most danger. Am I right...Kaien?"
+> "Let me teach you a thing. Normally the weak person's weakness is the strong person, but the strong person's weakness is also the weak person."
 
-&mdash; [**Ukitake Jyuushirou**](https://myanimelist.net/character.php?q=Ukitake%20Jyuushirou&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Itsuki Minami**](https://myanimelist.net/character.php?q=Itsuki%20Minami&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
