@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When we were together, my heart felt tight, too tight to even drink water. If that's called love, then it was really just me who was in love. Just me."
+> "Our bodies get bigger, but our hearts get torn up."
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Mikoto Suoh**](https://myanimelist.net/character.php?q=Mikoto%20Suoh&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
