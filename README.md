@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Our bodies get bigger, but our hearts get torn up."
+> "HANAJIMA, MY SPEAR! GET ME MY SPEAR!"
 
-&mdash; [**Mikoto Suoh**](https://myanimelist.net/character.php?q=Mikoto%20Suoh&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
