@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Perhaps living without sin is a sin in itself."
+> "Trunks, Bulma, I’m doing this for you. And yes, even for you, Kakarot."
 
-&mdash; [**Furude Rika**](https://myanimelist.net/character.php?q=Furude%20Rika&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
+&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
