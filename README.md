@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "HANAJIMA, MY SPEAR! GET ME MY SPEAR!"
+> "Regret is a powerful poison. The more you harbor those thoughts, the harder it is to move on."
 
-&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Sakurako Amamiya**](https://myanimelist.net/character.php?q=Sakurako%20Amamiya&cat=character), [**Psyren**](https://myanimelist.net/search/all?q=Psyren&cat=all)
