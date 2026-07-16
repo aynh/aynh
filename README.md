@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regret is a powerful poison. The more you harbor those thoughts, the harder it is to move on."
+> "What does it feel like, having your own death right before your eyes? That grand kaleidoscope glimpsed in the moments before death... What could be flashing through that perfect mind of yours?"
 
-&mdash; [**Sakurako Amamiya**](https://myanimelist.net/character.php?q=Sakurako%20Amamiya&cat=character), [**Psyren**](https://myanimelist.net/search/all?q=Psyren&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
