@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well done. That time, your fang definitely touched me."
+> "You don’t waste your time following someone around unless you like him. Stalking is a sign of love."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Aoi Yamada**](https://myanimelist.net/character.php?q=Aoi%20Yamada&cat=character), [**Working!!**](https://myanimelist.net/search/all?q=Working!!&cat=all)
