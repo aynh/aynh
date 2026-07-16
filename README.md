@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The strong feed upon weak. It's such an obligingly simple rule. Except in this world, my friends tried to be strong."
+> "Well done. That time, your fang definitely touched me."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
