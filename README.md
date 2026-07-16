@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What does it feel like, having your own death right before your eyes? That grand kaleidoscope glimpsed in the moments before death... What could be flashing through that perfect mind of yours?"
+> "I've never been victimized for anything. I am just doing what I can for me and my comrades. And right now, you're in my way."
 
-&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Mikazuki Augus**](https://myanimelist.net/character.php?q=Mikazuki%20Augus&cat=character), [**Mobile Suit Gundam: Iron-Blooded Orphans**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%3A%20Iron-Blooded%20Orphans&cat=all)
