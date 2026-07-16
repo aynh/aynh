@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Then I ask you, what do you define as the beginning of the sky? At one hundred meter or even one thousand meters, it isn't much different from right here. The sole difference is the air density and water concentration. So, this is where sky begins. Anything above the earth belongs to the domain of sky."
+> "This world is full of secrets meant never to be disturbed."
 
-&mdash; [**Yoshitsune**](https://myanimelist.net/character.php?q=Yoshitsune&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
+&mdash; [**Ayumu Aikawa**](https://myanimelist.net/character.php?q=Ayumu%20Aikawa&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
