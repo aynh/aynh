@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't stray from my path for those I've left behind."
+> "Stop pouting! You learned something valuable. Remember the lesson, not the disappointment."
 
-&mdash; [**Emiya Shirou**](https://myanimelist.net/character.php?q=Emiya%20Shirou&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
