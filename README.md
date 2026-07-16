@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop pouting! You learned something valuable. Remember the lesson, not the disappointment."
+> "I want everyone to feel safe again soon...I want this to be a world where people can without fighting each other."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
