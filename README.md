@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't want... to run away by myself. Because no matter what, I'd rather be together with everyone..."
+> "Those bound by superficial rules who do not use their pawns to the utmost are fools."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
