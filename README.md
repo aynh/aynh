@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Thanks for the real vote of confidence. You two should be cheerleaders, you'd look cute in skirts!"
+> "It'll still feel better to try and regret, than regret not trying at all."
 
-&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
