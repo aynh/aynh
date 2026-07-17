@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There's no need to change the past. Because of the past we are who we are now. Every second, every action from then is linked to us here and now."
+> "Words are imperfect. Putting it in words will just create misunderstandings. Words are the root of misunderstandings."
 
-&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Nagi Sanzenin**](https://myanimelist.net/character.php?q=Nagi%20Sanzenin&cat=character), [**Hayate no Gotoku!**](https://myanimelist.net/search/all?q=Hayate%20no%20Gotoku!&cat=all)
