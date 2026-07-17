@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those bound by superficial rules who do not use their pawns to the utmost are fools."
+> "In the end of that lonely path you are going, there is nothing."
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Fuurinji Hayato**](https://myanimelist.net/character.php?q=Fuurinji%20Hayato&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
