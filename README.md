@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end of that lonely path you are going, there is nothing."
+> "Even if I found happiness, my weakness can't be discarded. But, even so, I'm sure that we took the right path to move forward."
 
-&mdash; [**Fuurinji Hayato**](https://myanimelist.net/character.php?q=Fuurinji%20Hayato&cat=character), [**Kenichi: The Mightiest Disciple**](https://myanimelist.net/search/all?q=Kenichi%3A%20The%20Mightiest%20Disciple&cat=all)
+&mdash; [**Adolf Reinhardt**](https://myanimelist.net/character.php?q=Adolf%20Reinhardt&cat=character), [**Terraformars**](https://myanimelist.net/search/all?q=Terraformars&cat=all)
