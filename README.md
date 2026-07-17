@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Words are imperfect. Putting it in words will just create misunderstandings. Words are the root of misunderstandings."
+> "Yeah, so I don’t appear to be the brightest crayon in the box but I still look down on the rest of the world."
 
-&mdash; [**Nagi Sanzenin**](https://myanimelist.net/character.php?q=Nagi%20Sanzenin&cat=character), [**Hayate no Gotoku!**](https://myanimelist.net/search/all?q=Hayate%20no%20Gotoku!&cat=all)
+&mdash; [**Kei Kurono**](https://myanimelist.net/character.php?q=Kei%20Kurono&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
