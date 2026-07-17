@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, so I don’t appear to be the brightest crayon in the box but I still look down on the rest of the world."
+> "Thanks for the real vote of confidence. You two should be cheerleaders, you'd look cute in skirts!"
 
-&mdash; [**Kei Kurono**](https://myanimelist.net/character.php?q=Kei%20Kurono&cat=character), [**Gantz**](https://myanimelist.net/search/all?q=Gantz&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
