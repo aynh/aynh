@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It'll still feel better to try and regret, than regret not trying at all."
+> "I don't want... to run away by myself. Because no matter what, I'd rather be together with everyone..."
 
-&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
