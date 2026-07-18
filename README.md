@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fake people have an image to maintain. Real people just don't care."
+> "Life perpetuates itself through diversity, and this includes the ability to sacrifice itself when necessary. Cells repeat the process of degeneration and regeneration until one day they die, obliterating an entire set of memory and information. Only genes remain. Why continually repeat this cycle? Simply to survive by avoiding the weaknesses of an unchanging system."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Puppet Master**](https://myanimelist.net/character.php?q=Puppet%20Master&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
