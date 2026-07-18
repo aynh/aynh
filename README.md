@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can't live for the future without accepting reality."
+> "I think everything in this world is beautiful. The sky, birds, bugs, frogs, flowers, and even rocks. Because, if God created this world, could there really be anything dirty and ugly in it?"
 
-&mdash; [**Kurokawa Mari**](https://myanimelist.net/character.php?q=Kurokawa%20Mari&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Momoka Oginome**](https://myanimelist.net/character.php?q=Momoka%20Oginome&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
