@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop pitying yourself. Pity yourself, and life becomes an endless nightmare."
+> "Your emotions have nothing to do with winning or losing,  but they're motivating us more than you might expect."
 
-&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
+&mdash; [**Makishima Yuusuke**](https://myanimelist.net/character.php?q=Makishima%20Yuusuke&cat=character), [**Yowamushi Pedal Grande Road**](https://myanimelist.net/search/all?q=Yowamushi%20Pedal%20Grande%20Road&cat=all)
