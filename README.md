@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One of the things Blank loves best is saying 'No' to people who think they've got an absolute advantage."
+> "Even if they're not your own child, you can't, as an adult, overlook their wrongdoings."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Nagi Kengamine**](https://myanimelist.net/character.php?q=Nagi%20Kengamine&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
