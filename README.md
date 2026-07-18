@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He realized that he had lost sight of something important. No matter what turn he took he should have kept singing. Even if his songs couldn’t save the world, he could still sing songs for her. Don’t ever lose sight of what’s important to you."
+> "We're always trying to justify our actions with ideals. But ideals cannot give grounds for killing another person. The act of taking a life will always be considered... evil."
 
-&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Yoshimura**](https://myanimelist.net/character.php?q=Yoshimura&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
