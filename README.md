@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think everything in this world is beautiful. The sky, birds, bugs, frogs, flowers, and even rocks. Because, if God created this world, could there really be anything dirty and ugly in it?"
+> "You are who you are. You have to do what you can."
 
-&mdash; [**Momoka Oginome**](https://myanimelist.net/character.php?q=Momoka%20Oginome&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
