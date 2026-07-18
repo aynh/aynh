@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To know your sin is to have no sin."
+> "One of the things Blank loves best is saying 'No' to people who think they've got an absolute advantage."
 
-&mdash; [**Renmei Communicator**](https://myanimelist.net/character.php?q=Renmei%20Communicator&cat=character), [**Haibane Renmei**](https://myanimelist.net/search/all?q=Haibane%20Renmei&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
