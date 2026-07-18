@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Your emotions have nothing to do with winning or losing,  but they're motivating us more than you might expect."
+> "Real strength only reveals itself when one is faced with great turmoil! Therefore, I shall always tread a thorny path!"
 
-&mdash; [**Makishima Yuusuke**](https://myanimelist.net/character.php?q=Makishima%20Yuusuke&cat=character), [**Yowamushi Pedal Grande Road**](https://myanimelist.net/search/all?q=Yowamushi%20Pedal%20Grande%20Road&cat=all)
+&mdash; [**Aoi Asahina**](https://myanimelist.net/character.php?q=Aoi%20Asahina&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
