@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ant king , you believe I cannot pray with a single arm? A prayer comes from the heart. If the heart achieves the correct form, it becomes emotions and emotions can be manifested."
+> "The beauty of the stars never changes. However, stars that change are beautiful as well."
 
-&mdash; [**Netero**](https://myanimelist.net/character.php?q=Netero&cat=character), [**Hunter × Hunter**](https://myanimelist.net/search/all?q=Hunter%20%C3%97%20Hunter&cat=all)
+&mdash; [**Eucliwood Hellscythe**](https://myanimelist.net/character.php?q=Eucliwood%20Hellscythe&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
