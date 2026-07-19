@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm no man's burden! I want to be of use!"
+> "I'm a devilish and talented butler."
 
-&mdash; [**Shizuku Tsukishima**](https://myanimelist.net/character.php?q=Shizuku%20Tsukishima&cat=character), [**Mimi wo Sumaseba**](https://myanimelist.net/search/all?q=Mimi%20wo%20Sumaseba&cat=all)
+&mdash; [**Gian Carlo**](https://myanimelist.net/character.php?q=Gian%20Carlo&cat=character), [**Lucky Dog**](https://myanimelist.net/search/all?q=Lucky%20Dog&cat=all)
