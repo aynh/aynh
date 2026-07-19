@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do I have to live for now that I know Cain won't come back? You tell me that, Ed!"
+> "Ant king , you believe I cannot pray with a single arm? A prayer comes from the heart. If the heart achieves the correct form, it becomes emotions and emotions can be manifested."
 
-&mdash; [**Winry Rockbell**](https://myanimelist.net/character.php?q=Winry%20Rockbell&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Netero**](https://myanimelist.net/character.php?q=Netero&cat=character), [**Hunter × Hunter**](https://myanimelist.net/search/all?q=Hunter%20%C3%97%20Hunter&cat=all)
