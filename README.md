@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'Believing in someone.' That's a weird phrase, isn't it? After all, if you truly believed in a person, you wouldn't need to say, 'I believe you.' It's like saying, 'I believe in air.' I don't mean to say that 'believing in something' is like a lie. 'Believing' is really a term of hope of wanting to believe."
+> "It is a poor knight indeed who slays one who defies him. The key is to show yourself to be superior that they will not defy you in the first place."
 
-&mdash; [**Satoru Fujinuma**](https://myanimelist.net/character.php?q=Satoru%20Fujinuma&cat=character), [**Boku dake ga Inai Machi**](https://myanimelist.net/search/all?q=Boku%20dake%20ga%20Inai%20Machi&cat=all)
+&mdash; [**Slaine Troyard**](https://myanimelist.net/character.php?q=Slaine%20Troyard&cat=character), [**Aldnoah.Zero**](https://myanimelist.net/search/all?q=Aldnoah.Zero&cat=all)
