@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The sorrows of life...To not be able to live like yourself. The joys of life...To be able to die like yourself."
+> "*to Edward* So, you hooked up with your mechanic, huh? Not too shabby, sprout."
 
-&mdash; [**Karren von Rosewald**](https://myanimelist.net/character.php?q=Karren%20von%20Rosewald&cat=character), [**Tokyo Ghoul:re**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul%3Are&cat=all)
+&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
