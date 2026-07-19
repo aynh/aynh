@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The idea that you can't die yet because you still have something to protect... that is the foolish illusion of the weak."
+> "Unwilling to listen or see anything else, you lost yourself in your own world and became incapable of seeing the things around you."
 
-&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Raiko Shimizu**](https://myanimelist.net/character.php?q=Raiko%20Shimizu&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
