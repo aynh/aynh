@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do not fear death. I fear only that my rage will fade over time."
+> "What do I have to live for now that I know Cain won't come back? You tell me that, Ed!"
 
-&mdash; [**Kurapika**](https://myanimelist.net/character.php?q=Kurapika&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Winry Rockbell**](https://myanimelist.net/character.php?q=Winry%20Rockbell&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
