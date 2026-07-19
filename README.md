@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We're always trying to justify our actions with ideals. But ideals cannot give grounds for killing another person. The act of taking a life will always be considered... evil."
+> "I'm no man's burden! I want to be of use!"
 
-&mdash; [**Yoshimura**](https://myanimelist.net/character.php?q=Yoshimura&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Shizuku Tsukishima**](https://myanimelist.net/character.php?q=Shizuku%20Tsukishima&cat=character), [**Mimi wo Sumaseba**](https://myanimelist.net/search/all?q=Mimi%20wo%20Sumaseba&cat=all)
