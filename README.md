@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the pride of a senshi means hurting each other, I don't want it. Nothing will come out of fighting. Fighting isn't the only way to solve things."
+> "Something that's supposed to die and doesn't will eventually rot away, whether it's a man or a nation."
 
-&mdash; [**Usagi Tsukino**](https://myanimelist.net/character.php?q=Usagi%20Tsukino&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
+&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
