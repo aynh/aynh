@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't think anyone is born with a reason to live. It's something you have to find for yourself."
+> "Gohan, let it go. It is not a sin to fight for the right cause. There are those who words alone will not reach."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Android 16**](https://myanimelist.net/character.php?q=Android%2016&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
