@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's dangerous here. If you stare at the stars long enough, you start thinking you could grab one, and you get this feeling like all your dreams will come true."
+> "If you accept everything you’re told without question, you’ll lose your ability to think. Even if you reached the same conclusion, it would still be worth analyzing the reasons behind it."
 
-&mdash; [**Shinichi Okazaki**](https://myanimelist.net/character.php?q=Shinichi%20Okazaki&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Lacie Baskerville**](https://myanimelist.net/character.php?q=Lacie%20Baskerville&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
