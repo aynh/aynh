@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I love you. When did I start to love you so much?"
+> "If the pride of a senshi means hurting each other, I don't want it. Nothing will come out of fighting. Fighting isn't the only way to solve things."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Usagi Tsukino**](https://myanimelist.net/character.php?q=Usagi%20Tsukino&cat=character), [**Sailor Moon**](https://myanimelist.net/search/all?q=Sailor%20Moon&cat=all)
