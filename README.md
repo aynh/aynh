@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Gohan, let it go. It is not a sin to fight for the right cause. There are those who words alone will not reach."
+> "People are born into this world. And people are taken from this world."
 
-&mdash; [**Android 16**](https://myanimelist.net/character.php?q=Android%2016&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
