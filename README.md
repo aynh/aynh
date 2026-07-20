@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Glory lies beyond the horizon. Challenge it because it is unreachable. Speak of conquest and demonstrate it."
+> "I will protect Hinamori."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
