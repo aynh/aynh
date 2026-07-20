@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Since then… I’ve started to think…about things with the worst case outcome first. By doing so, even if you did get hurt a little bit, it wouldn’t end up being a lasting wound."
+> "Glory lies beyond the horizon. Challenge it because it is unreachable. Speak of conquest and demonstrate it."
 
-&mdash; [**Ritsu Onodera**](https://myanimelist.net/character.php?q=Ritsu%20Onodera&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
