@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To enjoy my youth properly. She might've been talking about something like this. To live without thinking about consequences or what's around me with all my strength. That's what it was about..."
+> "'Time' is proof that people have lived. Every person lives the time that has been given to them... that is life."
 
-&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
