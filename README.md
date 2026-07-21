@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Old techniques created by others will never be your own. Only what you create and experience for yourself can become your own."
+> "It's too late to regret. Reality is just cruelly moving forward."
 
-&mdash; [**Oubu**](https://myanimelist.net/character.php?q=Oubu&cat=character), [**Reikenzan: Hoshikuzu-tachi no Utage**](https://myanimelist.net/search/all?q=Reikenzan%3A%20Hoshikuzu-tachi%20no%20Utage&cat=all)
+&mdash; [**Tobi**](https://myanimelist.net/character.php?q=Tobi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
