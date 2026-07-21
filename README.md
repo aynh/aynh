@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I came to believe that a world where people can understand each other isn't impossible. That's why even if the world rejects me... even if the world blames me... I'll keep on fighting."
+> "Old techniques created by others will never be your own. Only what you create and experience for yourself can become your own."
 
-&mdash; [**Lockon Stratos**](https://myanimelist.net/character.php?q=Lockon%20Stratos&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Oubu**](https://myanimelist.net/character.php?q=Oubu&cat=character), [**Reikenzan: Hoshikuzu-tachi no Utage**](https://myanimelist.net/search/all?q=Reikenzan%3A%20Hoshikuzu-tachi%20no%20Utage&cat=all)
