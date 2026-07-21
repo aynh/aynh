@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ninjas are revolting, they stole my idea. I'll have to kill them now."
+> "I came to believe that a world where people can understand each other isn't impossible. That's why even if the world rejects me... even if the world blames me... I'll keep on fighting."
 
-&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Lockon Stratos**](https://myanimelist.net/character.php?q=Lockon%20Stratos&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
