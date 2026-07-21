@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "... After all, our goal each year should be to increase the NUMBER of goals we set for ourselves!"
+> "A flower raised in a greenhouse is still beautiful, even though it knows no adversity. But a flower growing in the field that has braved wind, rain, cold, and heat possesses something more than just beauty."
 
-&mdash; [**Haruhi Suzumiya**](https://myanimelist.net/character.php?q=Haruhi%20Suzumiya&cat=character), [**The Melancholy of Haruhi Suzumiya**](https://myanimelist.net/search/all?q=The%20Melancholy%20of%20Haruhi%20Suzumiya&cat=all)
+&mdash; [**Ryuuguu Rena**](https://myanimelist.net/character.php?q=Ryuuguu%20Rena&cat=character), [**Higurashi no Naku Koro ni Rei**](https://myanimelist.net/search/all?q=Higurashi%20no%20Naku%20Koro%20ni%20Rei&cat=all)
