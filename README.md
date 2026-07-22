@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's too late to regret. Reality is just cruelly moving forward."
+> "[to Luppi] Hyourinmaru is the strongest of all ice-type Zanpakutoes. Your weapon may have eight arms, but mine is all the water in the atmosphere! Sennen Hyourou!! [causes several pillars of ice to form, before using them to crush Luppi] Sorry. Eight wasn't enough."
 
-&mdash; [**Tobi**](https://myanimelist.net/character.php?q=Tobi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
