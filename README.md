@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Ichigo] I don't care if you're a human, a Soul Reaper or even a Hollow! I'll crush anybody who looks down on me! And you, Kurosaki, will be the first to go!"
+> "True, I've given up on the real world. However, I haven't given up on myself."
 
-&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
