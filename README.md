@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Luppi] Hyourinmaru is the strongest of all ice-type Zanpakutoes. Your weapon may have eight arms, but mine is all the water in the atmosphere! Sennen Hyourou!! [causes several pillars of ice to form, before using them to crush Luppi] Sorry. Eight wasn't enough."
+> "I’ve always been alone. The only one that can bring warmth into my life, is you."
 
-&mdash; [**Toushirou Hitsugaya**](https://myanimelist.net/character.php?q=Toushirou%20Hitsugaya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kaname Kuran**](https://myanimelist.net/character.php?q=Kaname%20Kuran&cat=character), [**Vampire Knight**](https://myanimelist.net/search/all?q=Vampire%20Knight&cat=all)
