@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "True, I've given up on the real world. However, I haven't given up on myself."
+> "Near and the others told me that this woman was supposed to be the second Kira. But could it really be this unbelievably stupid girl?.."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**Kami Nomi zo Shiru Sekai**](https://myanimelist.net/search/all?q=Kami%20Nomi%20zo%20Shiru%20Sekai&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
