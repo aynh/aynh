@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’ve always been alone. The only one that can bring warmth into my life, is you."
+> "Humans aren't made perfectly. Everyone lies. Even so... I've been careful not to tell lies that hurt others."
 
-&mdash; [**Kaname Kuran**](https://myanimelist.net/character.php?q=Kaname%20Kuran&cat=character), [**Vampire Knight**](https://myanimelist.net/search/all?q=Vampire%20Knight&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
