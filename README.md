@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Maybe humans are capable of committing far more shameless acts than they imagine they are. If they hadn’t faced adversity, they might have gone without discovering such ugly facets of themselves."
+> "For all my life... I've wanted strength. I didn't want those things precious to me to be taken away from me anymore. But, to have strength means to invite disaster to come to you. And strength alone can't really protect you."
 
-&mdash; [**Hildegard von Mariendorf**](https://myanimelist.net/character.php?q=Hildegard%20von%20Mariendorf&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Kurogane**](https://myanimelist.net/character.php?q=Kurogane&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
