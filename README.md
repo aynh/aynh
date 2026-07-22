@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "...and even if you were to hate yourself as much as you want, you have no choice but to live with yourself forever. Other people just go by. Eventually what's left to you at the end is only yourself. Even if you can't seem to like yourself, shouldn't you at least compromise?"
+> "Don't call me 'this chick'."
 
-&mdash; [**Choi Yool**](https://myanimelist.net/character.php?q=Choi%20Yool&cat=character), [**Gaussian Blur**](https://myanimelist.net/search/all?q=Gaussian%20Blur&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
