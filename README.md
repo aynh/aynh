@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world with only despair, how do you live?"
+> "Goodbyes are only one side of the coin. You can't say goodbye until you've said hello."
 
-&mdash; [**Shuntarou Chishiya**](https://myanimelist.net/character.php?q=Shuntarou%20Chishiya&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
