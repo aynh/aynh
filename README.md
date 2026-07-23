@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well, singing, or music... I think by nature it was always meant to convey something. So if there's something you want to say, don't you think you should try singing it?"
+> "What value does your will have? I asked you what price it carries. If money is enough, is your will for sale? A will that can be bought with money... what's the meaning of that? If your will can be bought with money... then it will vanish along with that money. Am I wrong?"
 
-&mdash; [**Sakagami Takumi**](https://myanimelist.net/character.php?q=Sakagami%20Takumi&cat=character), [**Kokoro ga Sakebitagatterunda.**](https://myanimelist.net/search/all?q=Kokoro%20ga%20Sakebitagatterunda.&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
