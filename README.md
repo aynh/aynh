@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're alone... if it's just your life, you can use it however you please Wear yourself out, get cut to ribbons, doesn't matter. But when there's two, the blade grows heavy. Fighting like death doesn't concern you becomes a thing of the past. It's no longer just you. I threw away my way of life, relied on the strength of others, and somehow pushed on."
+> "Doesn't even think about giving up just because it's useless! The moment you give up is when your life ends."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Ushiromiya Jessica**](https://myanimelist.net/character.php?q=Ushiromiya%20Jessica&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
