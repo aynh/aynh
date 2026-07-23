@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It seems like the small leaves in the Village of Konoha have inherited that 'will of fire' you spoke of, Third. The fire on the leaves will eventually burn greater and stronger... It will flash its light and protect this village."
+> "Our crying for them won't bring the dead back to life."
 
-&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Lelouch Lamperouge**](https://myanimelist.net/character.php?q=Lelouch%20Lamperouge&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
