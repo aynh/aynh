@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I dunno, getting rid of stuff that doesn't even exist... it's basically just counselling, isn't it?"
+> "Saving someone means not saving someone else."
 
-&mdash; [**Rin Okumura**](https://myanimelist.net/character.php?q=Rin%20Okumura&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
