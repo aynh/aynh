@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When a person lies, what is important is not the lie itself. No, it is their reason. Their why."
+> "The moon peers down on a diseased world... There is no cure for the disease, an entire race walks mindlessly into destruction. Not even a man of colossal power, would be able to prevent the inevitable."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Seijuro Hiko**](https://myanimelist.net/character.php?q=Seijuro%20Hiko&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
