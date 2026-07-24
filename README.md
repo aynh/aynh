@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To the me back then, you don’t need to worry. You’ll soon find something you can do, something you can set your heart on."
+> "If it's a wish that can be fulfilled, then fulfill it. If there's hesitation and worries, then remove the sources of worries altogether."
 
-&mdash; [**Yui Hirasawa**](https://myanimelist.net/character.php?q=Yui%20Hirasawa&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
+&mdash; [**Yoite**](https://myanimelist.net/character.php?q=Yoite&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
