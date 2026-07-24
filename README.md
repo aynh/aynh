@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Holding in your own feelings like that... ye think tha' no one's gonna get hurt since ye're not lettin' it show to anyone? Tha's just the same as goin' 'round hurting everyone anyway!! What ye're doin' isn't ye keepin' everyone dear to ye!! Ye're just protectin' yerself!!! Ye're just 'fraid of gettin' hurt! Losin' yer nerve! Ye're just scared!!"
+> "That's pretty bad when you can even give a half demon the creeps. *to Kagome*"
 
-&mdash; [**Tachibana Marika**](https://myanimelist.net/character.php?q=Tachibana%20Marika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
