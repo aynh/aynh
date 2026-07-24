@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The beginning exists for the end and the end exists for the beginning."
+> "Mistaking lust for love shows that you're caught in an inflationary spiral of sexual frustration."
 
-&mdash; [**Quon Kisaragi**](https://myanimelist.net/character.php?q=Quon%20Kisaragi&cat=character), [**RahXephon**](https://myanimelist.net/search/all?q=RahXephon&cat=all)
+&mdash; [**Tsukihi Araragi**](https://myanimelist.net/character.php?q=Tsukihi%20Araragi&cat=character), [**Nekomonogatari: Kuro**](https://myanimelist.net/search/all?q=Nekomonogatari%3A%20Kuro&cat=all)
