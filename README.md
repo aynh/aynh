@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's pretty bad when you can even give a half demon the creeps. *to Kagome*"
+> "If you have time to think of a beautiful end, then live beautifully until the end."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
