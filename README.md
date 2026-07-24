@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's a wish that can be fulfilled, then fulfill it. If there's hesitation and worries, then remove the sources of worries altogether."
+> "I won’t accept it! I want to have a choice, too! I don’t want to write poems about regret."
 
-&mdash; [**Yoite**](https://myanimelist.net/character.php?q=Yoite&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
+&mdash; [**Sumire Hanano**](https://myanimelist.net/character.php?q=Sumire%20Hanano&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
