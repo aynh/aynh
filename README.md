@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mistaking lust for love shows that you're caught in an inflationary spiral of sexual frustration."
+> "To the me back then, you don’t need to worry. You’ll soon find something you can do, something you can set your heart on."
 
-&mdash; [**Tsukihi Araragi**](https://myanimelist.net/character.php?q=Tsukihi%20Araragi&cat=character), [**Nekomonogatari: Kuro**](https://myanimelist.net/search/all?q=Nekomonogatari%3A%20Kuro&cat=all)
+&mdash; [**Yui Hirasawa**](https://myanimelist.net/character.php?q=Yui%20Hirasawa&cat=character), [**K-ON!**](https://myanimelist.net/search/all?q=K-ON!&cat=all)
