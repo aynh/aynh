@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you have time to think of a beautiful end, then live beautifully until the end."
+> "When a person lies, what is important is not the lie itself. No, it is their reason. Their why."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
