@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't understand what I say that makes people so mad. I don't understand how they feel. I know that's because I haven't properly socialized, I've tried to learn. I've tried to study up on it, but I just don't know what's right."
+> "When I want to do something, I do it, regardless of the rest of the world. When I don't, I don't, and that's that."
 
-&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
+&mdash; [**Femt**](https://myanimelist.net/character.php?q=Femt&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
