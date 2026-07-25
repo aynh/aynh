@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because they saved me from myself, they rescued me from my loneliness. They were the first to accept me for who I am. They're my friends."
+> "If we love someone, we need to tell them about it. That way, we'll feel relieved and a lot stronger."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
