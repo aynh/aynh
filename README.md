@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Before creation… must come destruction!"
+> "I don't understand what I say that makes people so mad. I don't understand how they feel. I know that's because I haven't properly socialized, I've tried to learn. I've tried to study up on it, but I just don't know what's right."
 
-&mdash; [**Beerus**](https://myanimelist.net/character.php?q=Beerus&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Hishiro Chizuru**](https://myanimelist.net/character.php?q=Hishiro%20Chizuru&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
