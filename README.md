@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Russia* You were such a cute country when you were born and now your all grown up..."
+> "For the right price, you can buy not only treasures, but dreams, hearts and even people's lives!"
 
-&mdash; [**France**](https://myanimelist.net/character.php?q=France&cat=character), [**Axis Powers: Hetalia**](https://myanimelist.net/search/all?q=Axis%20Powers%3A%20Hetalia&cat=all)
+&mdash; [**Leorio Paladiknight**](https://myanimelist.net/character.php?q=Leorio%20Paladiknight&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
