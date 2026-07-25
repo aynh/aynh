@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To me, Kawai-san is like a mirror. A mirror that reflects all the bad parts about you. A devil-like mirror that contaminates your heart."
+> "Charm is reserved for dealing with people with more power than you."
 
-&mdash; [**Yuusuke Kanda**](https://myanimelist.net/character.php?q=Yuusuke%20Kanda&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Chihayafuru 2**](https://myanimelist.net/character.php?q=Chihayafuru%202&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
