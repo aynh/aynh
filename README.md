@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No man chooses evil because it is evil; he only mistakes it for happiness, the good he seeks"
+> "What you say may be correct, that there is a war going on outside our world. But we don't agree with it! We dislike war! And that is why we chose to be here, in neutral territory!"
 
-&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
+&mdash; [**Kira Yamato**](https://myanimelist.net/character.php?q=Kira%20Yamato&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
