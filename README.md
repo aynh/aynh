@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I want to do something, I do it, regardless of the rest of the world. When I don't, I don't, and that's that."
+> "No man chooses evil because it is evil; he only mistakes it for happiness, the good he seeks"
 
-&mdash; [**Femt**](https://myanimelist.net/character.php?q=Femt&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
+&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
