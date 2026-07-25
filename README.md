@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For the right price, you can buy not only treasures, but dreams, hearts and even people's lives!"
+> "If it's a wish that can be fulfilled, then fulfill it. If there's hesitation and worries, then remove the sources of worries altogether."
 
-&mdash; [**Leorio Paladiknight**](https://myanimelist.net/character.php?q=Leorio%20Paladiknight&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Yoite**](https://myanimelist.net/character.php?q=Yoite&cat=character), [**Nabari no Ou**](https://myanimelist.net/search/all?q=Nabari%20no%20Ou&cat=all)
