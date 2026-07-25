@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just like wine, some human relationships need time to mature."
+> "To me, Kawai-san is like a mirror. A mirror that reflects all the bad parts about you. A devil-like mirror that contaminates your heart."
 
-&mdash; [**Daisuke Aramaki**](https://myanimelist.net/character.php?q=Daisuke%20Aramaki&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Yuusuke Kanda**](https://myanimelist.net/character.php?q=Yuusuke%20Kanda&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
