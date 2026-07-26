@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah, we've become friends. When you're in the same party, there will be times when things don't go smoothly, when you get angry, and when you fight. But they really are your precious friends. It doesn't matter why you became friends, but that you are friends at this moment."
+> "I’d rather fight and regret it than not fight and regret it."
 
-&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
+&mdash; [**Reinhard von Lohengramm**](https://myanimelist.net/character.php?q=Reinhard%20von%20Lohengramm&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
