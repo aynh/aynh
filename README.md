@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because they saved me from myself, they rescued me from my loneliness. They were the first to accept me for who I am. They're my friends."
+> "That sort of thing happens all the time. You get drunk on your own “correctness,” and the more stubborn you get, the further happiness flies away from you. It’s a bitter pill to swallow."
 
-&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Junko Kaname**](https://myanimelist.net/character.php?q=Junko%20Kaname&cat=character), [**Puella Magi Madoka Magica**](https://myanimelist.net/search/all?q=Puella%20Magi%20Madoka%20Magica&cat=all)
