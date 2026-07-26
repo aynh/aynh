@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you can't give up one, learn to balance both at the same time. Why does it have to be all or nothing?"
+> "Don't you think it's futile to live in fear of death? I mean, everyone is going to die sometime, so is there any point in pretending not to see it for the present? Or instead, I wonder if they think it doesn't concern them, since they aren't going to die."
 
-&mdash; [**Kenji Yamaguchi**](https://myanimelist.net/character.php?q=Kenji%20Yamaguchi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Mary Macbeth**](https://myanimelist.net/character.php?q=Mary%20Macbeth&cat=character), [**Kekkai Sensen**](https://myanimelist.net/search/all?q=Kekkai%20Sensen&cat=all)
