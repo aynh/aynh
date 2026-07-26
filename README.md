@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I won't say you'll definitely be able to do it if you don't give up. But if you do give up, then there'll definitely be nothing."
+> "If you've decided that you can't do it even before you act, you have already made it into something impossible."
 
-&mdash; [**Daiki Aomine**](https://myanimelist.net/character.php?q=Daiki%20Aomine&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
