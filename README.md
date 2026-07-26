@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you've decided that you can't do it even before you act, you have already made it into something impossible."
+> "I don't know if you noticed, but you just called him 'Captain.'"
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
