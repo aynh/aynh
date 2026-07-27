@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What exactly would change if I wanted revenge, was consumed by hatred, or went insane with rage?"
+> "If I'm going to disappear no matter what, I at least want to leave them having fun and smiling."
 
-&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
+&mdash; [**Yoake Ryou**](https://myanimelist.net/character.php?q=Yoake%20Ryou&cat=character), [**ReLIFE**](https://myanimelist.net/search/all?q=ReLIFE&cat=all)
