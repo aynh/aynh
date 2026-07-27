@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not against socializing, so long as it's not tiring."
+> "Not fighting frantically for your life is all right, too. The important thing is… to decide on your own what you should do."
 
-&mdash; [**Oreki Houtarou**](https://myanimelist.net/character.php?q=Oreki%20Houtarou&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Hakuren Oak**](https://myanimelist.net/character.php?q=Hakuren%20Oak&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
