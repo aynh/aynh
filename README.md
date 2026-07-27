@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In my next life, I want to be me, and meet you again."
+> "Heroes always die due to unreasonable orders."
 
-&mdash; [**Gon Freecss**](https://myanimelist.net/character.php?q=Gon%20Freecss&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
+&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
