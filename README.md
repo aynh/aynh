@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past is the past. We cannot indulge ourselves in memories and destroy the present."
+> "We could drive them off the entire earth if we had your strength, Gintoki!"
 
-&mdash; [**Murata Ken**](https://myanimelist.net/character.php?q=Murata%20Ken&cat=character), [**Kyo kara Maoh!**](https://myanimelist.net/search/all?q=Kyo%20kara%20Maoh!&cat=all)
+&mdash; [**Kotarō Katsura**](https://myanimelist.net/character.php?q=Kotar%C5%8D%20Katsura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
