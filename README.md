@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not fighting frantically for your life is all right, too. The important thing is… to decide on your own what you should do."
+> "What exactly would change if I wanted revenge, was consumed by hatred, or went insane with rage?"
 
-&mdash; [**Hakuren Oak**](https://myanimelist.net/character.php?q=Hakuren%20Oak&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Yoshino Takigawa**](https://myanimelist.net/character.php?q=Yoshino%20Takigawa&cat=character), [**Zetsuen No Tempest**](https://myanimelist.net/search/all?q=Zetsuen%20No%20Tempest&cat=all)
