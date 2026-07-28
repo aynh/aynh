@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To become a monster like me, is to admit you were too weak to remain a human."
+> "This isn't divine jugdement. It's the work of some childish killer who's playing at divine retribution. That's all."
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
