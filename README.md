@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm as normal as they come and this is a contest of freaks! What do you want me to do, shoot my slingshot at him?"
+> "Even if other people think it’s meaningless, it’s disgusting for me to quit, even when the possibility is 0. Therefore, I will never... Give up !"
 
-&mdash; [**Maes Hughes**](https://myanimelist.net/character.php?q=Maes%20Hughes&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Tetsuya Kuroko**](https://myanimelist.net/character.php?q=Tetsuya%20Kuroko&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
