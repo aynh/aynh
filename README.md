@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nobody thinks they're cuter than others unless they're conceited."
+> "The longer one holds on to a memory, the longer one lives in the past. The deeper the memory they hold onto, the more beautiful the past will become. The beautiful memories will eventually turn into hate. Even if they look ahead, they lose the ability to walk. As long as the heavy chain called revenge continues to bind the heart, the tears of sadness will continue to flow."
 
-&mdash; [**Maki Nishikino**](https://myanimelist.net/character.php?q=Maki%20Nishikino&cat=character), [**Love Live! School idol project TV 2/2014**](https://myanimelist.net/search/all?q=Love%20Live!%20School%20idol%20project%20TV%202%2F2014&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
