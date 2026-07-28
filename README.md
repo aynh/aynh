@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This isn't divine jugdement. It's the work of some childish killer who's playing at divine retribution. That's all."
+> "Those who wallow in power are destroyed by it."
 
-&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Leon Sōryū**](https://myanimelist.net/character.php?q=Leon%20S%C5%8Dry%C5%AB&cat=character), [**Cardfight!! Vanguard**](https://myanimelist.net/search/all?q=Cardfight!!%20Vanguard&cat=all)
