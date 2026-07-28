@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever you fight from this point on, there is one thing you must never do. Which is...to die alone."
+> "To become a monster like me, is to admit you were too weak to remain a human."
 
-&mdash; [**Shiba Kaien**](https://myanimelist.net/character.php?q=Shiba%20Kaien&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
