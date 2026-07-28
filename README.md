@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Music isn't supposed to be something you do to show off your abilities to your rivals."
+> "I stole a death note."
 
-&mdash; [**Noboru Taki**](https://myanimelist.net/character.php?q=Noboru%20Taki&cat=character), [**Hibike! Euphonium**](https://myanimelist.net/search/all?q=Hibike!%20Euphonium&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
