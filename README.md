@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The worst part about being strong is that no one ever asks if you're ok."
+> "The real sin is averting your eyes and failing to believe in anyone."
 
-&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
