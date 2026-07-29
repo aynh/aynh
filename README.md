@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I work by myself. Only for Princess Tomoyo."
+> "Pride is an eminent trait, but too much will cause arrogance. That is when it becomes disgusting."
 
-&mdash; [**Kurogane**](https://myanimelist.net/character.php?q=Kurogane&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Duke Tōgō**](https://myanimelist.net/character.php?q=Duke%20T%C5%8Dg%C5%8D&cat=character), [**Golgo 13**](https://myanimelist.net/search/all?q=Golgo%2013&cat=all)
