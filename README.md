@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People can have lovers. They can have friends. They can be together. But when you think about it, you'll see that originally, we're alone."
+> "I work by myself. Only for Princess Tomoyo."
 
-&mdash; [**Nana Osaki**](https://myanimelist.net/character.php?q=Nana%20Osaki&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Kurogane**](https://myanimelist.net/character.php?q=Kurogane&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
