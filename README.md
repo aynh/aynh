@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pride is an eminent trait, but too much will cause arrogance. That is when it becomes disgusting."
+> "The loneliest people are the kindest. The saddest people smile the brightest. The most damaged people are the wisest. All because they don't wish to see anyone else suffer the way they did."
 
-&mdash; [**Duke Tōgō**](https://myanimelist.net/character.php?q=Duke%20T%C5%8Dg%C5%8D&cat=character), [**Golgo 13**](https://myanimelist.net/search/all?q=Golgo%2013&cat=all)
+&mdash; [**Jellal Fernandes**](https://myanimelist.net/character.php?q=Jellal%20Fernandes&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
