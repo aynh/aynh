@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Love is never without trials and tribulations--precisely because of that, there's bitterness. What do you think? The feelings from liking someone... cannot be satisfied by your own efforts alone. It's not the same as simple anger or sadness. One-sidedly declaring your feelings... this doesn't bring satisfaction. Only when the other person feels the same way... Only when two hearts love each other is fulfillment achieved."
+> "People can have lovers. They can have friends. They can be together. But when you think about it, you'll see that originally, we're alone."
 
-&mdash; [**Kamiya Kyousuke**](https://myanimelist.net/character.php?q=Kamiya%20Kyousuke&cat=character), [**Psycho Love Comedy**](https://myanimelist.net/search/all?q=Psycho%20Love%20Comedy&cat=all)
+&mdash; [**Nana Osaki**](https://myanimelist.net/character.php?q=Nana%20Osaki&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
