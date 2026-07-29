@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The loneliest people are the kindest. The saddest people smile the brightest. The most damaged people are the wisest. All because they don't wish to see anyone else suffer the way they did."
+> "The worst part about being strong is that no one ever asks if you're ok."
 
-&mdash; [**Jellal Fernandes**](https://myanimelist.net/character.php?q=Jellal%20Fernandes&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Accelerator**](https://myanimelist.net/character.php?q=Accelerator&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
