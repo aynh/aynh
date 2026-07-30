@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The phony peace that heroes create will dye people with evil. That's why I'm doing this. I will be the Count Devil that plunges humanity into terror! In a world with no room for survival, evil will disappear. And so will bullying, and discrimination, even war! What this world needs is not biased Justice but unbiased, absolute Evil! I'm fighting for world peace. No justice will be able to overthrow me. I will be stronger than anyone! I will be an absolute MONSTER!"
+> "You sure can talk the talk, but you're not quite ready to walk the walk. Time's up, it's my turn."
 
-&mdash; [**Garou**](https://myanimelist.net/character.php?q=Garou&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
