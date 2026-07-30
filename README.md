@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The real sin is averting your eyes and failing to believe in anyone."
+> "I'm going to evaporate every molecule this scumbag is made out of!"
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Kaze no Stigma**](https://myanimelist.net/character.php?q=Kaze%20no%20Stigma&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
