@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you've forgotten death... then you've forgotten what it truly means to be alive."
+> "All things change in a dynamic environment. Your effort to remain what you are is what limits you."
 
-&mdash; [**Casshern**](https://myanimelist.net/character.php?q=Casshern&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
+&mdash; [**Puppet Master**](https://myanimelist.net/character.php?q=Puppet%20Master&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
