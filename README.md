@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[aiming at a small prey animal] You're awfully cute, but unfortunately for you, you're made of meat."
+> "When I say it doesn't hurt me, that means I can bear it."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Killua Zoldyck**](https://myanimelist.net/character.php?q=Killua%20Zoldyck&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
