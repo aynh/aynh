@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Somebody's a little light on his feet. What's your fighting name, the Fancy Dancer?"
+> "The phony peace that heroes create will dye people with evil. That's why I'm doing this. I will be the Count Devil that plunges humanity into terror! In a world with no room for survival, evil will disappear. And so will bullying, and discrimination, even war! What this world needs is not biased Justice but unbiased, absolute Evil! I'm fighting for world peace. No justice will be able to overthrow me. I will be stronger than anyone! I will be an absolute MONSTER!"
 
-&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Garou**](https://myanimelist.net/character.php?q=Garou&cat=character), [**One Punch Man**](https://myanimelist.net/search/all?q=One%20Punch%20Man&cat=all)
