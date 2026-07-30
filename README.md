@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You sure can talk the talk, but you're not quite ready to walk the walk. Time's up, it's my turn."
+> "Ugly?! Who you callin' ugly?! C'mere you mouse!"
 
-&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
