@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm going to evaporate every molecule this scumbag is made out of!"
+> "If you've forgotten death... then you've forgotten what it truly means to be alive."
 
-&mdash; [**Kaze no Stigma**](https://myanimelist.net/character.php?q=Kaze%20no%20Stigma&cat=character), [**Kaze no Stigma**](https://myanimelist.net/search/all?q=Kaze%20no%20Stigma&cat=all)
+&mdash; [**Casshern**](https://myanimelist.net/character.php?q=Casshern&cat=character), [**Casshern Sins**](https://myanimelist.net/search/all?q=Casshern%20Sins&cat=all)
