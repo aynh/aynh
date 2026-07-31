@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You'll have some painful, despair-ridden experiences. In fact, most of them will be tragic. But we chose to walk this path. We'll take on the dirty work. And change the world. After we finish, we can disappear."
+> "When you fall in love with someone, you want everything from them. Its only natural to feel that way... but real love can only happen when you want what's best for the other person and never ask for anything in return."
 
-&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
+&mdash; [**Nobuo Terashima**](https://myanimelist.net/character.php?q=Nobuo%20Terashima&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
