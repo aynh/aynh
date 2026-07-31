@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forget all that formal crap 'bout comin' at me one at a time. I'll take all you bitches on!"
+> "The length of time you've been in love isn't the only thing that matters, right?"
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
