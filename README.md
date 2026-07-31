@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Time waits for no one."
+> "I would no longer fight against my feelings because I realized how useless and ineffective it was to fight them."
 
-&mdash; [**The Girl Who Leapt Through Time**](https://myanimelist.net/character.php?q=The%20Girl%20Who%20Leapt%20Through%20Time&cat=character), [**The Girl Who Leapt Through Time**](https://myanimelist.net/search/all?q=The%20Girl%20Who%20Leapt%20Through%20Time&cat=all)
+&mdash; [**Kyoko Mogami**](https://myanimelist.net/character.php?q=Kyoko%20Mogami&cat=character), [**Skip Beat!**](https://myanimelist.net/search/all?q=Skip%20Beat!&cat=all)
