@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The length of time you've been in love isn't the only thing that matters, right?"
+> "You'll have some painful, despair-ridden experiences. In fact, most of them will be tragic. But we chose to walk this path. We'll take on the dirty work. And change the world. After we finish, we can disappear."
 
-&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Bulat**](https://myanimelist.net/character.php?q=Bulat&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
