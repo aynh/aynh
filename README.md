@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Aang, who is playing around] Stop! Stop it right now! What's wrong with you? We don't have time for fun and games with the war going on."
+> "What is Living? Living is continuing to make choices. Living is enjoying oneself. Living is continuing to make choices. Living is expressing one’s will. Living is enjoying oneself. Living is continuing to search. Living is eating. Living is continuing to fight. Living is being lost. Living is preparing oneself."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Devil Survivor 2**](https://myanimelist.net/character.php?q=Devil%20Survivor%202&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
