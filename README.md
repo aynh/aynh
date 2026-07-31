@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is Living? Living is continuing to make choices. Living is enjoying oneself. Living is continuing to make choices. Living is expressing one’s will. Living is enjoying oneself. Living is continuing to search. Living is eating. Living is continuing to fight. Living is being lost. Living is preparing oneself."
+> "Love. I myself have never loved another person.  Most likely, I don't even love myself.  I do have knowledge of it.  But I am incapable of determining whether or not it is vital in my life."
 
-&mdash; [**Devil Survivor 2**](https://myanimelist.net/character.php?q=Devil%20Survivor%202&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Vorona**](https://myanimelist.net/character.php?q=Vorona&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
