@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Unfortunately, a psychotic virgin, starved for love and likely to fall for anyone who would be a little nice to her, has set eyes on you."
+> "Even when you want to say something, there are times when you'll lose the chance to."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Tateyama Ayano**](https://myanimelist.net/character.php?q=Tateyama%20Ayano&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
