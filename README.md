@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Agh, it penetrates my brain!"
+> "Unfortunately, a psychotic virgin, starved for love and likely to fall for anyone who would be a little nice to her, has set eyes on you."
 
-&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
