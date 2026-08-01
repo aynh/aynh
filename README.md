@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even when you want to say something, there are times when you'll lose the chance to."
+> "In this world, there is only good and evil, that was the first universal truths I grasped from observing the world around me when I was a child. Every human being without exception ends up falling into one category or the other."
 
-&mdash; [**Tateyama Ayano**](https://myanimelist.net/character.php?q=Tateyama%20Ayano&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Mikami Teru**](https://myanimelist.net/character.php?q=Mikami%20Teru&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
