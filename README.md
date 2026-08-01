@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Heaven is a six-tatami, one room, second floor apartment on Earth. Being a NEET is the best."
+> "Is there truly any human who is not arrogant?"
 
-&mdash; [**Urushihara Hanzou**](https://myanimelist.net/character.php?q=Urushihara%20Hanzou&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
