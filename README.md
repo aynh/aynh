@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Last words] All right then, I'll put you out of your misery. [Her hands are sliced off] Eh?"
+> "We would not have met, and the flowers will protect you. Kiba, because you protected this one, the flowers will return and bloom once more. So when the world is reborn, and Paradise opens, we will meet again. This one will be waiting for you. Find this one. And this time, the Paradise you hoped for will be..."
 
-&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Cheza**](https://myanimelist.net/character.php?q=Cheza&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
