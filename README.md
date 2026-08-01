@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there is only good and evil, that was the first universal truths I grasped from observing the world around me when I was a child. Every human being without exception ends up falling into one category or the other."
+> "Heaven is a six-tatami, one room, second floor apartment on Earth. Being a NEET is the best."
 
-&mdash; [**Mikami Teru**](https://myanimelist.net/character.php?q=Mikami%20Teru&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Urushihara Hanzou**](https://myanimelist.net/character.php?q=Urushihara%20Hanzou&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
