@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I try to deny my past, I'm denying the person I've become. I don't want to do that."
+> "If you see a girl lookin' unhappy, be a man and help her."
 
-&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Wave**](https://myanimelist.net/character.php?q=Wave&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
