@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There won't be any pain if you don't do anything stupid."
+> "Agh, it penetrates my brain!"
 
-&mdash; [**Himeko Inaba**](https://myanimelist.net/character.php?q=Himeko%20Inaba&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
