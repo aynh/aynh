@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is there truly any human who is not arrogant?"
+> "[Last words] All right then, I'll put you out of your misery. [Her hands are sliced off] Eh?"
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
