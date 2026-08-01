@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We would not have met, and the flowers will protect you. Kiba, because you protected this one, the flowers will return and bloom once more. So when the world is reborn, and Paradise opens, we will meet again. This one will be waiting for you. Find this one. And this time, the Paradise you hoped for will be..."
+> "As long as one person still lives...it shall be proof eternal that mankind ever existed."
 
-&mdash; [**Cheza**](https://myanimelist.net/character.php?q=Cheza&cat=character), [**Wolf's Rain**](https://myanimelist.net/search/all?q=Wolf's%20Rain&cat=all)
+&mdash; [**Yui Ikari**](https://myanimelist.net/character.php?q=Yui%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
