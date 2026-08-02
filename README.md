@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't know what to say. Now, I think it's just best to observe closely."
+> "The ordinary days that we live in may, in fact, be a series of miracles."
 
-&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Koujirou Sasahara**](https://myanimelist.net/character.php?q=Koujirou%20Sasahara&cat=character), [**Nichijou**](https://myanimelist.net/search/all?q=Nichijou&cat=all)
