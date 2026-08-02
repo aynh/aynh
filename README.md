@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm an arms dealer anyway. There's no point in fearing what I sell."
+> "Did you know? The world is full of hate and there isn't any reason for it?"
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Anemone**](https://myanimelist.net/character.php?q=Anemone&cat=character), [**Eureka Seven**](https://myanimelist.net/search/all?q=Eureka%20Seven&cat=all)
