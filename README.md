@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When I look at their kind smiles and thought that I was supposed to be there smiling too... I couldn't stop crying. It hurt so much that I wanted to forget."
+> "Every one of us must do what's in their power! If we're going to die anyway, then it's better to die fighting than to do nothing!"
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
