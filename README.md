@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Some memories... aren't meant to leave traces."
+> "If you have faith, your dreams will surely come true."
 
-&mdash; [**Alphonse Elric**](https://myanimelist.net/character.php?q=Alphonse%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Katsura Kotarou**](https://myanimelist.net/character.php?q=Katsura%20Kotarou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
