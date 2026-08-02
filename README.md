@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every one of us must do what's in their power! If we're going to die anyway, then it's better to die fighting than to do nothing!"
+> "You have the strongest armour, because you are the weakest!"
 
-&mdash; [**Sakura Haruno**](https://myanimelist.net/character.php?q=Sakura%20Haruno&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
