@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every sword belongs in its sheath. Go back to the sheath your master holds. Go back to Griffith."
+> "People who want to leave are going to leave. But not everyone is like that."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Yoshihisa Manabe**](https://myanimelist.net/character.php?q=Yoshihisa%20Manabe&cat=character), [**Kotoura-san**](https://myanimelist.net/search/all?q=Kotoura-san&cat=all)
