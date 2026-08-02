@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's when things are tough that you have to keep your head up high. You won't find hope lying on the ground."
+> "I don't know what to say. Now, I think it's just best to observe closely."
 
-&mdash; [**Inspector Sayama**](https://myanimelist.net/character.php?q=Inspector%20Sayama&cat=character), [**Zetman**](https://myanimelist.net/search/all?q=Zetman&cat=all)
+&mdash; [**Near**](https://myanimelist.net/character.php?q=Near&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
