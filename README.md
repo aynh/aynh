@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as one person still lives...it shall be proof eternal that mankind ever existed."
+> "Everyone has something they like, something they have to do, or something they want to do."
 
-&mdash; [**Yui Ikari**](https://myanimelist.net/character.php?q=Yui%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Yutaka Hasebe**](https://myanimelist.net/character.php?q=Yutaka%20Hasebe&cat=character), [**Servant X Service**](https://myanimelist.net/search/all?q=Servant%20X%20Service&cat=all)
