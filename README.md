@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has something they like, something they have to do, or something they want to do."
+> "I'm an arms dealer anyway. There's no point in fearing what I sell."
 
-&mdash; [**Yutaka Hasebe**](https://myanimelist.net/character.php?q=Yutaka%20Hasebe&cat=character), [**Servant X Service**](https://myanimelist.net/search/all?q=Servant%20X%20Service&cat=all)
+&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
