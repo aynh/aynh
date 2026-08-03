@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not afraid of the times I can't see him. When I feel pain in my chest, my song grows... The scenery feels closer. The next time I see you... I will, once again, fall in love."
+> "Nature itself is absurd. Humans are the only ones who whine about it."
 
-&mdash; [**Nike Lemercier**](https://myanimelist.net/character.php?q=Nike%20Lemercier&cat=character), [**The World Is Still Beautiful**](https://myanimelist.net/search/all?q=The%20World%20Is%20Still%20Beautiful&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
