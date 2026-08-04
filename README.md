@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yeah I lied; so what is the truth? Underneath the band-aid?"
+> "Accident or amnesia, you can't rewind your life and start again. If you struggle, you'll just hurt yourself, and the people around you."
 
-&mdash; [**Haruko Haruhara**](https://myanimelist.net/character.php?q=Haruko%20Haruhara&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
