@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The ones who accomplish something are the fools who keep pressing onward. The ones who accomplish nothing are the wise who cease advancing."
+> "Yeah I lied; so what is the truth? Underneath the band-aid?"
 
-&mdash; [**Celica Arfonia**](https://myanimelist.net/character.php?q=Celica%20Arfonia&cat=character), [**Rokudenashi Majutsu Koushi to Akashic Records**](https://myanimelist.net/search/all?q=Rokudenashi%20Majutsu%20Koushi%20to%20Akashic%20Records&cat=all)
+&mdash; [**Haruko Haruhara**](https://myanimelist.net/character.php?q=Haruko%20Haruhara&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
