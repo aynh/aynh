@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The beginning of a story is a sudden event; the start, a happy accident, the end, the fate for which it's meant. A story that never ends is a sad fate."
+> "When you build something, you must be ready to spend time and money on failure. The best materials won't always yield the best results. However, if you build something by improving on failure, you'll end up with good results."
 
-&mdash; [**Edel**](https://myanimelist.net/character.php?q=Edel&cat=character), [**Princess Tutu**](https://myanimelist.net/search/all?q=Princess%20Tutu&cat=all)
+&mdash; [**Mutta Namba**](https://myanimelist.net/character.php?q=Mutta%20Namba&cat=character), [**Uchuu Kyoudai**](https://myanimelist.net/search/all?q=Uchuu%20Kyoudai&cat=all)
