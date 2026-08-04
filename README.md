@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say people can change, but is that really true? If they decide they want to fly, will they grow wings? I don't think so. You don't change yourself, you change how you do things. You have to make your own way. You have to create a way to fly, even while you stay the same."
+> "Perhaps living without sin is a sin in itself."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Furude Rika**](https://myanimelist.net/character.php?q=Furude%20Rika&cat=character), [**Higurashi No Naku Koro Ni**](https://myanimelist.net/search/all?q=Higurashi%20No%20Naku%20Koro%20Ni&cat=all)
