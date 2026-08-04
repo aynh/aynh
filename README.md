@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Accident or amnesia, you can't rewind your life and start again. If you struggle, you'll just hurt yourself, and the people around you."
+> "That is why I prefer using you two pistols. There is symmetry to wielding you two, right? (Getting aggravated) But when you two are in human form, your hairstyles and your heights are completely different... (Grabs their breasts) Even your cup sizes are completely different!"
 
-&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
