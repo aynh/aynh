@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That is why I prefer using you two pistols. There is symmetry to wielding you two, right? (Getting aggravated) But when you two are in human form, your hairstyles and your heights are completely different... (Grabs their breasts) Even your cup sizes are completely different!"
+> "Nothing in this world is free. Be thankful to those who speak strict word to you. Watch out for a person who talks too nicely."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Yūsei Fudō**](https://myanimelist.net/character.php?q=Y%C5%ABsei%20Fud%C5%8D&cat=character), [**Yu-Gi-Oh 5Ds**](https://myanimelist.net/search/all?q=Yu-Gi-Oh%205Ds&cat=all)
