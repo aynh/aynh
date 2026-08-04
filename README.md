@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To enjoy my youth properly. She might've been talking about something like this. To live without thinking about consequences or what's around me with all my strength. That's what it was about..."
+> "The ones who accomplish something are the fools who keep pressing onward. The ones who accomplish nothing are the wise who cease advancing."
 
-&mdash; [**Maiko Shuu**](https://myanimelist.net/character.php?q=Maiko%20Shuu&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Celica Arfonia**](https://myanimelist.net/character.php?q=Celica%20Arfonia&cat=character), [**Rokudenashi Majutsu Koushi to Akashic Records**](https://myanimelist.net/search/all?q=Rokudenashi%20Majutsu%20Koushi%20to%20Akashic%20Records&cat=all)
