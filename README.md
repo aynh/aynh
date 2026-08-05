@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The more painful the memories one recollects, the better the laughter."
+> "Ah, my most ugly heart. I hate, hate, hate it, so I can’t help but sneer all the time."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Kano Shuuya**](https://myanimelist.net/character.php?q=Kano%20Shuuya&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
