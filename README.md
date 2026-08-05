@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It doesn't hurt! It's not hot! I'm not scared! I will not be beaten!"
+> "Your so called 'hope' is to throw the past into despair?"
 
-&mdash; [**Maka Albarn**](https://myanimelist.net/character.php?q=Maka%20Albarn&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
