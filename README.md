@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can never tell a good seed from a bad seed until it blossoms."
+> "The more painful the memories one recollects, the better the laughter."
 
-&mdash; [**Labrador**](https://myanimelist.net/character.php?q=Labrador&cat=character), [**07 Ghost**](https://myanimelist.net/search/all?q=07%20Ghost&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
