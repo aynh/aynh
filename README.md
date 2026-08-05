@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The result is the most important thing."
+> "Have you been out on the window ledge all this time, in plain sight? What if the neighbors report a silver haired elementary student burglar?"
 
-&mdash; [**Emiya Kiritsugu**](https://myanimelist.net/character.php?q=Emiya%20Kiritsugu&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Abarai Renji**](https://myanimelist.net/character.php?q=Abarai%20Renji&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
