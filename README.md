@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing in this world is free. Be thankful to those who speak strict word to you. Watch out for a person who talks too nicely."
+> "There are things people can't accept, even if they do understand them."
 
-&mdash; [**Yūsei Fudō**](https://myanimelist.net/character.php?q=Y%C5%ABsei%20Fud%C5%8D&cat=character), [**Yu-Gi-Oh 5Ds**](https://myanimelist.net/search/all?q=Yu-Gi-Oh%205Ds&cat=all)
+&mdash; [**Athrun Zala**](https://myanimelist.net/character.php?q=Athrun%20Zala&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
