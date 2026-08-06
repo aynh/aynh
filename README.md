@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He's just...he's still a child. There are still a lot of things he can't give up. There's no rush. (To Ayame about Yuki)"
+> "Are you a coward...OR ARE YOU A MAN OF AMERICA?!"
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Tao Len**](https://myanimelist.net/character.php?q=Tao%20Len&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
