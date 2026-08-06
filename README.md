@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Mayuri Kurotsuchi] It's a good thing Orihime isn't here. I wouldn't want her to see what I'm about to do to you."
+> "I'm the smartest member in the Straw Hat group."
 
-&mdash; [**Uryuu Ishida**](https://myanimelist.net/character.php?q=Uryuu%20Ishida&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Nami**](https://myanimelist.net/character.php?q=Nami&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
