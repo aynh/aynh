@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My legend dates back to the 12th Century you see. My legend is quite old. The 12th Century was a long time ago."
+> "The peaceful world I'm fighting for is one where everyone has a smile on their face, not one where I have to pretend I didn't see you make my friend cry. I don't think that kind of peace is worth fighting for. And I don't think it's worth making sacrifices to achieve it."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Emi Yusa**](https://myanimelist.net/character.php?q=Emi%20Yusa&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
