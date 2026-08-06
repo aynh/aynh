@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm an arms dealer anyway. There's no point in fearing what I sell."
+> "He's just...he's still a child. There are still a lot of things he can't give up. There's no rush. (To Ayame about Yuki)"
 
-&mdash; [**Koko Hekmatyar**](https://myanimelist.net/character.php?q=Koko%20Hekmatyar&cat=character), [**Jormungand**](https://myanimelist.net/search/all?q=Jormungand&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
