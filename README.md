@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you don’t have the resolve to take responsibility for her until the very end, then don’t do anything unnecessary."
+> "You asked me if I was ready to carry on. In all honesty, I am not sure of myself. But there is something that must be done now. And I will do it."
 
-&mdash; [**Itami Youji**](https://myanimelist.net/character.php?q=Itami%20Youji&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Bishamonten**](https://myanimelist.net/character.php?q=Bishamonten&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
