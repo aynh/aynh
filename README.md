@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It pisses me off... Like a knife, he violates me even through my ears."
+> "Being unable to trust anything is the same as being unable to sense other people's love."
 
-&mdash; [**Misaki Takahashi**](https://myanimelist.net/character.php?q=Misaki%20Takahashi&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
+&mdash; [**Yoshino Yūsuke**](https://myanimelist.net/character.php?q=Yoshino%20Y%C5%ABsuke&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
