@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A light comes out of the darkness. A heart that makes a flower bloom in the wilderness journeys through the sky. Music changes the world."
+> "No guy is worth your tears. When you find one that is, he won't make you cry."
 
-&mdash; [**Haruka Nanami**](https://myanimelist.net/character.php?q=Haruka%20Nanami&cat=character), [**Uta no Prince-sama**](https://myanimelist.net/search/all?q=Uta%20no%20Prince-sama&cat=all)
+&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
