@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We each have an arrow in our hearts that we cannot remove."
+> "What about when you reciprocate someone else’s emotions? Is that still coming from you… or is the air connecting you to one another?"
 
-&mdash; [**Sehara**](https://myanimelist.net/character.php?q=Sehara&cat=character), [**One thousand and one nights**](https://myanimelist.net/search/all?q=One%20thousand%20and%20one%20nights&cat=all)
+&mdash; [**Jinno Yuu**](https://myanimelist.net/character.php?q=Jinno%20Yuu&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
