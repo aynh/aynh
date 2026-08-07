@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You'll discover that problems have a way of working themselves out if you talk to your friends."
+> "It pisses me off... Like a knife, he violates me even through my ears."
 
-&mdash; [**Ryuuzen Gotou**](https://myanimelist.net/character.php?q=Ryuuzen%20Gotou&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Misaki Takahashi**](https://myanimelist.net/character.php?q=Misaki%20Takahashi&cat=character), [**Junjou Romantica**](https://myanimelist.net/search/all?q=Junjou%20Romantica&cat=all)
