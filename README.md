@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A day when everything is perfect, when everything will turn into memories, will eventually come.  But I'll probably remember over and over again you were there and everyone else was there. The day we all searched for just one thing."
+> "Don't go thinking you're my rival, you circus freak!"
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
