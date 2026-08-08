@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone has a past they wish to erase."
+> "Learn to treasure your life because unfortunately, it can be taken away from you anytime."
 
-&mdash; [**Kaoru Kamiya**](https://myanimelist.net/character.php?q=Kaoru%20Kamiya&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
