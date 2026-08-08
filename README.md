@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you have any idea how stupid we are? Don't underestimate us!!!"
+> "It's interesting, isn't it? The way that when someone expresses something, someone else always shows up to interpret it."
 
-&mdash; [**Gintama**](https://myanimelist.net/character.php?q=Gintama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
