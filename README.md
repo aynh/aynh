@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's interesting, isn't it? The way that when someone expresses something, someone else always shows up to interpret it."
+> "I love chocolates."
 
-&mdash; [**Kino**](https://myanimelist.net/character.php?q=Kino&cat=character), [**Kino No Tabi**](https://myanimelist.net/search/all?q=Kino%20No%20Tabi&cat=all)
+&mdash; [**Mello**](https://myanimelist.net/character.php?q=Mello&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
