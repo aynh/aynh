@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As a cool guy, I'm used to seeing naked women."
+> "My soul wave length just got taken away. I'm gonna miss it."
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
