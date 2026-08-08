@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "She should want to see me. If I had said how I feel about her, she would miss me even more. All this time, I've been breaking her heart by keeping her wait, yet I can't still appear before her eyes. I never want to see her cry anymore. Even if it means I no longer exist in her heart. How immature of me, right?"
+> "Do you have any idea how stupid we are? Don't underestimate us!!!"
 
-&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Gintama**](https://myanimelist.net/character.php?q=Gintama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
