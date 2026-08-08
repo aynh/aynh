@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A sword is a weapon. The art of swordsmanship is learning how to kill. What Miss Kaoru says is nothing but sweet and innocent talk, only those whose hands have never been stained with the blood of man can believe."
+> "A day when everything is perfect, when everything will turn into memories, will eventually come.  But I'll probably remember over and over again you were there and everyone else was there. The day we all searched for just one thing."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
