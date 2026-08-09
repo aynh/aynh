@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are you talking about, Ryu?! That's no damsel, that's a dude!"
+> "Neutral Jing is the key to earthbending. It involves listening and waiting for the right moment to strike."
 
-&mdash; [**Horohoro**](https://myanimelist.net/character.php?q=Horohoro&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
