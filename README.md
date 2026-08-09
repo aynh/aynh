@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Trying without the winning intent is meaningless."
+> "What are you talking about, Ryu?! That's no damsel, that's a dude!"
 
-&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
+&mdash; [**Horohoro**](https://myanimelist.net/character.php?q=Horohoro&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
