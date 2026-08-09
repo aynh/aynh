@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what troubles you shoulder, remember that in time, things will change. You shouldn't blame yourself when things don't go your way."
+> "By the way, Araragi-kun... I've never broken up with a man before. Hence, I won't be breaking up with you either."
 
-&mdash; [**Mitsuki Sarue**](https://myanimelist.net/character.php?q=Mitsuki%20Sarue&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
