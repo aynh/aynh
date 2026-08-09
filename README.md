@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[in reply to Shunsui Kyōraku] It's true, I know nothing about her (Rukia). It might not be quite enough for me to risk my own life over. But...Ichigo wants to save her. That reason is enough for me."
+> "Hijikata-san. I forgot my flute at the headquarters, so I'm gonna go back and get it real quick."
 
-&mdash; [**Yasutora Sado**](https://myanimelist.net/character.php?q=Yasutora%20Sado&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
