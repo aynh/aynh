@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Every time I deal with another person, I’m reminded how little control I have over my life."
+> "Your own path is for you to find out on your own."
 
-&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Subaru**](https://myanimelist.net/character.php?q=Subaru&cat=character), [**.hack//SIGN**](https://myanimelist.net/search/all?q=.hack%2F%2FSIGN&cat=all)
