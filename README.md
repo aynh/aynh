@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What are you smoking? Don't you see how cool I am? You think I'm going to settle for a flat chested girl like her?"
+> "My hands can cultivate the earth. They can plant trees and sow seeds. They can even carry the manager. But will I ever be able to make her smile like that?"
 
-&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ryōsuke Hazuki**](https://myanimelist.net/character.php?q=Ry%C5%8Dsuke%20Hazuki&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
