@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hijikata-san. I forgot my flute at the headquarters, so I'm gonna go back and get it real quick."
+> "Sorry, a trick is nothing but a puzzle mankind came up with. If you use your head, you can uncover the logical answer. It’s disappointing. No matter the explanation I think of, I cannot understand why one person would kill another. Even if I can see why, I can’t understand why."
 
-&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Shinichi Kudou**](https://myanimelist.net/character.php?q=Shinichi%20Kudou&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
