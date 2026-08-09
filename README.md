@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A name has nothing to do with loving someone."
+> "No matter what troubles you shoulder, remember that in time, things will change. You shouldn't blame yourself when things don't go your way."
 
-&mdash; [**Seiji Yagiri**](https://myanimelist.net/character.php?q=Seiji%20Yagiri&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Mitsuki Sarue**](https://myanimelist.net/character.php?q=Mitsuki%20Sarue&cat=character), [**Hataraku Maou-sama!**](https://myanimelist.net/search/all?q=Hataraku%20Maou-sama!&cat=all)
