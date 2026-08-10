@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Can we really be proud of our own survival that's predicated on sacrificing our own? There lives aren't all we lose."
+> "You’re the spore of a flower. You’ll be going on a trip, taken away by the wind. To go to new places and meet new people. You shouldn’t always rely on your sister. Even if you’re apart, your bonds still remain. That’s what family is."
 
-&mdash; [**Ikoma**](https://myanimelist.net/character.php?q=Ikoma&cat=character), [**Koutetsujou no Kabaneri**](https://myanimelist.net/search/all?q=Koutetsujou%20no%20Kabaneri&cat=all)
+&mdash; [**Sunohara Youhei**](https://myanimelist.net/character.php?q=Sunohara%20Youhei&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
