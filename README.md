@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You never appreciate the irreplaceable things in life until they're gone. Like summer vacation... or brothers."
+> "Every living person is bound to have embarrassing memories and things that they want to keep secret."
 
-&mdash; [**Umaru Doma**](https://myanimelist.net/character.php?q=Umaru%20Doma&cat=character), [**Himouto! Umaru-chan**](https://myanimelist.net/search/all?q=Himouto!%20Umaru-chan&cat=all)
+&mdash; [**Monokuma**](https://myanimelist.net/character.php?q=Monokuma&cat=character), [**Danganronpa: Kibou No Gakuen To Zetsubou No Koukousei**](https://myanimelist.net/search/all?q=Danganronpa%3A%20Kibou%20No%20Gakuen%20To%20Zetsubou%20No%20Koukousei&cat=all)
