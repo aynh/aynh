@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I wonder why it is, that people fall in love with others? I think that to seek out love even when you already have a nice family is being greedy. No matter how much you like another person, you can never be with that person forever... But I dislike that. I don't care if I have to throw away everything else. I just want you to look at me."
+> "Come on now. Is that anyway to talk to your new boss, landlord, and all-around overseer?"
 
-&mdash; [**Aiko Tanaka**](https://myanimelist.net/character.php?q=Aiko%20Tanaka&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
