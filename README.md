@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My hands can cultivate the earth. They can plant trees and sow seeds. They can even carry the manager. But will I ever be able to make her smile like that?"
+> "In fairy tales, when the protagonists end up in a different world, they do their best to get back home, right? But who would want to go back to a world like that?"
 
-&mdash; [**Ryōsuke Hazuki**](https://myanimelist.net/character.php?q=Ry%C5%8Dsuke%20Hazuki&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
