@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I...think that my performance today was a success because he played opposite me. Kyo-kun...Thank you. (To Kazuma)"
+> "Why is it that the beautiful things are entwined more deeply with death than with life?"
 
-&mdash; [**Saki Hanajima**](https://myanimelist.net/character.php?q=Saki%20Hanajima&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
