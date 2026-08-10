@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Come on now. Is that anyway to talk to your new boss, landlord, and all-around overseer?"
+> "I wanted to be saved too..."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
