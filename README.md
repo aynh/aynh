@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are you looking at the stars?.. In the middle of the city? Even though the only stars you can see from here are fake?"
+> "You never appreciate the irreplaceable things in life until they're gone. Like summer vacation... or brothers."
 
-&mdash; [**Shinoda Chiaki**](https://myanimelist.net/character.php?q=Shinoda%20Chiaki&cat=character), [**Darker than Black**](https://myanimelist.net/search/all?q=Darker%20than%20Black&cat=all)
+&mdash; [**Umaru Doma**](https://myanimelist.net/character.php?q=Umaru%20Doma&cat=character), [**Himouto! Umaru-chan**](https://myanimelist.net/search/all?q=Himouto!%20Umaru-chan&cat=all)
