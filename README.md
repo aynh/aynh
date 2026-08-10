@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People... are not born equal. That's the hard truth I learned at age four. But that... was my first and last setback."
+> "I wonder why it is, that people fall in love with others? I think that to seek out love even when you already have a nice family is being greedy. No matter how much you like another person, you can never be with that person forever... But I dislike that. I don't care if I have to throw away everything else. I just want you to look at me."
 
-&mdash; [**Midoriya Izuku**](https://myanimelist.net/character.php?q=Midoriya%20Izuku&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
+&mdash; [**Aiko Tanaka**](https://myanimelist.net/character.php?q=Aiko%20Tanaka&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
