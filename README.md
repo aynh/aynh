@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why is it that the beautiful things are entwined more deeply with death than with life?"
+> "Are you looking at the stars?.. In the middle of the city? Even though the only stars you can see from here are fake?"
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Shinoda Chiaki**](https://myanimelist.net/character.php?q=Shinoda%20Chiaki&cat=character), [**Darker than Black**](https://myanimelist.net/search/all?q=Darker%20than%20Black&cat=all)
