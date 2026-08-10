@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In fairy tales, when the protagonists end up in a different world, they do their best to get back home, right? But who would want to go back to a world like that?"
+> "They've been exposed to the outside world, up close and personal. They've had that fear planted in them. And they've endured it. Overcome it. Each has grown from that experience... and forgotten how to hesitate."
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Eraserhead**](https://myanimelist.net/character.php?q=Eraserhead&cat=character), [**Boku no Hero Academia**](https://myanimelist.net/search/all?q=Boku%20no%20Hero%20Academia&cat=all)
