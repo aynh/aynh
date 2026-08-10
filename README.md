@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate the fox, but the boy - I don't hate the boy."
+> "Entire civilizations were built and destroyed between now and the last time you said 'we'll go soon'! I'll have rotted and turned to ash by the time this 'soon' of yours comes!!"
 
-&mdash; [**Iruka Umino**](https://myanimelist.net/character.php?q=Iruka%20Umino&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
