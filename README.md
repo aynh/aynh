@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Entire civilizations were built and destroyed between now and the last time you said 'we'll go soon'! I'll have rotted and turned to ash by the time this 'soon' of yours comes!!"
+> "When you trust someone and get to know them, you eventually learn about their wounds too."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Mei Tachibana**](https://myanimelist.net/character.php?q=Mei%20Tachibana&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
