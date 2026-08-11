@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you trust someone and get to know them, you eventually learn about their wounds too."
+> "As long as you live things will keep happening! As long as you're alive wishes will keep being made!"
 
-&mdash; [**Mei Tachibana**](https://myanimelist.net/character.php?q=Mei%20Tachibana&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
+&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
