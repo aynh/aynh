@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If another me was born somewhere else, and had led a different life, how would he feel? If there was another version of myself somewhere on the other side of the ocean, what would happen if I were able to meet him? Would I be able to be his friend? Or would the differences in our upbringing be something that I couldn't overcome? Can I understand him because he is me? Or will he be impossible to understand because he's me?"
+> "This world is rotten and those who are making it rot deserve to die. Someone has to do it, so why not me? Even if it means sacrificing my own mind and soul, it's worth it. Because the world... can't go on like this. I wonder... what if someone else had picked up this notebook? Is there anyone out there other than me who'd be willing to eliminate the vermin from the world? If I don't do it, then who will? That's just it: there's no one, but I can do it. In fact, I'm the only one who can. I'll do it. Using the death note, I'll change the world."
 
-&mdash; [**Tooru Kazasumi**](https://myanimelist.net/character.php?q=Tooru%20Kazasumi&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
+&mdash; [**Light Yagami**](https://myanimelist.net/character.php?q=Light%20Yagami&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
