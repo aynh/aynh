@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Tears and rain, fall down on my face, my body is unable to stay yet my heart is unwilling to leave."
+> "You make a fine octopus, Pupil Aang."
 
-&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Katara**](https://myanimelist.net/character.php?q=Katara&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
