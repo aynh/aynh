@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one could understand the fear of walking alone in this unstable world."
+> "Is dying that scary to you?"
 
-&mdash; [**Natsume Takeshi**](https://myanimelist.net/character.php?q=Natsume%20Takeshi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Minato Arisato**](https://myanimelist.net/character.php?q=Minato%20Arisato&cat=character), [**Persona 3 The Movie #1 Spring of Birth**](https://myanimelist.net/search/all?q=Persona%203%20The%20Movie%20%231%20Spring%20of%20Birth&cat=all)
