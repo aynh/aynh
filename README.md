@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Last words to Hashirama] As comrades, huh... well... if that's how... we... will.... *smiles*"
+> "Tell me, how does it feel to live in a constant haze of stupidity?"
 
-&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
