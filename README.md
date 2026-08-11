@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Humans are things that don't know the true value of something precious until they lose it...and if somehow, they get that precious thing back, they'll forget its value again."
+> "Destiny is what you create with your own will."
 
-&mdash; [**Midou Ban**](https://myanimelist.net/character.php?q=Midou%20Ban&cat=character), [**Getbackers**](https://myanimelist.net/search/all?q=Getbackers&cat=all)
+&mdash; [**Shinguji Sakura**](https://myanimelist.net/character.php?q=Shinguji%20Sakura&cat=character), [**Sakura Taisen**](https://myanimelist.net/search/all?q=Sakura%20Taisen&cat=all)
