@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When the world is filled with red lights signaling danger, the world is safer than usual. But when it's filled with green lights signaling safety, it creates a place more dangerous than anywhere."
+> "Tears and rain, fall down on my face, my body is unable to stay yet my heart is unwilling to leave."
 
-&mdash; [**Ougi Oshino**](https://myanimelist.net/character.php?q=Ougi%20Oshino&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
