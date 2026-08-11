@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is something my master used to say. 'Kids who are too obedient and never think of themselves are the hardest to watch.'"
+> "No one could understand the fear of walking alone in this unstable world."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Natsume Takeshi**](https://myanimelist.net/character.php?q=Natsume%20Takeshi&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
