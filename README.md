@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Talent is something you make bloom, instinct is something you polish."
+> "[Last words to Hashirama] As comrades, huh... well... if that's how... we... will.... *smiles*"
 
-&mdash; [**Tooru Oikawa**](https://myanimelist.net/character.php?q=Tooru%20Oikawa&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Madara Uchiha**](https://myanimelist.net/character.php?q=Madara%20Uchiha&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
