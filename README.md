@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How rude! You knocked his block off, and you didn't even have the courtesy to yell 'Heads up'!"
+> "I'm going to spend my vacation AT THE LIBRARY!"
 
-&mdash; [**Johann Faust VIII**](https://myanimelist.net/character.php?q=Johann%20Faust%20VIII&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
