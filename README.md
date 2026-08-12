@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is Living? Living is continuing to make choices. Living is enjoying oneself. Living is continuing to make choices. Living is expressing one’s will. Living is enjoying oneself. Living is continuing to search. Living is eating. Living is continuing to fight. Living is being lost. Living is preparing oneself."
+> "Admirals without soldiers are equivalent to fixed stars without planets. Their lights will only illuminate the darkness without any effect."
 
-&mdash; [**Devil Survivor 2**](https://myanimelist.net/character.php?q=Devil%20Survivor%202&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Dietrich Saucken**](https://myanimelist.net/character.php?q=Dietrich%20Saucken&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
