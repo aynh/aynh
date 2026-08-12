@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can call me Roy Mustang, or just Lieutenant Colonel. Hell, you can call me the Flame Alchemist. Whatever you do, remember the pain."
+> "[sounding like Marlon Brando] I'm the Godfather of Games. Capsice?"
 
-&mdash; [**Roy Mustang**](https://myanimelist.net/character.php?q=Roy%20Mustang&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Joey Wheeler**](https://myanimelist.net/character.php?q=Joey%20Wheeler&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
