@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whatever your thoughts may be, if you don't say them, none of it will be acknowledged by others."
+> "Why can't I steal him from her? There are no rules in the game of love!"
 
-&mdash; [**Tomoyo Daidouji**](https://myanimelist.net/character.php?q=Tomoyo%20Daidouji&cat=character), [**Cardcaptor Sakura**](https://myanimelist.net/search/all?q=Cardcaptor%20Sakura&cat=all)
+&mdash; [**Odagiri Nene**](https://myanimelist.net/character.php?q=Odagiri%20Nene&cat=character), [**Yamada-kun to 7-nin no Majo**](https://myanimelist.net/search/all?q=Yamada-kun%20to%207-nin%20no%20Majo&cat=all)
