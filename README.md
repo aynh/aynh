@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You sure can talk the talk, but you're not quite ready to walk the walk. Time's up, it's my turn."
+> "The moment people come to know love, they run the risk of carrying hate."
 
-&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Obito Uchiha**](https://myanimelist.net/character.php?q=Obito%20Uchiha&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
