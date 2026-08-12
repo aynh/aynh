@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Is dying that scary to you?"
+> "Whatever your thoughts may be, if you don't say them, none of it will be acknowledged by others."
 
-&mdash; [**Minato Arisato**](https://myanimelist.net/character.php?q=Minato%20Arisato&cat=character), [**Persona 3 The Movie #1 Spring of Birth**](https://myanimelist.net/search/all?q=Persona%203%20The%20Movie%20%231%20Spring%20of%20Birth&cat=all)
+&mdash; [**Tomoyo Daidouji**](https://myanimelist.net/character.php?q=Tomoyo%20Daidouji&cat=character), [**Cardcaptor Sakura**](https://myanimelist.net/search/all?q=Cardcaptor%20Sakura&cat=all)
