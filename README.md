@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I've never seen a man with a screw sticking out of his head before. I don't know how I'm supposed to deal with a guy like that!"
+> "Yuri, I finally understand why you and I were the only ones left in this world. You and I were already lost children, but most children in the world are the same as us. That's why, even once was enough: We both needed someone to tell us 'I love you'."
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Keiju Tabuki**](https://myanimelist.net/character.php?q=Keiju%20Tabuki&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
