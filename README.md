@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you were given the chance to redo your life, would you take it?"
+> "The society you all live in has long since turned into the Liar Game. Still, what all of you demonstrated through this game is that 'Believing' is by no means, an easy path to follow. Sometimes, taking it means allowing yourself be deceived or suffering heavy damage you will not ever recover from. And yet, 'Trust' born when you forget your personal interests and join forces to fight against the odds together holds tremendous power."
 
-&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
+&mdash; [**Artier**](https://myanimelist.net/character.php?q=Artier&cat=character), [**Liar Game**](https://myanimelist.net/search/all?q=Liar%20Game&cat=all)
