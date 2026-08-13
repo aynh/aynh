@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yuri, I finally understand why you and I were the only ones left in this world. You and I were already lost children, but most children in the world are the same as us. That's why, even once was enough: We both needed someone to tell us 'I love you'."
+> "Hey hun! I've got a great idea, let's trade! Yo take my spot and I'll fight Hercule!"
 
-&mdash; [**Keiju Tabuki**](https://myanimelist.net/character.php?q=Keiju%20Tabuki&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
