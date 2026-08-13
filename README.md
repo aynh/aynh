@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey hun! I've got a great idea, let's trade! Yo take my spot and I'll fight Hercule!"
+> "I'm worthless garbage who can't even write a straight looking K!"
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
