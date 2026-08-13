@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fine! You heard fox boy, there's nothing we can do for the old hag if she's already limp. Just gotta keep on truckin, yes sir! I'm gonna go outside and make myself a nice, big, shiny first-place medal, sit in the sun, and have a stupendous friggin day, dammit!"
+> "If you were given the chance to redo your life, would you take it?"
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Iori Nagase**](https://myanimelist.net/character.php?q=Iori%20Nagase&cat=character), [**Kokoro Connect**](https://myanimelist.net/search/all?q=Kokoro%20Connect&cat=all)
