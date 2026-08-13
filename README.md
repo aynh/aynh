@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes you can't see what's right in front of you."
+> "(after Pikachu accidentally zaps her bike to a crisp) My bike's been barbecued!!"
 
-&mdash; [**Ryuunosuke Uryuu**](https://myanimelist.net/character.php?q=Ryuunosuke%20Uryuu&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Haruka**](https://myanimelist.net/character.php?q=Haruka&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
