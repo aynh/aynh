@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Never forget who you are, for surely the world won't."
+> "It should be natural for you to drink until dawn with someone you get along with, even if he may be your enemy."
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
