@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One day a man had a dream. He dreamed that he was a butterfly. He fluttered and fluttered, flew and flew. He so loved the feeling of freedom that he decided that he was a butterfly. But when he woke up, he wasn't a butterfly. He was a human after all. Then the man thought, 'I wonder if I, The Man, dreamed that I was a butterfly or if this moment is truly the dream. Maybe the man I am now is a dream that a butterfly is having."
+> "When you someday find a way of life that you can truly be proud of, you'll be forced into your own battle whether you like it or not."
 
-&mdash; [**Doumeki Haruka**](https://myanimelist.net/character.php?q=Doumeki%20Haruka&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
