@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you believe in it, it is real. If you do not - it is fiction."
+> "Having too many bonds causes one to lose focus, weakening their strongest wish, their greatest desire."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Sasuke Uchiha**](https://myanimelist.net/character.php?q=Sasuke%20Uchiha&cat=character), [**Naruto Shippuuden**](https://myanimelist.net/search/all?q=Naruto%20Shippuuden&cat=all)
