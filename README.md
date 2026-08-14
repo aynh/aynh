@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It should be natural for you to drink until dawn with someone you get along with, even if he may be your enemy."
+> "If you believe in it, it is real. If you do not - it is fiction."
 
-&mdash; [**Lancer**](https://myanimelist.net/character.php?q=Lancer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
