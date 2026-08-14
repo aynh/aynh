@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as it's for the right cause, there's nothing wrong with playing dirty."
+> "But am I... am I normal? I have strength. I can kill with my bare hands. I bleed red, but the pain always goes away quickly. Sometimes I see things in my head that never happened. I am a cyborg. I'll never be useful as anything else."
 
-&mdash; [**Kureo Mado**](https://myanimelist.net/character.php?q=Kureo%20Mado&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Henrietta**](https://myanimelist.net/character.php?q=Henrietta&cat=character), [**Gunslinger Girl**](https://myanimelist.net/search/all?q=Gunslinger%20Girl&cat=all)
