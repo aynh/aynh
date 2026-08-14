@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All I ever gained from abandoning something and running away were regrets I couldn't do anything about, and a version of myself that could only resent others. If I come to hate myself, even living becomes a sin. Remorse alone will become my punishment. That's why I've decided to take action of my own free will, so I'll never have the same regrets again."
+> "Despair to the ones who become swelled with pride."
 
-&mdash; [**Amane Suou**](https://myanimelist.net/character.php?q=Amane%20Suou&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
+&mdash; [**Truth**](https://myanimelist.net/character.php?q=Truth&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
