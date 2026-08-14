@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My place really was here. I was too foolish and stubborn to notice. But, what I truly hoped for then was here. Why do I always realize it... when I've already lost it."
+> "I wonder why people make promises they won't be able to keep."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
