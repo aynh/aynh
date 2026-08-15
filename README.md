@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you're not remembered, then you never existed."
+> "Oh great, it's a kid! I thought I was rescuing a babe, a luscious damsel in distress, not some flat chested little girl."
 
-&mdash; [**Lain Iwakura**](https://myanimelist.net/character.php?q=Lain%20Iwakura&cat=character), [**Serial Experiments Lain**](https://myanimelist.net/search/all?q=Serial%20Experiments%20Lain&cat=all)
+&mdash; [**Gourry Gabriev**](https://myanimelist.net/character.php?q=Gourry%20Gabriev&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
