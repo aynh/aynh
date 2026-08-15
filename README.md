@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You should try persuasion when people are mentally defenseless. The fascist who proposed that was a demonic genius."
+> "People... need to be needed by someone in order to live. If a person isn't needed, they're worthless!"
 
-&mdash; [**Tanya Degurechaff**](https://myanimelist.net/character.php?q=Tanya%20Degurechaff&cat=character), [**Youjo Senki**](https://myanimelist.net/search/all?q=Youjo%20Senki&cat=all)
+&mdash; [**Moeka Kiryū**](https://myanimelist.net/character.php?q=Moeka%20Kiry%C5%AB&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
