@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The biggest idiot is you! So why don't you go back to school or whatever it is that idiots like you do and don't ever bother me again! You piece of shit! (To Yuki)"
+> "I'll admit that you're stronger than before. But because of that, you seem to have lost sight of what's truly important. Now listen carefully. The people of the village, who once abhorred you, have begun to admire you. They think of you as a comrade. It's because you fought hard for their acceptance. You once said it was everyone who cares about you who helped you get where you are now. If you forget others because you have power, and become arrogant and egotistical, you'll eventually become just like Madara. No matter how powerful you become, do not try to shoulder everything alone. Becoming the Hokage doesn't mean people will acknowledge you. But when the people acknowledge you, you can become Hokage. Never forget your friends!"
 
-&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Itachi Uchiha**](https://myanimelist.net/character.php?q=Itachi%20Uchiha&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
