@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who don't fulfill their obligation to others 'ave no right to ask 'em for such privilege..."
+> "You should try persuasion when people are mentally defenseless. The fascist who proposed that was a demonic genius."
 
-&mdash; [**Mr. Blouse**](https://myanimelist.net/character.php?q=Mr.%20Blouse&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Tanya Degurechaff**](https://myanimelist.net/character.php?q=Tanya%20Degurechaff&cat=character), [**Youjo Senki**](https://myanimelist.net/search/all?q=Youjo%20Senki&cat=all)
