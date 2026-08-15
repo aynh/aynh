@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if the world doesn't accept you, I'll always be right by your side!"
+> "I... the society I was in- says that if you don't have anything you want to do, then you're no good. That if you don't have dreams, you're no good. If you don't win, you're no good. If you can't get a nice life... if you can't accumulate a lot... then you aren't happy, they said. And yet... and yet, mom... I... I just wanted you to say that I'm fine how I am. That's all."
 
-&mdash; [**Tendou Kisara**](https://myanimelist.net/character.php?q=Tendou%20Kisara&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Sei**](https://myanimelist.net/character.php?q=Sei&cat=character), [**Suicide Island**](https://myanimelist.net/search/all?q=Suicide%20Island&cat=all)
