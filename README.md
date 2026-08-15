@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The voice, the smile that still remains in his heart... all of it was a long time ago. Humans live such short lives."
+> "Oh, well. No matter what path they take, people without guts have nothing ahead of them."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
