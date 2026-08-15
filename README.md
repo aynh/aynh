@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's because I've experienced pain in the past, that I can even consider what would be best for the future!"
+> "Yes, the seats are limited. There are always fewer seats called 'happiness' than there are people to fill them."
 
-&mdash; [**Ohnoki**](https://myanimelist.net/character.php?q=Ohnoki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
