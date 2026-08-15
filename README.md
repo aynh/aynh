@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This whole Avatar thing... maybe the monks made a mistake."
+> "[about the inefficacy of his attack against Tsunade] Did it not penetrate deep enough because of her fat breasts?"
 
-&mdash; [**Aang**](https://myanimelist.net/character.php?q=Aang&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Kabuto Yakushi**](https://myanimelist.net/character.php?q=Kabuto%20Yakushi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
