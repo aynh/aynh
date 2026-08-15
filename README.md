@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yes, the seats are limited. There are always fewer seats called 'happiness' than there are people to fill them."
+> "Gin-chan told me to pay people back double for revenge!"
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
