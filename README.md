@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[about the inefficacy of his attack against Tsunade] Did it not penetrate deep enough because of her fat breasts?"
+> "Even if the world doesn't accept you, I'll always be right by your side!"
 
-&mdash; [**Kabuto Yakushi**](https://myanimelist.net/character.php?q=Kabuto%20Yakushi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Tendou Kisara**](https://myanimelist.net/character.php?q=Tendou%20Kisara&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
