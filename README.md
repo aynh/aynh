@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What am I to you anyway? You get all teary eyed whenever it suits you but you never stop to think about my feelings and how you might be messing with my heart. You want some nice guy to be a part of your life but only if its on your terms. All this talk of just being friends with a guy... don't make me laugh!"
+> "I think that the people who come to like and understand you, like you not because of your outward appearance, but because of your own feelings that aren't lies."
 
-&mdash; [**Shoji Endo**](https://myanimelist.net/character.php?q=Shoji%20Endo&cat=character), [**NANA**](https://myanimelist.net/search/all?q=NANA&cat=all)
+&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
