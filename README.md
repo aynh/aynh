@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Mankind's greatest fear is Mankind itself."
+> "*yelling at Fai* You, shut up!! If you want to die that much, I'll kill you myself! But until that day, you're going to live!"
 
-&mdash; [**Gendou Ikari**](https://myanimelist.net/character.php?q=Gendou%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Kurogane**](https://myanimelist.net/character.php?q=Kurogane&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
