@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you trust in the possibilities within and try with all your might, the path will show itself to you!"
+> "Regrets are just a way for the foolish and the guilty to pass time."
 
-&mdash; [**Cardeas Vist**](https://myanimelist.net/character.php?q=Cardeas%20Vist&cat=character), [**Mobile Suit Gundam UC**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20UC&cat=all)
+&mdash; [**Cho Hakkai**](https://myanimelist.net/character.php?q=Cho%20Hakkai&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
