@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter what changes, I'll still be me. And I can be whoever I want to be."
+> "The reward for ambition too great... is self destruction."
 
-&mdash; [**Amu Hinamori**](https://myanimelist.net/character.php?q=Amu%20Hinamori&cat=character), [**Shugo Chara**](https://myanimelist.net/search/all?q=Shugo%20Chara&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
