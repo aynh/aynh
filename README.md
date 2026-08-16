@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Right now, I'm going to fight the person who freed me from being Reversed and saved the world. The strongest fighter... My best friend."
+> "The truth is everyone is going to hurt you, you just got to find the ones worth suffering for."
 
-&mdash; [**Toshiki Kai**](https://myanimelist.net/character.php?q=Toshiki%20Kai&cat=character), [**Cardfight!! Vanguard: Link Joker Hen**](https://myanimelist.net/search/all?q=Cardfight!!%20Vanguard%3A%20Link%20Joker%20Hen&cat=all)
+&mdash; [**Hei**](https://myanimelist.net/character.php?q=Hei&cat=character), [**Darker than Black - Kuro no Keiyakusha: Gaiden**](https://myanimelist.net/search/all?q=Darker%20than%20Black%20-%20Kuro%20no%20Keiyakusha%3A%20Gaiden&cat=all)
