@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regrets are just a way for the foolish and the guilty to pass time."
+> "Inuyasha, you and I were fated to never meet again."
 
-&mdash; [**Cho Hakkai**](https://myanimelist.net/character.php?q=Cho%20Hakkai&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Kikyo**](https://myanimelist.net/character.php?q=Kikyo&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
