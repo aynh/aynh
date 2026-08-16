@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A real man is someone who forgives a woman for her lies!"
+> "I've gained freedom...and yet... it's so lonesome... (after declaring he was leaving Akito's side)"
 
-&mdash; [**Sanji**](https://myanimelist.net/character.php?q=Sanji&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Sohma Momiji**](https://myanimelist.net/character.php?q=Sohma%20Momiji&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
