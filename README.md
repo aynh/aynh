@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Chakras, chakras, everybody loves chakras! Chakras, chakras! Chakra sandwich tastes good! Yum!"
+> "Mankind's greatest fear is Mankind itself."
 
-&mdash; [**Pathik**](https://myanimelist.net/character.php?q=Pathik&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Gendou Ikari**](https://myanimelist.net/character.php?q=Gendou%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
