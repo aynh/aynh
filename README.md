@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The truth is everyone is going to hurt you, you just got to find the ones worth suffering for."
+> "No matter how well you get along together, sometimes the smallest of cracks turn into a lethal abyss in time."
 
-&mdash; [**Hei**](https://myanimelist.net/character.php?q=Hei&cat=character), [**Darker than Black - Kuro no Keiyakusha: Gaiden**](https://myanimelist.net/search/all?q=Darker%20than%20Black%20-%20Kuro%20no%20Keiyakusha%3A%20Gaiden&cat=all)
+&mdash; [**Ai Kotani**](https://myanimelist.net/character.php?q=Ai%20Kotani&cat=character), [**Solanin**](https://myanimelist.net/search/all?q=Solanin&cat=all)
