@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not many can do the “right thing” when it counts."
+> "When you're on a bike, the ocean's a lot closer than you think. The autumn salt wind went right through to the back of my nose. And maybe it's because, like Haruko said, my head was empty."
 
-&mdash; [**Kuroh Yatogami**](https://myanimelist.net/character.php?q=Kuroh%20Yatogami&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
+&mdash; [**Naota Nandaba**](https://myanimelist.net/character.php?q=Naota%20Nandaba&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
