@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My mother told me something long ago. She said “The world belongs to you just as much as you belong to the world”. For you were born and that gives you the right to exist."
+> "Even as a child, I found tremendous pleasure in spilling my enemy's blood. Their screams of agony were my music. Once I learned that my mother's frozen tear drop was valuable, I began wearing in open sight of everyone, hoping their greed would entice them to challenge me, thus giving me the opportunity for my next kill."
 
-&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Hiei**](https://myanimelist.net/character.php?q=Hiei&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
