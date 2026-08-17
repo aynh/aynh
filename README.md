@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, why does this situation look like something at the end of a shonen manga?!"
+> "My mother told me something long ago. She said “The world belongs to you just as much as you belong to the world”. For you were born and that gives you the right to exist."
 
-&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Lacus Clyne**](https://myanimelist.net/character.php?q=Lacus%20Clyne&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
