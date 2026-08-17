@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone makes mistakes, but then you recover. Look at all of the friends you have here who adore you. It would be difficult for anything to change that. If you keep that in mind, you should be able to get back on your feet any number of times."
+> "Sometimes, we have to look beyond what we want and do what’s best."
 
-&mdash; [**Ichiya Vandalay Kotobuki**](https://myanimelist.net/character.php?q=Ichiya%20Vandalay%20Kotobuki&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Piccolo**](https://myanimelist.net/character.php?q=Piccolo&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
