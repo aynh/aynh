@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you're on a bike, the ocean's a lot closer than you think. The autumn salt wind went right through to the back of my nose. And maybe it's because, like Haruko said, my head was empty."
+> "Don't get too close to him, his stupidity is contagious."
 
-&mdash; [**Naota Nandaba**](https://myanimelist.net/character.php?q=Naota%20Nandaba&cat=character), [**FLCL**](https://myanimelist.net/search/all?q=FLCL&cat=all)
+&mdash; [**Hiruma Youichi**](https://myanimelist.net/character.php?q=Hiruma%20Youichi&cat=character), [**Eyeshield 21**](https://myanimelist.net/search/all?q=Eyeshield%2021&cat=all)
