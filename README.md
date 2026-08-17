@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's right! I admired his desire to save people because it was beautiful! But none of that feeling is my own! What else can you call it but hypocrisy?! I was driven by my obsessive need to help someone. I kept running, neither noticing the pain nor how wrong I was! But it's all a fake. Such hypocrisy can not save anything. No, first of all, I didn't even know what I wanted to save!"
+> "I'll show you a real assassination. No... Maybe you won't even be able to see it."
 
-&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
