@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I find myself hard to understand sometimes."
+> "Hey, why does this situation look like something at the end of a shonen manga?!"
 
-&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
