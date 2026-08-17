@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who a person hangs out with is their choice. And I couldn't care less about rumors. Until I tried talking to them myself, I wouldn't know..."
+> "I had no intention of deceiving anyone. It's just that none of you could understand...My true self."
 
-&mdash; [**Shougo Kiryuu**](https://myanimelist.net/character.php?q=Shougo%20Kiryuu&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
