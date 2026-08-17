@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(after Goku moves a huge boulder all by himself) Krillin wants everybody to know he's speechless right now."
+> "Not many can do the “right thing” when it counts."
 
-&mdash; [**Krillin**](https://myanimelist.net/character.php?q=Krillin&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Kuroh Yatogami**](https://myanimelist.net/character.php?q=Kuroh%20Yatogami&cat=character), [**K Project**](https://myanimelist.net/search/all?q=K%20Project&cat=all)
