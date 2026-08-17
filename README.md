@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My name is Black Star. I'll surpass the power of the gods."
+> "Everyone makes mistakes, but then you recover. Look at all of the friends you have here who adore you. It would be difficult for anything to change that. If you keep that in mind, you should be able to get back on your feet any number of times."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Ichiya Vandalay Kotobuki**](https://myanimelist.net/character.php?q=Ichiya%20Vandalay%20Kotobuki&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
