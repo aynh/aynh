@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I think that the people who come to like and understand you, like you not because of your outward appearance, but because of your own feelings that aren't lies."
+> "The thread of human hope is spun with the flax of sorrow."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Kaworu Nagisa**](https://myanimelist.net/character.php?q=Kaworu%20Nagisa&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
