@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Aang* You need to find someone who WAITS and LISTENS before striking."
+> "Memories of someone who’s passed away remains beautiful forever and a person’s heart will linger over them, they say."
 
-&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Ai Haibara**](https://myanimelist.net/character.php?q=Ai%20Haibara&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
