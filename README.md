@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Not even your closest friends get to see your true blade."
+> "Everyone's reality is freight with some degree of pain. What's wrong with seeing what makes you happy in your dreams?"
 
-&mdash; [**Kaede Kayano**](https://myanimelist.net/character.php?q=Kaede%20Kayano&cat=character), [**Assassination Classroom 2nd Season**](https://myanimelist.net/search/all?q=Assassination%20Classroom%202nd%20Season&cat=all)
+&mdash; [**Natsume**](https://myanimelist.net/character.php?q=Natsume&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
