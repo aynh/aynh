@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Willpower alone isn't enough in battle."
+> "Play to the last note, and leave no regrets."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Kiyora Miki**](https://myanimelist.net/character.php?q=Kiyora%20Miki&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
