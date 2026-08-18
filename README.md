@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They don't call me Greed for nothing! I want money, I want women, status and power! I want everything this world's selling and eternity's topping the list!"
+> "This is the impenetrable wall of Jericho third child. Take one step over this wall, and you will be a dead man."
 
-&mdash; [**Greed**](https://myanimelist.net/character.php?q=Greed&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Souryuu Asuka Langley**](https://myanimelist.net/character.php?q=Souryuu%20Asuka%20Langley&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
