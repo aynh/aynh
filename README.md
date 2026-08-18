@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear isn't evil, it only allows us to learn our own weaknesses. When we learn our weakness, people can grow stronger and kinder."
+> "Sincerity with respect to yourself! No matter what your objective... no matter who you are... if you are going to do something or not do something, that is a promise to yourself. And the one who keeps the promise, or breaks the promise, is you. No one else can be burdened with holding you to a promise that's made to yourself."
 
-&mdash; [**Gildarts Clive**](https://myanimelist.net/character.php?q=Gildarts%20Clive&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
