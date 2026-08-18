@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No, it can't be 7, say 8 damn it! 8 is better! It's physically impossible to cut the number 7 in half and make it symmetrical! It has to be 8 instead! 8 cut vertically or horizontally stays perfectly symmetrical! Take it back I beg of you! Please say 8, PLEASE!"
+> "We are perfect for each other! She's strong, I'm strong. She's fun, I'm fun. She's beautiful... I'm GORGEOUS!"
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Bolin**](https://myanimelist.net/character.php?q=Bolin&cat=character), [**Avatar: The Legend Of Korra**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Legend%20Of%20Korra&cat=all)
