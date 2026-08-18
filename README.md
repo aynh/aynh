@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I had no intention of deceiving anyone. It's just that none of you could understand...My true self."
+> "Maybe I'm not perfect. Maybe I have a long way to go. But someday... someday I'll be able to stand and walk on my own. Without hurting anyone... and without being a burden. (to Kazuma)"
 
-&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
