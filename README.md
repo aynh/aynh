@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The brighter they shine, the darker the shadow grows."
+> "Even though I'm expressionless, being told that I'm annoying still hurts."
 
-&mdash; [**Makino Fumito**](https://myanimelist.net/character.php?q=Makino%20Fumito&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
+&mdash; [**Suzume Yosano**](https://myanimelist.net/character.php?q=Suzume%20Yosano&cat=character), [**Hirunaka no Ryuusei**](https://myanimelist.net/search/all?q=Hirunaka%20no%20Ryuusei&cat=all)
