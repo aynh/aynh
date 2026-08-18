@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To a girl, a man who’s nice to everyone... hm, I suppose that works as an example, to a man, it would be like a woman who opens her legs to anyone. People want companions so they can swiftly satisfy their need for love and affection. A woman wants a man who only shows his love to her."
+> "No, it can't be 7, say 8 damn it! 8 is better! It's physically impossible to cut the number 7 in half and make it symmetrical! It has to be 8 instead! 8 cut vertically or horizontally stays perfectly symmetrical! Take it back I beg of you! Please say 8, PLEASE!"
 
-&mdash; [**Rory Mercury**](https://myanimelist.net/character.php?q=Rory%20Mercury&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
