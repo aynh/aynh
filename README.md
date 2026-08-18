@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone's reality is freight with some degree of pain. What's wrong with seeing what makes you happy in your dreams?"
+> "Fear isn't evil, it only allows us to learn our own weaknesses. When we learn our weakness, people can grow stronger and kinder."
 
-&mdash; [**Natsume**](https://myanimelist.net/character.php?q=Natsume&cat=character), [**Eden***](https://myanimelist.net/search/all?q=Eden*&cat=all)
+&mdash; [**Gildarts Clive**](https://myanimelist.net/character.php?q=Gildarts%20Clive&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
