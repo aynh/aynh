@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's always best to believe in one's self but with a little help from others can be a great blessing!"
+> "When you find yourself wishing that a certain person was also here, that person is like family to you. Regardless of how long or how well you know them."
 
-&mdash; [**Iroh**](https://myanimelist.net/character.php?q=Iroh&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Tsutomu Komano**](https://myanimelist.net/character.php?q=Tsutomu%20Komano&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
