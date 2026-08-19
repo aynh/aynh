@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The human world is a boring place with boring people doing boring things."
+> "This is just my opinion, but when it comes to teaching somebody discipline... I believe pain is the most effective way."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
