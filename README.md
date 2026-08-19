@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You're absolutely right. I can't do anything alone.  Everyone has their flaws and imperfections, but that's what drives us to work together... To make up for those flaws. Together, we make the perfect main character."
+> "The human world is a boring place with boring people doing boring things."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
