@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A wandering soul in isolation, has no need for a place to belong."
+> "We will have lost only the moment humans give up and stop fighting. As long as they keep on fighting, our defeat is not certain."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Mike Zacharias**](https://myanimelist.net/character.php?q=Mike%20Zacharias&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
