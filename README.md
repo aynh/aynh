@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me ask you the reverse. How is it that you can give up so easily? [exaggerated sigh] I can't understand that…attitude! “It's bad luck! I have no choice!” People who passively accept their fate…because no one knows their future, least of all me, so I don't dare put things off. I have to do what I can, while I can still do it, so…I'll be kicking and screaming, 'til the very end."
+> "There's no one who can live their whole life being completely uncorrupted."
 
-&mdash; [**Rosette Christopher**](https://myanimelist.net/character.php?q=Rosette%20Christopher&cat=character), [**Chrono Crusade**](https://myanimelist.net/search/all?q=Chrono%20Crusade&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
