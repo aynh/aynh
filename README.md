@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's been a while... Byakuya-bo."
+> "Yeah, we've become friends. When you're in the same party, there will be times when things don't go smoothly, when you get angry, and when you fight. But they really are your precious friends. It doesn't matter why you became friends, but that you are friends at this moment."
 
-&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
