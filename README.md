@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "One thing I'm especially good at is finding Yano, whenever or wherever he may be. Because he's the one I love."
+> "Stop meddling in Team Rocket's affairs!"
 
-&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
+&mdash; [**Rocket Grunt**](https://myanimelist.net/character.php?q=Rocket%20Grunt&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
