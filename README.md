@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is just my opinion, but when it comes to teaching somebody discipline... I believe pain is the most effective way."
+> "The fastest way to happiness is to avoid looking at reality."
 
-&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Ame Ochibana**](https://myanimelist.net/character.php?q=Ame%20Ochibana&cat=character), [**Denpa teki na Kanojo**](https://myanimelist.net/search/all?q=Denpa%20teki%20na%20Kanojo&cat=all)
