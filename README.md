@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The fastest way to happiness is to avoid looking at reality."
+> "Black Star, it's over between us."
 
-&mdash; [**Ame Ochibana**](https://myanimelist.net/character.php?q=Ame%20Ochibana&cat=character), [**Denpa teki na Kanojo**](https://myanimelist.net/search/all?q=Denpa%20teki%20na%20Kanojo&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
