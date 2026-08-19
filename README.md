@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to the Sound Ninja Four] Which do you prefer? To die, or to obey?"
+> "It's been a while... Byakuya-bo."
 
-&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Shihouin Yoruichi**](https://myanimelist.net/character.php?q=Shihouin%20Yoruichi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
