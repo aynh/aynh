@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Stop meddling in Team Rocket's affairs!"
+> "[to the Sound Ninja Four] Which do you prefer? To die, or to obey?"
 
-&mdash; [**Rocket Grunt**](https://myanimelist.net/character.php?q=Rocket%20Grunt&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Kimimaro**](https://myanimelist.net/character.php?q=Kimimaro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
