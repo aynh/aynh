@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Listen, Haku. I don’t remember it, but my mom told me... Once, when I was little, I fell into a river. She said they’d drained it and built things on top. But I’ve just remembered. The river was called the Kohaku River. Your real name is... Kohaku."
+> "Life is built upon the taking of another life. If you have the resolve to kill, then you have the obligation to eat."
 
-&mdash; [**Chihiro Ogino**](https://myanimelist.net/character.php?q=Chihiro%20Ogino&cat=character), [**Spirited Away**](https://myanimelist.net/search/all?q=Spirited%20Away&cat=all)
+&mdash; [**Usagi Yuzuha**](https://myanimelist.net/character.php?q=Usagi%20Yuzuha&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
