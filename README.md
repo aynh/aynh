@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "FUCK YOU. I'm human, the real deal, right down to the fuckin' marrow of my bones. Don't lump me together with you faggot-ass monsters."
+> "You yourself have to change first, or nothing will change for you!"
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
