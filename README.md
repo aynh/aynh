@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Very funny. Carrots, peppers, and bugs! Everyone has something they don't like and I don't like bugs!"
+> "You can erase the memories, but you can't erase the feelings behind them."
 
-&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Yamazaki Haruma**](https://myanimelist.net/character.php?q=Yamazaki%20Haruma&cat=character), [**Yamada-kun to 7-nin no Majo**](https://myanimelist.net/search/all?q=Yamada-kun%20to%207-nin%20no%20Majo&cat=all)
