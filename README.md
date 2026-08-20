@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The inferiority you feel is actually the quality of a king. You may grumble a lot, but you know how small you are. And yet you still struggle to reach heights greater than you can imagine."
+> "I don't mind the regret, if I fail in attempt to achieve my dreams. What I don't wanna regret is not chasing those dreams."
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Akito Takagi**](https://myanimelist.net/character.php?q=Akito%20Takagi&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
