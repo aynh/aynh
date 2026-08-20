@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can erase the memories, but you can't erase the feelings behind them."
+> "The inferiority you feel is actually the quality of a king. You may grumble a lot, but you know how small you are. And yet you still struggle to reach heights greater than you can imagine."
 
-&mdash; [**Yamazaki Haruma**](https://myanimelist.net/character.php?q=Yamazaki%20Haruma&cat=character), [**Yamada-kun to 7-nin no Majo**](https://myanimelist.net/search/all?q=Yamada-kun%20to%207-nin%20no%20Majo&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
