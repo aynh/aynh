@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A writer once said that 'a designer knows he has achieved perfection not when he has nothing left to add, but when he has nothing left to take away'."
+> "My face feels heavy, and I can't walk in these shoes."
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
