@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you ever reach the point where you need to pray, you're already a failure of a man."
+> "Very funny. Carrots, peppers, and bugs! Everyone has something they don't like and I don't like bugs!"
 
-&mdash; [**Hyoudou Kazutaka**](https://myanimelist.net/character.php?q=Hyoudou%20Kazutaka&cat=character), [**Gyakkyou Burai Kaiji: Hakairoku Hen**](https://myanimelist.net/search/all?q=Gyakkyou%20Burai%20Kaiji%3A%20Hakairoku%20Hen&cat=all)
+&mdash; [**Kasumi**](https://myanimelist.net/character.php?q=Kasumi&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
