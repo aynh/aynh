@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What a laughable attempt. You should just stay where you are, groveling at my feet."
+> "As the survivors, we carry the feelings of those who've passed away on our shoulders."
 
-&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Akame**](https://myanimelist.net/character.php?q=Akame&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
