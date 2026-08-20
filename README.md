@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to become weak and if that's not possible, then I at least want to make friends that are as strong as me."
+> "If I die here, then I'm a man that could only make it this far."
 
-&mdash; [**Coyote Starrk**](https://myanimelist.net/character.php?q=Coyote%20Starrk&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Roronoa Zoro**](https://myanimelist.net/character.php?q=Roronoa%20Zoro&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
