@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A prison, you say? You think you'll be free if you go to the world above? A girl like you can never be free no matter where you go. After all, we humans are apes put in a cage called Earth. There is no difference between the world above and the world below. The only difference is which is bigger or smaller. People who pout about how confining the cage is can never be happy. They live their lives only seeing the iron bars. A true lack of freedom is when you cage your soul."
+> "Once you look up to someone, you can't overtake them."
 
-&mdash; [**Gintama**](https://myanimelist.net/character.php?q=Gintama&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kise Ryouta**](https://myanimelist.net/character.php?q=Kise%20Ryouta&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
