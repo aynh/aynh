@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't mind the regret, if I fail in attempt to achieve my dreams. What I don't wanna regret is not chasing those dreams."
+> "The shadow of your former self won't vanish."
 
-&mdash; [**Akito Takagi**](https://myanimelist.net/character.php?q=Akito%20Takagi&cat=character), [**Bakuman**](https://myanimelist.net/search/all?q=Bakuman&cat=all)
+&mdash; [**Kakeru Kurosawa**](https://myanimelist.net/character.php?q=Kakeru%20Kurosawa&cat=character), [**Onanie Master Kurosawa**](https://myanimelist.net/search/all?q=Onanie%20Master%20Kurosawa&cat=all)
