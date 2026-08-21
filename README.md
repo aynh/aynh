@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after Hisagi thanks him] Aren't you clever? Is that supposed to be sarcastic?"
+> "<About Ciel> He turns his back towards the light without hesitation. That figure that charges into the abyss at a dignified pace. How beautiful and foolish."
 
-&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Sebastian Michaelis**](https://myanimelist.net/character.php?q=Sebastian%20Michaelis&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
