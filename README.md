@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What is truly good about a person can't be expressed in words, that it can not. What matters is the feeling of trust one gets after spending time with him."
+> "They come without asking, and then they leave just the same. But once you meet them, even if nobody ever knows it, that encounter will change your life for the better."
 
-&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
