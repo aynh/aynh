@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It could be real difficult to hide when you're as big a star as I am."
+> "[after Hisagi thanks him] Aren't you clever? Is that supposed to be sarcastic?"
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Tousen Kaname**](https://myanimelist.net/character.php?q=Tousen%20Kaname&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
