@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Besides, it doesn't really matter, does it? Why should I care about appearances and labels anyway. It's what's on the inside that counts."
+> "There's no more trusted observer than someone who suspects you."
 
-&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
