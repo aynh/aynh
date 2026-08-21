@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My legend dates back to the 12th Century you see. My legend is quite old. The 12th Century was a long time ago."
+> "*referring to Jun* Look at her! Because she hasn't got any boyfriends around she fawns all over her guardian ghost."
 
-&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Tao Len**](https://myanimelist.net/character.php?q=Tao%20Len&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
