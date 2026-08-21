@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This world offers no guarantees for the future."
+> "I have nothing but me. I'll give you myself. You can use me however you like for the rest of my life. (To Shigure)"
 
-&mdash; [**Jun'ichi Hoshiyama**](https://myanimelist.net/character.php?q=Jun'ichi%20Hoshiyama&cat=character), [**Welcome to Irabu's Office**](https://myanimelist.net/search/all?q=Welcome%20to%20Irabu's%20Office&cat=all)
+&mdash; [**Sohma Rin**](https://myanimelist.net/character.php?q=Sohma%20Rin&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
