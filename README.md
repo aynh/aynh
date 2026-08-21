@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No one knows what the future holds. That's why its potential is infinite."
+> "The scariest thing about killing people is getting used to it! When you kill someone and realize you won't be punished... That's when people forget all about punishment!"
 
-&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
+&mdash; [**Satomi Rentarou**](https://myanimelist.net/character.php?q=Satomi%20Rentarou&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
