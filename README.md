@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They come without asking, and then they leave just the same. But once you meet them, even if nobody ever knows it, that encounter will change your life for the better."
+> "This world offers no guarantees for the future."
 
-&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Jun'ichi Hoshiyama**](https://myanimelist.net/character.php?q=Jun'ichi%20Hoshiyama&cat=character), [**Welcome to Irabu's Office**](https://myanimelist.net/search/all?q=Welcome%20to%20Irabu's%20Office&cat=all)
