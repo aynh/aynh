@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You think you can just escape? Walk out of this world like it's some bad movie? It's too easy to make like a bird. To flap your wings as you chicken out after causing all these problems. The tough part's walking. Taking what comes along and walking right through it. That's what real people do."
+> "Besides, it doesn't really matter, does it? Why should I care about appearances and labels anyway. It's what's on the inside that counts."
 
-&mdash; [**Eikichi Onizuka**](https://myanimelist.net/character.php?q=Eikichi%20Onizuka&cat=character), [**Great Teacher Onizuka**](https://myanimelist.net/search/all?q=Great%20Teacher%20Onizuka&cat=all)
+&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
