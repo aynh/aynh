@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look, you.  All this talk about monsters...that's what people have called me ever since I was a kid.  I've snapped and lost sight of everything around me, and I've made trouble for Celty more than once or twice.  Even so, she still heard me out, without interrupting.  And so now it's my turn to hear her out, all right?"
+> "If you endure too much, it'll be your loss."
 
-&mdash; [**Shizuo Heiwajima**](https://myanimelist.net/character.php?q=Shizuo%20Heiwajima&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Naruse Kakeru**](https://myanimelist.net/character.php?q=Naruse%20Kakeru&cat=character), [**Orange**](https://myanimelist.net/search/all?q=Orange&cat=all)
