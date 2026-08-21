@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People aren't complicated. We work hard when we know that we'll get something in return, and we try to work even harder if that something is our own improvement."
+> "I'm different from who I was yesterday. I wonder what I will be like tomorrow. Day by day, we live in the today and keep living to meet our future selves."
 
-&mdash; [**Kumiko Oumae**](https://myanimelist.net/character.php?q=Kumiko%20Oumae&cat=character), [**Hibike! Euphonium**](https://myanimelist.net/search/all?q=Hibike!%20Euphonium&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
