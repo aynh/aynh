@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you look up to someone, you can't overtake them."
+> "Only victors are allowed to live... this world is merciless like that."
 
-&mdash; [**Kise Ryouta**](https://myanimelist.net/character.php?q=Kise%20Ryouta&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
