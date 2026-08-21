@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The scariest thing about killing people is getting used to it! When you kill someone and realize you won't be punished... That's when people forget all about punishment!"
+> "Look, you.  All this talk about monsters...that's what people have called me ever since I was a kid.  I've snapped and lost sight of everything around me, and I've made trouble for Celty more than once or twice.  Even so, she still heard me out, without interrupting.  And so now it's my turn to hear her out, all right?"
 
-&mdash; [**Satomi Rentarou**](https://myanimelist.net/character.php?q=Satomi%20Rentarou&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
+&mdash; [**Shizuo Heiwajima**](https://myanimelist.net/character.php?q=Shizuo%20Heiwajima&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
