@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A mission's one thing, but I can't put them in danger for personal reasons. The only life I can do that to is my own."
+> "Ironic, isn't it? How people without truly important things know about them more than those who have them."
 
-&mdash; [**Itami Youji**](https://myanimelist.net/character.php?q=Itami%20Youji&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
