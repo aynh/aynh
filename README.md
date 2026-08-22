@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You’re about to find out what it’s like to fight a real super saiyan… and I’m not talking about Goku."
+> "If I'm protecting someone, I won't let her die, and if I'm attacking, I'll cut you."
 
-&mdash; [**Trunks**](https://myanimelist.net/character.php?q=Trunks&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
