@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you endure too much, it'll be your loss."
+> "There's no reason a fake can't do what the real thing would. And it's possible for a fake to be more real than the real thing."
 
-&mdash; [**Naruse Kakeru**](https://myanimelist.net/character.php?q=Naruse%20Kakeru&cat=character), [**Orange**](https://myanimelist.net/search/all?q=Orange&cat=all)
+&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
