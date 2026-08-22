@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've got nice solid childbearing hips, so I think you're sure to have healthy babies. Uwehehehe"
+> "A heart's a heavy burden."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Sophie Hatter**](https://myanimelist.net/character.php?q=Sophie%20Hatter&cat=character), [**Howl's Moving Castle**](https://myanimelist.net/search/all?q=Howl's%20Moving%20Castle&cat=all)
