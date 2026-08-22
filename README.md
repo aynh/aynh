@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as one person still lives...it shall be proof eternal that mankind ever existed."
+> "Once you expect something in return, your good deed is no longer just a good deed."
 
-&mdash; [**Yui Ikari**](https://myanimelist.net/character.php?q=Yui%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
+&mdash; [**Kayo Senju**](https://myanimelist.net/character.php?q=Kayo%20Senju&cat=character), [**Black Bullet**](https://myanimelist.net/search/all?q=Black%20Bullet&cat=all)
