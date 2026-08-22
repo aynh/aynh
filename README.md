@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ironic, isn't it? How people without truly important things know about them more than those who have them."
+> "You've got nice solid childbearing hips, so I think you're sure to have healthy babies. Uwehehehe"
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
