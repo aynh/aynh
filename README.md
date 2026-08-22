@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Providence may guide a man to meet one specific person, even if such guidance eventually leads him to darkness. Man simply cannot forsake the beauty of his own chosen path. When will man learn a way to control his soul?"
+> "A mission's one thing, but I can't put them in danger for personal reasons. The only life I can do that to is my own."
 
-&mdash; [**Berserk**](https://myanimelist.net/character.php?q=Berserk&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Itami Youji**](https://myanimelist.net/character.php?q=Itami%20Youji&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
