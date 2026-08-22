@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have yet to see what form your soul has taken. That's what it actually means when you claim that you lack joy in your life."
+> "How can he hope to stand back up, when he is still in the process of falling? Let him fall, all the way to the very bottom, before telling him to stand up again."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Gen Fudou**](https://myanimelist.net/character.php?q=Gen%20Fudou&cat=character), [**Sousei no Aquarion**](https://myanimelist.net/search/all?q=Sousei%20no%20Aquarion&cat=all)
