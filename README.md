@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How can he hope to stand back up, when he is still in the process of falling? Let him fall, all the way to the very bottom, before telling him to stand up again."
+> "If nobody cares to accept you and wants you in this world, accept yourself and you will see that you don't need them and their selfish ideas."
 
-&mdash; [**Gen Fudou**](https://myanimelist.net/character.php?q=Gen%20Fudou&cat=character), [**Sousei no Aquarion**](https://myanimelist.net/search/all?q=Sousei%20no%20Aquarion&cat=all)
+&mdash; [**Alibaba Saluja**](https://myanimelist.net/character.php?q=Alibaba%20Saluja&cat=character), [**MAGI: The Labyrinth Of Magic**](https://myanimelist.net/search/all?q=MAGI%3A%20The%20Labyrinth%20Of%20Magic&cat=all)
