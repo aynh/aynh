@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A heart's a heavy burden."
+> "Those who are bound, are bound wherever they go. And those who are free, are always free. Whoever you serve and wherever you live, if they are your own choices, you are free."
 
-&mdash; [**Sophie Hatter**](https://myanimelist.net/character.php?q=Sophie%20Hatter&cat=character), [**Howl's Moving Castle**](https://myanimelist.net/search/all?q=Howl's%20Moving%20Castle&cat=all)
+&mdash; [**Sanada Yukimura**](https://myanimelist.net/character.php?q=Sanada%20Yukimura&cat=character), [**Brave 10**](https://myanimelist.net/search/all?q=Brave%2010&cat=all)
