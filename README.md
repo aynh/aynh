@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm not stupid enough to use a cannon to hunt a rabbit."
+> "When people have different opinions, you should apply the majority vote."
 
-&mdash; [**Dracule Mihawk**](https://myanimelist.net/character.php?q=Dracule%20Mihawk&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
