@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who are bound, are bound wherever they go. And those who are free, are always free. Whoever you serve and wherever you live, if they are your own choices, you are free."
+> "The one hundred years we were apart were meant to bring me power and make you weak! Yoruichi!"
 
-&mdash; [**Sanada Yukimura**](https://myanimelist.net/character.php?q=Sanada%20Yukimura&cat=character), [**Brave 10**](https://myanimelist.net/search/all?q=Brave%2010&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
