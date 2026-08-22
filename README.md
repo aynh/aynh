@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Women tend to kill when it's not necessary. They kill for reasons of passion. For trivial reasons like love and hate."
+> "Providence may guide a man to meet one specific person, even if such guidance eventually leads him to darkness. Man simply cannot forsake the beauty of his own chosen path. When will man learn a way to control his soul?"
 
-&mdash; [**Lieutenant Colonel Yuuki**](https://myanimelist.net/character.php?q=Lieutenant%20Colonel%20Yuuki&cat=character), [**Joker Game**](https://myanimelist.net/search/all?q=Joker%20Game&cat=all)
+&mdash; [**Berserk**](https://myanimelist.net/character.php?q=Berserk&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
