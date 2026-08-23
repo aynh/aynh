@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you hurt somebody... or if somebody hurts you, the same red blood will be shed"
+> "Who can gaze into the mirror without becoming evil? The mirror does not reflect evil, but creates it."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
