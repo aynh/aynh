@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not about wanting to do something that you can do, it's about what you do. It's not about wanting to become someone, it's about who you want to become."
+> "Give advice and good guidance, then halt if such is of no avail. Do not disgrace yourself for it."
 
-&mdash; [**Licht Jekylland Todoroki**](https://myanimelist.net/character.php?q=Licht%20Jekylland%20Todoroki&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Takaaki Morofushi**](https://myanimelist.net/character.php?q=Takaaki%20Morofushi&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
