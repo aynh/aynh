@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We can't let the past be mere water under the bridge. Even so, there's no reason that we can't come together."
+> "If you hurt somebody... or if somebody hurts you, the same red blood will be shed"
 
-&mdash; [**Shinobu Oshino**](https://myanimelist.net/character.php?q=Shinobu%20Oshino&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
