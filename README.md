@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "With out strong opponents, living isn't fun. It's perfect if I can't win."
+> "It's better not to look for more meaning than there is in a name. You'll lose sight of a lot more than you notice."
 
-&mdash; [**Taiga Kagami**](https://myanimelist.net/character.php?q=Taiga%20Kagami&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
