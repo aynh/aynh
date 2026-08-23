@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who can gaze into the mirror without becoming evil? The mirror does not reflect evil, but creates it."
+> "I know you play by higher standards, but at least give me credit for the nose."
 
-&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Genkai**](https://myanimelist.net/character.php?q=Genkai&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
