@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is DUUUMMMBBB!!!!!!"
+> "The strong don't win. The winners are the strong ones."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Tsutomu Iwamura**](https://myanimelist.net/character.php?q=Tsutomu%20Iwamura&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
