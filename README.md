@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even the hardest of things can shatter when one little crack appears."
+> "Take it, that courage you have locked in your heart. Awaken it, wipe your tears, be strong and use that courage."
 
-&mdash; [**Sachi Nanjou**](https://myanimelist.net/character.php?q=Sachi%20Nanjou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
