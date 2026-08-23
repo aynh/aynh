@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Give advice and good guidance, then halt if such is of no avail. Do not disgrace yourself for it."
+> "Evil expects evil from others."
 
-&mdash; [**Takaaki Morofushi**](https://myanimelist.net/character.php?q=Takaaki%20Morofushi&cat=character), [**Detective Conan**](https://myanimelist.net/search/all?q=Detective%20Conan&cat=all)
+&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
