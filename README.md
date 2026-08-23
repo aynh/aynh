@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's better not to look for more meaning than there is in a name. You'll lose sight of a lot more than you notice."
+> "The difference between the novice and the master is that the master has failed more times than the novice has tried."
 
-&mdash; [**Asuna Yūki**](https://myanimelist.net/character.php?q=Asuna%20Y%C5%ABki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
+&mdash; [**Korosensei**](https://myanimelist.net/character.php?q=Korosensei&cat=character), [**Assassination Classroom**](https://myanimelist.net/search/all?q=Assassination%20Classroom&cat=all)
