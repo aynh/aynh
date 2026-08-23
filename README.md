@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life's but a waking shadow. A poor player, that struts and frets his hour upon the stage And then is heard no more. No matter how hopelessly they struggle in the light, they all die without meaning. Licht-tans's piano skills are amazing, but see... be it you or anyone, it's impossible to become anything. Human life is so meaningless..."
+> "It's not about wanting to do something that you can do, it's about what you do. It's not about wanting to become someone, it's about who you want to become."
 
-&mdash; [**Lawless**](https://myanimelist.net/character.php?q=Lawless&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
+&mdash; [**Licht Jekylland Todoroki**](https://myanimelist.net/character.php?q=Licht%20Jekylland%20Todoroki&cat=character), [**SERVAMP**](https://myanimelist.net/search/all?q=SERVAMP&cat=all)
