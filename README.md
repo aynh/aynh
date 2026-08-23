@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It sucks, but you can't reach a happy ending just by doing what's right all the time. Actually, the more people get stubborn and insist they're in the right, the further away happiness gets."
+> "I think there are times people have to die... even if I don't like it."
 
-&mdash; [**Junko Kaname**](https://myanimelist.net/character.php?q=Junko%20Kaname&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
