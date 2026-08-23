@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The strong don't win. The winners are the strong ones."
+> "Every human has another personality that they keep hidden from others."
 
-&mdash; [**Tsutomu Iwamura**](https://myanimelist.net/character.php?q=Tsutomu%20Iwamura&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Yakumo Saitō**](https://myanimelist.net/character.php?q=Yakumo%20Sait%C5%8D&cat=character), [**Psychic Detective Yakumo**](https://myanimelist.net/search/all?q=Psychic%20Detective%20Yakumo&cat=all)
