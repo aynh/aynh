@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death by a god of death, this may be a proud moment."
+> "The arrogant one is you, Espada. But rest at ease. The reason for your loss is not due to that arrogance. It is simply due to a difference in power."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
