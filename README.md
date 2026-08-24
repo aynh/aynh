@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It was my fault. It was my carelessness that led to Mitsukuni's cavity. I forgot to tell him to brush his teeth before napping... twice."
+> "If you're alone... if it's just your life, you can use it however you please Wear yourself out, get cut to ribbons, doesn't matter. But when there's two, the blade grows heavy. Fighting like death doesn't concern you becomes a thing of the past. It's no longer just you. I threw away my way of life, relied on the strength of others, and somehow pushed on."
 
-&mdash; [**Takashi Morinozuka**](https://myanimelist.net/character.php?q=Takashi%20Morinozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
