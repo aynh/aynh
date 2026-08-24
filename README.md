@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone worries and suffers, but they still go on with their lives. I'm expecting to be able to laugh again, so it's too early to despair!"
+> "We cannot be satisfied until we have eliminated all others. It has nothing to do with reason. It is instinct."
 
-&mdash; [**Soramaru Kumō**](https://myanimelist.net/character.php?q=Soramaru%20Kum%C5%8D&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
+&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
