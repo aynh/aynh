@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When captured birds grow wiser, they try to open the cage with their beaks. They don't give up, because they want to fly again."
+> "I love the type of woman who can kick my ***."
 
-&mdash; [**Genma Shiranui**](https://myanimelist.net/character.php?q=Genma%20Shiranui&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
