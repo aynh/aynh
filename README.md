@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "With kindness comes naivete. Courage becomes foolhardiness. And dedication has no reward. If you can't accept any of that, you are not fit to be a magical girl."
+> "Everyone worries and suffers, but they still go on with their lives. I'm expecting to be able to laugh again, so it's too early to despair!"
 
-&mdash; [**Homura Akemi**](https://myanimelist.net/character.php?q=Homura%20Akemi&cat=character), [**Mahou Shoujo Madoka Magica**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica&cat=all)
+&mdash; [**Soramaru Kumō**](https://myanimelist.net/character.php?q=Soramaru%20Kum%C5%8D&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
