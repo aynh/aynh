@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We cannot be satisfied until we have eliminated all others. It has nothing to do with reason. It is instinct."
+> "When captured birds grow wiser, they try to open the cage with their beaks. They don't give up, because they want to fly again."
 
-&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Genma Shiranui**](https://myanimelist.net/character.php?q=Genma%20Shiranui&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
