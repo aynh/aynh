@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[Thinking] What a sucker. He doesn't know I can re-establish control over my puppet within a blink of an eye. It's what makes me an expert puppet master. And so what if Crow's body is out of commission? I don't need his body. Every part of him is a lethal weapon. [To Shino] Looks like you underestimated me, bug boy. For the last time! There's enough poison on that to drop an elephant, so you're dead."
+> "If you have friends - you'll have a full life. And if you don't, you can still manage somehow."
 
-&mdash; [**Kankuro**](https://myanimelist.net/character.php?q=Kankuro&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/character.php?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
