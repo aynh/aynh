@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You may come to a standstill or get irritated because things don't work out the way you want them to, but what you gain from hard work will never betray you."
+> "Nothing can suppress a human's curiosity."
 
-&mdash; [**Tooru Miyagishi**](https://myanimelist.net/character.php?q=Tooru%20Miyagishi&cat=character), [**Hanasaku Iroha**](https://myanimelist.net/search/all?q=Hanasaku%20Iroha&cat=all)
+&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
