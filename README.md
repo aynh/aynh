@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hero? No! We're pirates! I love heroes, but I don't wanna be one! Do you know what heroes are? Say there is a chunk of meat. Pirates will have a banquet and eat it, but heroes will share it with other people. I want all the meat!"
+> "It was my fault. It was my carelessness that led to Mitsukuni's cavity. I forgot to tell him to brush his teeth before napping... twice."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Takashi Morinozuka**](https://myanimelist.net/character.php?q=Takashi%20Morinozuka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
