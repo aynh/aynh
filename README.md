@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Well done. That time, your fang definitely touched me."
+> "It's human nature to judge by appearance. It's not just males who are superficial. No one bothers about things they cannot see... like the heart."
 
-&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Yuzuru Shino**](https://myanimelist.net/character.php?q=Yuzuru%20Shino&cat=character), [**Seven Days**](https://myanimelist.net/search/all?q=Seven%20Days&cat=all)
