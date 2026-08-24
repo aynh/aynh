@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing can suppress a human's curiosity."
+> "Huh? What are you, retarded? I'm super thoughtful. That's why I stay in the corner and don't cause anyone trouble."
 
-&mdash; [**Eren Jaeger**](https://myanimelist.net/character.php?q=Eren%20Jaeger&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
