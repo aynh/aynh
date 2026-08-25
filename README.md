@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you suppose the most irrational thing is? - It's humanity."
+> "What you think of as peace can be painful for others."
 
-&mdash; [**Deadman Wonderland**](https://myanimelist.net/character.php?q=Deadman%20Wonderland&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
+&mdash; [**Vali Lucifer**](https://myanimelist.net/character.php?q=Vali%20Lucifer&cat=character), [**High School DxD BorN**](https://myanimelist.net/search/all?q=High%20School%20DxD%20BorN&cat=all)
