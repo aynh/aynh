@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The warmth of another person's flesh is scary. It thaws out the loneliness that you had forgotten about so easily."
+> "If you ever reach the point where you need to pray, you're already a failure of a man."
 
-&mdash; [**Rokka Shimao**](https://myanimelist.net/character.php?q=Rokka%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
+&mdash; [**Hyoudou Kazutaka**](https://myanimelist.net/character.php?q=Hyoudou%20Kazutaka&cat=character), [**Gyakkyou Burai Kaiji: Hakairoku Hen**](https://myanimelist.net/search/all?q=Gyakkyou%20Burai%20Kaiji%3A%20Hakairoku%20Hen&cat=all)
