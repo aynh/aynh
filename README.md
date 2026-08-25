@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past does not exist to remind us that the future cannot be changed. It exists to remind us what the future can be."
+> "What do you suppose the most irrational thing is? - It's humanity."
 
-&mdash; [**Hagoromo Ōtsutsuki**](https://myanimelist.net/character.php?q=Hagoromo%20%C5%8Ctsutsuki&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
+&mdash; [**Deadman Wonderland**](https://myanimelist.net/character.php?q=Deadman%20Wonderland&cat=character), [**Deadman Wonderland**](https://myanimelist.net/search/all?q=Deadman%20Wonderland&cat=all)
