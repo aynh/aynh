@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Forget what hurt you in the past, but never forget what it taught you."
+> "The warmth of another person's flesh is scary. It thaws out the loneliness that you had forgotten about so easily."
 
-&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Rokka Shimao**](https://myanimelist.net/character.php?q=Rokka%20Shimao&cat=character), [**Natsuyuki Rendezvous**](https://myanimelist.net/search/all?q=Natsuyuki%20Rendezvous&cat=all)
