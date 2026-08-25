@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you can't walk or stand and even if you can't have kids, I'll still marry you, I'll always stay by your side."
+> "If someone didn't have any pride, wouldn't they also be lacking in self-confidence? If someone was free of greed, wouldn't they have trouble supporting their family? And if people didn't envy one another, wouldn't they stop inventing new things?"
 
-&mdash; [**Hideki Hinata**](https://myanimelist.net/character.php?q=Hideki%20Hinata&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
