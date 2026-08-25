@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If someone didn't have any pride, wouldn't they also be lacking in self-confidence? If someone was free of greed, wouldn't they have trouble supporting their family? And if people didn't envy one another, wouldn't they stop inventing new things?"
+> "If it's the army's job to end a war, it's the king's job to find a place for it to end."
 
-&mdash; [**Eru Chitanda**](https://myanimelist.net/character.php?q=Eru%20Chitanda&cat=character), [**Hyouka**](https://myanimelist.net/search/all?q=Hyouka&cat=all)
+&mdash; [**Maou**](https://myanimelist.net/character.php?q=Maou&cat=character), [**Maoyuu Maou Yuusha**](https://myanimelist.net/search/all?q=Maoyuu%20Maou%20Yuusha&cat=all)
