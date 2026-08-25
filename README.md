@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What you think of as peace can be painful for others."
+> "Forget what hurt you in the past, but never forget what it taught you."
 
-&mdash; [**Vali Lucifer**](https://myanimelist.net/character.php?q=Vali%20Lucifer&cat=character), [**High School DxD BorN**](https://myanimelist.net/search/all?q=High%20School%20DxD%20BorN&cat=all)
+&mdash; [**Lucy Heartfilia**](https://myanimelist.net/character.php?q=Lucy%20Heartfilia&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
