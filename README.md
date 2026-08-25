@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you ever reach the point where you need to pray, you're already a failure of a man."
+> "In this world, when you face forward, that's the future. When you look back, it's a memory. And if you clip a part of it out, that becomes a story."
 
-&mdash; [**Hyoudou Kazutaka**](https://myanimelist.net/character.php?q=Hyoudou%20Kazutaka&cat=character), [**Gyakkyou Burai Kaiji: Hakairoku Hen**](https://myanimelist.net/search/all?q=Gyakkyou%20Burai%20Kaiji%3A%20Hakairoku%20Hen&cat=all)
+&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
