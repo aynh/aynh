@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, when you face forward, that's the future. When you look back, it's a memory. And if you clip a part of it out, that becomes a story."
+> "There are times when working hard may not be enough. But those who succeed worked hard."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Kajitsu**](https://myanimelist.net/search/all?q=Grisaia%20no%20Kajitsu&cat=all)
+&mdash; [**Coach Kamogawa**](https://myanimelist.net/character.php?q=Coach%20Kamogawa&cat=character), [**Hajime no Ippo**](https://myanimelist.net/search/all?q=Hajime%20no%20Ippo&cat=all)
