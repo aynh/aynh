@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was born to end up alone."
+> "The heart may be weak and sometimes it may even give in, but I've learned that deep down, there's a light that never goes out!"
 
-&mdash; [**Ciel Phantomhive**](https://myanimelist.net/character.php?q=Ciel%20Phantomhive&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**Kingdom Hearts**](https://myanimelist.net/search/all?q=Kingdom%20Hearts&cat=all)
