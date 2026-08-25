@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Always the same... Every age, every generation. Human beings are infinitely more cruel and selfish than any demon in hell."
+> "So long as a problem doesn't cause problems, it can't be called a problem."
 
-&mdash; [**Dantalion**](https://myanimelist.net/character.php?q=Dantalion&cat=character), [**Makai Ouji : Devils And Realist**](https://myanimelist.net/search/all?q=Makai%20Ouji%20%3A%20Devils%20And%20Realist&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
