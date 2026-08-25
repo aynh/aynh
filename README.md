@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is never fair. I'm sure you're well aware of that."
+> "The past does not exist to remind us that the future cannot be changed. It exists to remind us what the future can be."
 
-&mdash; [**Decim**](https://myanimelist.net/character.php?q=Decim&cat=character), [**Death Parade**](https://myanimelist.net/search/all?q=Death%20Parade&cat=all)
+&mdash; [**Hagoromo Ōtsutsuki**](https://myanimelist.net/character.php?q=Hagoromo%20%C5%8Ctsutsuki&cat=character), [**Naruto Shippūden**](https://myanimelist.net/search/all?q=Naruto%20Shipp%C5%ABden&cat=all)
