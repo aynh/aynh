@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everyone is a slave to their past. No matter how much you wish to move forward, the events of last year will bear down on you like the light of the stars as soon as you glance up. Unable to laugh or to banish your past, you carry it ceaselessly in a corner of your heart, waiting for it to resurrect at an inopportune moment."
+> "Only one thing separates dangerous people and safe people: whether they know you or not. If they think you're a good person, they will all smile back at you."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru.**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.&cat=all)
+&mdash; [**Claude Claudel**](https://myanimelist.net/character.php?q=Claude%20Claudel&cat=character), [**Croisée in a Foreign Labyrinth - The Animation**](https://myanimelist.net/search/all?q=Crois%C3%A9e%20in%20a%20Foreign%20Labyrinth%20-%20The%20Animation&cat=all)
