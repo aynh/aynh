@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let's have a drink. Hh shut up... The alcohol will disinfect me from the inside!"
+> "The beauty of the stars never changes. However, stars that change are beautiful as well."
 
-&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Eucliwood Hellscythe**](https://myanimelist.net/character.php?q=Eucliwood%20Hellscythe&cat=character), [**Kore wa Zombie Desu ka?**](https://myanimelist.net/search/all?q=Kore%20wa%20Zombie%20Desu%20ka%3F&cat=all)
