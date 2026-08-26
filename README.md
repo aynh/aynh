@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In their own way, fights are also a valid form of communication."
+> "Time brings an end to all things. Even if we plug our ears and cover our eyes."
 
-&mdash; [**Tsukihi Araragi**](https://myanimelist.net/character.php?q=Tsukihi%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Pharos**](https://myanimelist.net/character.php?q=Pharos&cat=character), [**Persona 3**](https://myanimelist.net/search/all?q=Persona%203&cat=all)
