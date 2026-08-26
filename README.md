@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life is like a node which is born within the flow of information. As a species of life that carries DNA as its memory system... man gains his individuality from the memories he carries. While memories may as well be the same as fantasy... it is by these memories that mankind exists."
+> "In their own way, fights are also a valid form of communication."
 
-&mdash; [**Puppet Master**](https://myanimelist.net/character.php?q=Puppet%20Master&cat=character), [**Ghost in the Shell**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell&cat=all)
+&mdash; [**Tsukihi Araragi**](https://myanimelist.net/character.php?q=Tsukihi%20Araragi&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
