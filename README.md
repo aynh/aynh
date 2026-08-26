@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Aw, man. You're such a friggin' disgrace. I can't believe I spent so much time trying to defeat such a coward. Now get up and fight!"
+> "While it takes time to recover from the loss of a loved one, having an opportunity to take your mind off things helps too."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Yogi**](https://myanimelist.net/character.php?q=Yogi&cat=character), [**Karneval**](https://myanimelist.net/search/all?q=Karneval&cat=all)
