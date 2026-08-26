@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Only one thing separates dangerous people and safe people: whether they know you or not. If they think you're a good person, they will all smile back at you."
+> "The scar of my past will determine my future!"
 
-&mdash; [**Claude Claudel**](https://myanimelist.net/character.php?q=Claude%20Claudel&cat=character), [**Croisée in a Foreign Labyrinth - The Animation**](https://myanimelist.net/search/all?q=Crois%C3%A9e%20in%20a%20Foreign%20Labyrinth%20-%20The%20Animation&cat=all)
+&mdash; [**Kenshin Himura**](https://myanimelist.net/character.php?q=Kenshin%20Himura&cat=character), [**Rurouni Kenshin**](https://myanimelist.net/search/all?q=Rurouni%20Kenshin&cat=all)
