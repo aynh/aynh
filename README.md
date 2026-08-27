@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You have to do the things you don't want to do, before you can do the things you truly want to do."
+> "Your darkness and hopelessness are like vapor. They're nothing more than shadows that shall melt away and disappear under the moon's light"
 
-&mdash; [**Tsutomu Komano**](https://myanimelist.net/character.php?q=Tsutomu%20Komano&cat=character), [**Chihayafuru**](https://myanimelist.net/search/all?q=Chihayafuru&cat=all)
+&mdash; [**Chikane Himemiya**](https://myanimelist.net/character.php?q=Chikane%20Himemiya&cat=character), [**Kannazuki no Miko**](https://myanimelist.net/search/all?q=Kannazuki%20no%20Miko&cat=all)
