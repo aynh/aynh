@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll show you a real assassination. No... Maybe you won't even be able to see it."
+> "I want to find a path that no one else had taken into consideration."
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Miyuki Sagara**](https://myanimelist.net/character.php?q=Miyuki%20Sagara&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
