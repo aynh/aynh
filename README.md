@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I want to find a path that no one else had taken into consideration."
+> "In this world, there are things you have to protect even if your hands get stained with blood."
 
-&mdash; [**Miyuki Sagara**](https://myanimelist.net/character.php?q=Miyuki%20Sagara&cat=character), [**RDG: Red Data Girl**](https://myanimelist.net/search/all?q=RDG%3A%20Red%20Data%20Girl&cat=all)
+&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
