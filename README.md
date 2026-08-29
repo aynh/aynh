@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In this world, there are things you have to protect even if your hands get stained with blood."
+> "Marriage, the institution where one's existence goes to die. All married people prattle on about their so-called marital bliss about how they love saying 'I'm home!' to their spouses, or how seeing their sleeping kids motivates them for tomorrow. But think about it: you can say 'I'm home!' if you live your parents, you can even buy some mouthwash and say 'I'm home!' to the hippos on the label. And if they're talking about seeing their sleeping kids, that just means they're working hellish overtime hours. How is that in any way blissful?"
 
-&mdash; [**Okita Sougo**](https://myanimelist.net/character.php?q=Okita%20Sougo&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
