@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whenever I look at you, I'm reminded about everything I hate about myself. It hurts."
+> "Bad skin?! Normal teenagers worry about bad skin, I don't have that luxury. My father decided to teach me a permanent lesson... ON MY FACE!"
 
-&mdash; [**Nicholas D. Wolfwood**](https://myanimelist.net/character.php?q=Nicholas%20D.%20Wolfwood&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
