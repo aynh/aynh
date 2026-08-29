@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bad skin?! Normal teenagers worry about bad skin, I don't have that luxury. My father decided to teach me a permanent lesson... ON MY FACE!"
+> "You'll break. Humans are so fragile."
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Argentine**](https://myanimelist.net/character.php?q=Argentine&cat=character), [**D.N.Angel**](https://myanimelist.net/search/all?q=D.N.Angel&cat=all)
