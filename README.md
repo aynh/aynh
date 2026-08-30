@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Loyalty to someone is different from depending on them."
+> "Bite my ankles shorty, I swear I'll make you cry to your mom! If you have a mom, that is!"
 
-&mdash; [**Zaraki Kenpachi**](https://myanimelist.net/character.php?q=Zaraki%20Kenpachi&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
