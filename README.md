@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Bite my ankles shorty, I swear I'll make you cry to your mom! If you have a mom, that is!"
+> "Memories - they can sometimes become vague and foggy and there are times when they disappear altogether. Therefore, because there are many things I don't want to lose track of, I will record everything in here (his diary) for the sake of those moments that should not be forgotten."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Keisuke Urashima**](https://myanimelist.net/character.php?q=Keisuke%20Urashima&cat=character), [**Love Hina**](https://myanimelist.net/search/all?q=Love%20Hina&cat=all)
