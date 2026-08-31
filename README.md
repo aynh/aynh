@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death is not friendly. It's dark, black where you look at it. You're all alone. But it's no different when you're alive, right? No matter how many relationships we seem to have, we're all alone."
+> "STOP IMAGINING ME!"
 
-&mdash; [**Mei Misaki**](https://myanimelist.net/character.php?q=Mei%20Misaki&cat=character), [**Another**](https://myanimelist.net/search/all?q=Another&cat=all)
+&mdash; [**Sohma Yuki**](https://myanimelist.net/character.php?q=Sohma%20Yuki&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
