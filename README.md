@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Memories - they can sometimes become vague and foggy and there are times when they disappear altogether. Therefore, because there are many things I don't want to lose track of, I will record everything in here (his diary) for the sake of those moments that should not be forgotten."
+> "You don't have any power or technique like Jack Johnson or Jack Dempsey either! You know any boxer names? You know I'm right? If you're an American, of course you know! If you say you don't know, or something, I won't forgive you! I will never forgive you! And even if you know them, I still won't forgive you, though!"
 
-&mdash; [**Keisuke Urashima**](https://myanimelist.net/character.php?q=Keisuke%20Urashima&cat=character), [**Love Hina**](https://myanimelist.net/search/all?q=Love%20Hina&cat=all)
+&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
