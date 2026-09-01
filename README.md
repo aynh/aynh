@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Neutral Jing is the key to earthbending. It involves listening and waiting for the right moment to strike."
+> "If a couple curses stopped me, what kind of hero would I be?!"
 
-&mdash; [**King Bumi**](https://myanimelist.net/character.php?q=King%20Bumi&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
