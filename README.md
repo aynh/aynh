@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If a couple curses stopped me, what kind of hero would I be?!"
+> "Bonds that are too strong create flaws over time."
 
-&mdash; [**Gilgamesh**](https://myanimelist.net/character.php?q=Gilgamesh&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
+&mdash; [**Road Kamelot**](https://myanimelist.net/character.php?q=Road%20Kamelot&cat=character), [**D.Gray-man**](https://myanimelist.net/search/all?q=D.Gray-man&cat=all)
