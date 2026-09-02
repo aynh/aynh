@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you wanna climb a mountain, you obviously aim for the top, but you gotta enjoy the scenery too."
+> "In society, those who don't have many abilities, tend to complain more."
 
-&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Hatake Kakashi**](https://myanimelist.net/character.php?q=Hatake%20Kakashi&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
