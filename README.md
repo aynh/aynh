@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Space extends infinitely. The probability of an encounter may be low, but it isn't nonexistent."
+> "If you wanna climb a mountain, you obviously aim for the top, but you gotta enjoy the scenery too."
 
-&mdash; [**Nanako**](https://myanimelist.net/character.php?q=Nanako&cat=character), [**Houkago no Pleiades**](https://myanimelist.net/search/all?q=Houkago%20no%20Pleiades&cat=all)
+&mdash; [**Teppei Kiyoshi**](https://myanimelist.net/character.php?q=Teppei%20Kiyoshi&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
