@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Simple: girls are better at fixing pants than guys, and guys are better at hunting and fighting and stuff like that. It's just the natural order of things."
+> "Even if the clothes are too large in the beginning, they’ll fill out as you grow. The same goes for courage… The secret of not getting killed by the enemy is to underestimate life’s difficulties."
 
-&mdash; [**Sokka**](https://myanimelist.net/character.php?q=Sokka&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Olivier Poplan**](https://myanimelist.net/character.php?q=Olivier%20Poplan&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
