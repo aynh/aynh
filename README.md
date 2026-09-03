@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if the clothes are too large in the beginning, they’ll fill out as you grow. The same goes for courage… The secret of not getting killed by the enemy is to underestimate life’s difficulties."
+> "Dreams are illusions. All they do is interfere with reality."
 
-&mdash; [**Olivier Poplan**](https://myanimelist.net/character.php?q=Olivier%20Poplan&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Ein**](https://myanimelist.net/character.php?q=Ein&cat=character), [**Phantom: Requiem For The Phantom**](https://myanimelist.net/search/all?q=Phantom%3A%20Requiem%20For%20The%20Phantom&cat=all)
