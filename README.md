@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Dreams are illusions. All they do is interfere with reality."
+> "Whatever you value... What you consider right is up to you. But don't force those ideals onto other people."
 
-&mdash; [**Ein**](https://myanimelist.net/character.php?q=Ein&cat=character), [**Phantom: Requiem For The Phantom**](https://myanimelist.net/search/all?q=Phantom%3A%20Requiem%20For%20The%20Phantom&cat=all)
+&mdash; [**Yozuru Kagenui**](https://myanimelist.net/character.php?q=Yozuru%20Kagenui&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
