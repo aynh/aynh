@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whatever you value... What you consider right is up to you. But don't force those ideals onto other people."
+> "Youmu or Spirit Warrior... In the end, none of that really matters. Nor does the question of who you are. All that matters is to be close to the ones you care about."
 
-&mdash; [**Yozuru Kagenui**](https://myanimelist.net/character.php?q=Yozuru%20Kagenui&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Yayoi Kanbara**](https://myanimelist.net/character.php?q=Yayoi%20Kanbara&cat=character), [**Gekijou-ban Kyoukai no Kanata -I'll Be Here- Mirai-hen**](https://myanimelist.net/search/all?q=Gekijou-ban%20Kyoukai%20no%20Kanata%20-I'll%20Be%20Here-%20Mirai-hen&cat=all)
