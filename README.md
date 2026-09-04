@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm worthless garbage who can't even write a straight looking K!"
+> "People who perish in other’s battles are worms… If one can’t live their life the way they want, they might as well die."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Guts**](https://myanimelist.net/character.php?q=Guts&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
