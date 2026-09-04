@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They say those who die, go to heaven. I don't think so. I think when we die, we go to live on in someone else's heart. We live on in their memories. Just like how our parents stay in our hearts. But with time, memories fade. That's why people wish to leave something behind. They don't want to be forgotten. Nobody wants to be forgotten."
+> "Reject common sense to make the impossible possible!"
 
-&mdash; [**Kaito Kirishima**](https://myanimelist.net/character.php?q=Kaito%20Kirishima&cat=character), [**Ano Natsu de Matteru**](https://myanimelist.net/search/all?q=Ano%20Natsu%20de%20Matteru&cat=all)
+&mdash; [**Simon**](https://myanimelist.net/character.php?q=Simon&cat=character), [**Tengen Toppa Gurren Lagann**](https://myanimelist.net/search/all?q=Tengen%20Toppa%20Gurren%20Lagann&cat=all)
