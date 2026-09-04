@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you run into a wall and pretend it doesn't exist, you'll never make progress. The wall will never change, so you're the one who has to change."
+> "People are born into this world. And people are taken from this world."
 
-&mdash; [**Hijikata Toushirou**](https://myanimelist.net/character.php?q=Hijikata%20Toushirou&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
