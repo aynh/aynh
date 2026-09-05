@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To enjoy an ordinary life, you must constantly evolve."
+> "'Control'... you say? When you stand before me... that word holds no meaning. Bankai. Senbonzakura Kageyoshi."
 
-&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2**](https://myanimelist.net/search/all?q=Durarara!!%C3%972&cat=all)
+&mdash; [**Kuchiki Byakuya**](https://myanimelist.net/character.php?q=Kuchiki%20Byakuya&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
