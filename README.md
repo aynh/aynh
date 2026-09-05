@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't sit around envying other peoples worlds. You have to go out and change your own."
+> "Kagome, what do you have in your bag? Rocks?"
 
-&mdash; [**Chiaki Shinichi**](https://myanimelist.net/character.php?q=Chiaki%20Shinichi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
+&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
