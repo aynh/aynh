@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Assassins Rule Number One - Silence: Dissolve in the darkness and erase your breath. Wait for an opening to attack your target."
+> "To enjoy an ordinary life, you must constantly evolve."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Izaya Orihara**](https://myanimelist.net/character.php?q=Izaya%20Orihara&cat=character), [**Durarara!!×2**](https://myanimelist.net/search/all?q=Durarara!!%C3%972&cat=all)
