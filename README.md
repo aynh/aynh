@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A woman's jealousy is blacker than the oceans deepest chasm. You may all begin screaming now."
+> "You can't sit around envying other peoples worlds. You have to go out and change your own."
 
-&mdash; [**Ryuuguu Otohime**](https://myanimelist.net/character.php?q=Ryuuguu%20Otohime&cat=character), [**Okami-san And Her Seven Companions**](https://myanimelist.net/search/all?q=Okami-san%20And%20Her%20Seven%20Companions&cat=all)
+&mdash; [**Chiaki Shinichi**](https://myanimelist.net/character.php?q=Chiaki%20Shinichi&cat=character), [**Nodame Cantabile**](https://myanimelist.net/search/all?q=Nodame%20Cantabile&cat=all)
