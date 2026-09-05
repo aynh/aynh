@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You didn't raise a weapon. You raised a son."
+> "Assassins Rule Number One - Silence: Dissolve in the darkness and erase your breath. Wait for an opening to attack your target."
 
-&mdash; [**Shura Kirigakure**](https://myanimelist.net/character.php?q=Shura%20Kirigakure&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
