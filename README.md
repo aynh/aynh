@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I hate talkative guys... They gross me out."
+> "In the end the shape and form don't matter at all, it's only the soul that matters, right? Nothing else."
 
-&mdash; [**Matsumoto Rangiku**](https://myanimelist.net/character.php?q=Matsumoto%20Rangiku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Soul Eater**](https://myanimelist.net/character.php?q=Soul%20Eater&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
