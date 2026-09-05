@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Kagome, what do you have in your bag? Rocks?"
+> "You didn't raise a weapon. You raised a son."
 
-&mdash; [**Shippou**](https://myanimelist.net/character.php?q=Shippou&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Shura Kirigakure**](https://myanimelist.net/character.php?q=Shura%20Kirigakure&cat=character), [**Ao no Exorcist**](https://myanimelist.net/search/all?q=Ao%20no%20Exorcist&cat=all)
