@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "An illusion is darkness. Those who cannot see the darkness cannot resist its sweet temptation and are stained black. Eventually the darkness envelops the light controlling everything."
+> "Do you know how they say that love is like a dream? With a dream, you eventually wake up from it. It's hard to force yourself to wake up."
 
-&mdash; [**Luka Crosszeria**](https://myanimelist.net/character.php?q=Luka%20Crosszeria&cat=character), [**Uragiri Wa Boku No Namae Wo Shitteiru**](https://myanimelist.net/search/all?q=Uragiri%20Wa%20Boku%20No%20Namae%20Wo%20Shitteiru&cat=all)
+&mdash; [**Kumin Tsuyuri**](https://myanimelist.net/character.php?q=Kumin%20Tsuyuri&cat=character), [**Chuunibyou Demo Koi Ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyou%20Demo%20Koi%20Ga%20Shitai!&cat=all)
