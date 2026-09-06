@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end the shape and form don't matter at all, it's only the soul that matters, right? Nothing else."
+> "An illusion is darkness. Those who cannot see the darkness cannot resist its sweet temptation and are stained black. Eventually the darkness envelops the light controlling everything."
 
-&mdash; [**Soul Eater**](https://myanimelist.net/character.php?q=Soul%20Eater&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Luka Crosszeria**](https://myanimelist.net/character.php?q=Luka%20Crosszeria&cat=character), [**Uragiri Wa Boku No Namae Wo Shitteiru**](https://myanimelist.net/search/all?q=Uragiri%20Wa%20Boku%20No%20Namae%20Wo%20Shitteiru&cat=all)
