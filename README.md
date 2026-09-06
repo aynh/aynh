@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who say they don't know their own feelings are deluding themselves. It's because you refuse to accept what you're thinking deep down in your heart, you think you don't understand."
+> "It's quite educational, seeing the thought process of someone in charge."
 
-&mdash; [**Kenji Yamaguchi**](https://myanimelist.net/character.php?q=Kenji%20Yamaguchi&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
