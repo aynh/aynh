@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People who grow up in different environments will invariably have different tastes and preferences. Therefore, could one say that the subsequent marriages necessarily lead to happiness?"
+> "[his parting words to Arrietty] My heart is stronger now, because you're in it."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore No Seishun Love Come Wa Machigatteiru**](https://myanimelist.net/search/all?q=Yahari%20Ore%20No%20Seishun%20Love%20Come%20Wa%20Machigatteiru&cat=all)
+&mdash; [**Shawn**](https://myanimelist.net/character.php?q=Shawn&cat=character), [**Karigurashi no Arrietty**](https://myanimelist.net/search/all?q=Karigurashi%20no%20Arrietty&cat=all)
