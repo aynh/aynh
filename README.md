@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's not difficult to compose poetry. You just have to translate your feelings into meter."
+> "Team Rocket may be dirty rotten criminals, but we're not in the business of destroying children's dreams! At least, not yet."
 
-&mdash; [**Kanade Ōe**](https://myanimelist.net/character.php?q=Kanade%20%C5%8Ce&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
