@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You don’t win alone. That’s just how it is."
+> "[singing] Total slaughter, total slaughter. I won't leave a single man alive. La de da de die, genocide. La de da de dud, an ocean of blood. Let's begin the killing time."
 
-&mdash; [**Tobio Kageyama**](https://myanimelist.net/character.php?q=Tobio%20Kageyama&cat=character), [**Haikyuu!!**](https://myanimelist.net/search/all?q=Haikyuu!!&cat=all)
+&mdash; [**Vash the Stampede**](https://myanimelist.net/character.php?q=Vash%20the%20Stampede&cat=character), [**Trigun**](https://myanimelist.net/search/all?q=Trigun&cat=all)
