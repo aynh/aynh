@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You know, I really can't stand it when guys pick on people weaker than them...but I guess I'll do it to you anyway!"
+> "I am a scientist, I have to act on my own theory. I can't let my emotions get in the way. But it's impossible to forget everything... because I've known you for longer than we've lived. This is reality. This is the world."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Kurisu Makise**](https://myanimelist.net/character.php?q=Kurisu%20Makise&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
