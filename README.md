@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[his parting words to Arrietty] My heart is stronger now, because you're in it."
+> "Mankind's greatest fear is Mankind itself."
 
-&mdash; [**Shawn**](https://myanimelist.net/character.php?q=Shawn&cat=character), [**Karigurashi no Arrietty**](https://myanimelist.net/search/all?q=Karigurashi%20no%20Arrietty&cat=all)
+&mdash; [**Gendou Ikari**](https://myanimelist.net/character.php?q=Gendou%20Ikari&cat=character), [**Neon Genesis Evangelion**](https://myanimelist.net/search/all?q=Neon%20Genesis%20Evangelion&cat=all)
