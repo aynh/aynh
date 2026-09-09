@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'll die smiling! Because if you ever think of me in the future, I want you to remember me smiling."
+> "In every time, in every world, the strong polish their fangs while the weak polish their wisdom."
 
-&mdash; [**Donquixote Rosinante**](https://myanimelist.net/character.php?q=Donquixote%20Rosinante&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
