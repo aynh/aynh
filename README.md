@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You've fought a valiant duel, my friend, and this is the hardest move I've ever had to make. But this ends now!"
+> "Ever since that day, I've kept this broom balanced on my fingertip."
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Shiina**](https://myanimelist.net/character.php?q=Shiina&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
