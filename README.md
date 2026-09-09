@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[to Katara] You rise with the moon. I rise with the sun."
+> "It's okay, no need to thank me or say anything else. I will always be there for you, I will make you fall for me over and over again."
 
-&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
