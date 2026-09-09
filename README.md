@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Excuse me... I'm not a microphone! I'm a chain scythe."
+> "I'll die smiling! Because if you ever think of me in the future, I want you to remember me smiling."
 
-&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Donquixote Rosinante**](https://myanimelist.net/character.php?q=Donquixote%20Rosinante&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
