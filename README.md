@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ever since that day, I've kept this broom balanced on my fingertip."
+> "[to Katara] You rise with the moon. I rise with the sun."
 
-&mdash; [**Shiina**](https://myanimelist.net/character.php?q=Shiina&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Zuko**](https://myanimelist.net/character.php?q=Zuko&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
