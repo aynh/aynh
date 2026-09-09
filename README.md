@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Everybody has to display a certain loyalty to their paycheck. I was the same way. It isn’t just a piece of paper, but a chain that binds people."
+> "Excuse me... I'm not a microphone! I'm a chain scythe."
 
-&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Tsubaki Nakatsukasa**](https://myanimelist.net/character.php?q=Tsubaki%20Nakatsukasa&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
