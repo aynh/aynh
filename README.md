@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In every time, in every world, the strong polish their fangs while the weak polish their wisdom."
+> "It's simple. Even a single Coordinator is a threat to the Earth's survival, and our goal here is to get rid of them all!"
 
-&mdash; [**Sora**](https://myanimelist.net/character.php?q=Sora&cat=character), [**No Game No Life**](https://myanimelist.net/search/all?q=No%20Game%20No%20Life&cat=all)
+&mdash; [**Muruta Azrael**](https://myanimelist.net/character.php?q=Muruta%20Azrael&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
