@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who are granted great power lose all self-restraint when among the weak. Oranges don't start out rotten. It's the container that makes them rot."
+> "When you feel your life's on the line, your true nature surfaces."
 
-&mdash; [**Onodera**](https://myanimelist.net/character.php?q=Onodera&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Shinichi Izumi**](https://myanimelist.net/character.php?q=Shinichi%20Izumi&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
