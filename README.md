@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you feel your life's on the line, your true nature surfaces."
+> "People's mind are like alien existence. We don't know where they are, and we can barely scratch the surface of what they really are."
 
-&mdash; [**Shinichi Izumi**](https://myanimelist.net/character.php?q=Shinichi%20Izumi&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
+&mdash; [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/character.php?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=character), [**Denpa Onna to Seishun Otoko**](https://myanimelist.net/search/all?q=Denpa%20Onna%20to%20Seishun%20Otoko&cat=all)
