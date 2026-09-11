@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "To ask is a moment's shame. Not to, lifelong."
+> "My only ambition is simply to kill as many people as humanly possible."
 
-&mdash; [**Yotsugi Ononoki**](https://myanimelist.net/character.php?q=Yotsugi%20Ononoki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
+&mdash; [**Bankotsu**](https://myanimelist.net/character.php?q=Bankotsu&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
