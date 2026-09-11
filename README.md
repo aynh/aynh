@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What about when you reciprocate someone else’s emotions? Is that still coming from you… or is the air connecting you to one another?"
+> "To ask is a moment's shame. Not to, lifelong."
 
-&mdash; [**Jinno Yuu**](https://myanimelist.net/character.php?q=Jinno%20Yuu&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
+&mdash; [**Yotsugi Ononoki**](https://myanimelist.net/character.php?q=Yotsugi%20Ononoki&cat=character), [**Monogatari Series: Second Season**](https://myanimelist.net/search/all?q=Monogatari%20Series%3A%20Second%20Season&cat=all)
