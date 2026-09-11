@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sharing your secret with someone means you involve them in your problems. It may make things easier for you, but your family could end up suffering for it too."
+> "What about when you reciprocate someone else’s emotions? Is that still coming from you… or is the air connecting you to one another?"
 
-&mdash; [**Mayoi Hachikuji**](https://myanimelist.net/character.php?q=Mayoi%20Hachikuji&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Jinno Yuu**](https://myanimelist.net/character.php?q=Jinno%20Yuu&cat=character), [**Nerawareta Gakuen**](https://myanimelist.net/search/all?q=Nerawareta%20Gakuen&cat=all)
