@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm a coward. But I wanted to stay by your side. The truth is I was so happy to hear that you needed me, I took advantage of your words. But you're crying again, because of me. I'm no blessed vessel. I'm just a piece of junk. I was supposed to guide you, but this was the only way I knew how."
+> "ou know you're a real wise ass, you know that?! (to Yuki)"
 
-&mdash; [**Kazuma**](https://myanimelist.net/character.php?q=Kazuma&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
+&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
