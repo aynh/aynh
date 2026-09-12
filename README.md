@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once you taste poison, you might as well finish the meal. If it comes to that you would make as fine a dish as any."
+> "Secondhand smoke kills, you know. It's far worse than the fumes you inhale directly. Take diethylene, one of those nasty carcinogens your doctor might have warned you about on your last visit. Firsthand smoke has between 5.3 and 43 nanograms of diethylene, whereas, secondhand smoke has 680 and 823 nanograms.Then we've got quinoline, another effective one, secondhand smoke has 18,000 nanograms; 11 times more than the amount you're sucking down firsthand. You can make the choice to blacken your lungs, but don't expect to enforce that on me."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**November 11**](https://myanimelist.net/character.php?q=November%2011&cat=character), [**Darker than Black**](https://myanimelist.net/search/all?q=Darker%20than%20Black&cat=all)
