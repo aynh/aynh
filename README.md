@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if doesn't alter or change the end result in the slightest, making decisions based on convictions that you believe in and walking your own path has its own merit and worth. There's something to be said for not having... even one regret."
+> "Someday you'll let go of my hand. When you finally look to the far, far sky, I'll kick you from behind and laugh at you to hurry."
 
-&mdash; [**Haschwalth Jugram**](https://myanimelist.net/character.php?q=Haschwalth%20Jugram&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
