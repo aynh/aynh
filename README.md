@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My only ambition is simply to kill as many people as humanly possible."
+> "I'm a coward. But I wanted to stay by your side. The truth is I was so happy to hear that you needed me, I took advantage of your words. But you're crying again, because of me. I'm no blessed vessel. I'm just a piece of junk. I was supposed to guide you, but this was the only way I knew how."
 
-&mdash; [**Bankotsu**](https://myanimelist.net/character.php?q=Bankotsu&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Kazuma**](https://myanimelist.net/character.php?q=Kazuma&cat=character), [**Noragami**](https://myanimelist.net/search/all?q=Noragami&cat=all)
