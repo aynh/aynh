@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "ou know you're a real wise ass, you know that?! (to Yuki)"
+> "Once you taste poison, you might as well finish the meal. If it comes to that you would make as fine a dish as any."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
