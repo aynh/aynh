@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey! Shorty's a lot cooler than I thought."
+> "Pride is an eminent trait, but too much will cause arrogance. That is when it becomes disgusting."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Duke Tōgō**](https://myanimelist.net/character.php?q=Duke%20T%C5%8Dg%C5%8D&cat=character), [**Golgo 13**](https://myanimelist.net/search/all?q=Golgo%2013&cat=all)
