@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Pride is an eminent trait, but too much will cause arrogance. That is when it becomes disgusting."
+> "I believe the difference between those up there and me is the question of whether you have given up or not."
 
-&mdash; [**Duke Tōgō**](https://myanimelist.net/character.php?q=Duke%20T%C5%8Dg%C5%8D&cat=character), [**Golgo 13**](https://myanimelist.net/search/all?q=Golgo%2013&cat=all)
+&mdash; [**Ja Wangnan**](https://myanimelist.net/character.php?q=Ja%20Wangnan&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
