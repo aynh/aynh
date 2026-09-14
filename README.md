@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The souls that God has given us, our spirits. Our spirits, which found a way to swim through the immense network and live in the infinity of space. Is not the human body a mere shell? A form of existence all too small and weak for consciousness with such vast reach and potential."
+> "Whether doing good or evil, I will be the boss."
 
-&mdash; [**Londes**](https://myanimelist.net/character.php?q=Londes&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Kagura**](https://myanimelist.net/character.php?q=Kagura&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
