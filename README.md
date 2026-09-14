@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe the difference between those up there and me is the question of whether you have given up or not."
+> "If you don't get accepted by anyone, does that mean there's no significance for you to live on?"
 
-&mdash; [**Ja Wangnan**](https://myanimelist.net/character.php?q=Ja%20Wangnan&cat=character), [**Tower Of God**](https://myanimelist.net/search/all?q=Tower%20Of%20God&cat=all)
+&mdash; [**Alice**](https://myanimelist.net/character.php?q=Alice&cat=character), [**Pandora Hearts**](https://myanimelist.net/search/all?q=Pandora%20Hearts&cat=all)
