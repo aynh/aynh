@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after learning Guy Sensei's name. Might Guy] Yeah, mighty stupid looking guy!"
+> "I do not fear death. I fear only that my rage will fade over time."
 
-&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Kurapika**](https://myanimelist.net/character.php?q=Kurapika&cat=character), [**Hunter X Hunter**](https://myanimelist.net/search/all?q=Hunter%20X%20Hunter&cat=all)
