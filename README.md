@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Whether it's good or bad, it's so unfortunate to wake up during a dream."
+> "[after learning Guy Sensei's name. Might Guy] Yeah, mighty stupid looking guy!"
 
-&mdash; [**Judeau**](https://myanimelist.net/character.php?q=Judeau&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Kisame Hoshigaki**](https://myanimelist.net/character.php?q=Kisame%20Hoshigaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
