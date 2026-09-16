@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am lightning. No matter how hard they try, mankind can never overcome lightning. Since ancient times, mankind has labeled the unknowns of nature as God. And anything they could not understand, they feared. Everything which befalls mankind is said to be the work of God. Mankind accepts that it cannot defeat natural disasters. And I am one of them."
+> "We weep for the blood of a bird, but not for the blood of a fish. Blessed are those with a voice. If the dolls could speak, no doubt they'd scream, 'I didn't want to become human'."
 
-&mdash; [**Enel**](https://myanimelist.net/character.php?q=Enel&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell 2: Innocence**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell%202%3A%20Innocence&cat=all)
