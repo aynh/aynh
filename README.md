@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Risks are just an unavoidable part of life. Even if you realize the danger, nothing's gonna come from always running away. That way, even when you die, you can be content that you gave it your all."
+> "He can't dance in my world right now. Don't let me cry!"
 
-&mdash; [**Sachi Nanjou**](https://myanimelist.net/character.php?q=Sachi%20Nanjou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
+&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
