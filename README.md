@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We will have lost only the moment humans give up and stop fighting. As long as they keep on fighting, our defeat is not certain."
+> "I'm only attracted to girls in games!! Reality is just a shitty game."
 
-&mdash; [**Mike Zacharias**](https://myanimelist.net/character.php?q=Mike%20Zacharias&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
