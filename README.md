@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He can't dance in my world right now. Don't let me cry!"
+> "We will have lost only the moment humans give up and stop fighting. As long as they keep on fighting, our defeat is not certain."
 
-&mdash; [**TK**](https://myanimelist.net/character.php?q=TK&cat=character), [**Angel Beats!**](https://myanimelist.net/search/all?q=Angel%20Beats!&cat=all)
+&mdash; [**Mike Zacharias**](https://myanimelist.net/character.php?q=Mike%20Zacharias&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
