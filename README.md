@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm only attracted to girls in games!! Reality is just a shitty game."
+> "'No longer the Aizen you know,' hm...? I'm afraid you've been deluded, Abarai-kun...The 'Aizen Sousuke' you knew never existed to begin with."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Aizen Sousuke**](https://myanimelist.net/character.php?q=Aizen%20Sousuke&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
