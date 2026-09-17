@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it's fear that you speak of, then I'll stand and face it. I'll never give up. The only time I lose is when I die!"
+> "Risks are just an unavoidable part of life. Even if you realize the danger, nothing's gonna come from always running away. That way, even when you die, you can be content that you gave it your all."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Sachi Nanjou**](https://myanimelist.net/character.php?q=Sachi%20Nanjou&cat=character), [**Oyasumi Punpun**](https://myanimelist.net/search/all?q=Oyasumi%20Punpun&cat=all)
