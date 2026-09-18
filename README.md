@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Those who don't fulfill their obligation to others 'ave no right to ask 'em for such privilege..."
+> "Let me get this straight. You're going to defeat me with a creampuff and an elf?"
 
-&mdash; [**Mr. Blouse**](https://myanimelist.net/character.php?q=Mr.%20Blouse&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Seto Kaiba**](https://myanimelist.net/character.php?q=Seto%20Kaiba&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
