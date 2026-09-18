@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "No matter how hard someone's heart is, if you keep on talking to them, little by little, it'll eventually start to crack! I believe it! I believe that useless effort doesn't exist in this world!"
+> "Hinata, untie the ropes before you faint."
 
-&mdash; [**Ushiromiya Jessica**](https://myanimelist.net/character.php?q=Ushiromiya%20Jessica&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
