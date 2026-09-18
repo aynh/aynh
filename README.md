@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hinata, untie the ropes before you faint."
+> "There are three things I cannot tolerate: cowardice, bad haircuts, and military insurrection. It is very unfortunate that our friend Vegeta possesses all three of these."
 
-&mdash; [**Kiba Inuzuka**](https://myanimelist.net/character.php?q=Kiba%20Inuzuka&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Frieza**](https://myanimelist.net/character.php?q=Frieza&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
