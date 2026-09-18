@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are three things I cannot tolerate: cowardice, bad haircuts, and military insurrection. It is very unfortunate that our friend Vegeta possesses all three of these."
+> "A woman's jealousy is blacker than the oceans deepest chasm. You may all begin screaming now."
 
-&mdash; [**Frieza**](https://myanimelist.net/character.php?q=Frieza&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Ryuuguu Otohime**](https://myanimelist.net/character.php?q=Ryuuguu%20Otohime&cat=character), [**Okami-san And Her Seven Companions**](https://myanimelist.net/search/all?q=Okami-san%20And%20Her%20Seven%20Companions&cat=all)
