@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*to Urameshi* Sacrificing your life to save billions of others. You've lit our torches and I won't let your death be in vain... even if it means I'll be joining you soon."
+> "Compared to a man as big as me you realize how small you are, don't you? I understand how you feel. Even I can be frightened by my own greatness. So I find it difficult to stand in front of mirrors."
 
-&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
