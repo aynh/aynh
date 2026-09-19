@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I do want to be useful for something and to be of help to people, but I want to decide what that 'something' is by myself."
+> "There probably isn't any meaning in life. Perhaps you can find something interesting to do while you are alive. Like how you found that flower. Like how I found you."
 
-&mdash; [**Kawai Maria**](https://myanimelist.net/character.php?q=Kawai%20Maria&cat=character), [**Akuma To Love Song**](https://myanimelist.net/search/all?q=Akuma%20To%20Love%20Song&cat=all)
+&mdash; [**Orochimaru**](https://myanimelist.net/character.php?q=Orochimaru&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
