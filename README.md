@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[after hitting Kagura with his motor scooter, Gintoki looks inside a vending machine slot] D-don't worry. A-all we have to do is find a t-t-time machine."
+> "*to Urameshi* Sacrificing your life to save billions of others. You've lit our torches and I won't let your death be in vain... even if it means I'll be joining you soon."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Kazuma Kuwabara**](https://myanimelist.net/character.php?q=Kazuma%20Kuwabara&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
