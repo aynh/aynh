@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you turn your back on something you wanted, you don't deserve to call yourself greed!"
+> "The beginning exists for the end and the end exists for the beginning."
 
-&mdash; [**Ling Yao**](https://myanimelist.net/character.php?q=Ling%20Yao&cat=character), [**Fullmetal Alchemist: Brotherhood**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist%3A%20Brotherhood&cat=all)
+&mdash; [**Quon Kisaragi**](https://myanimelist.net/character.php?q=Quon%20Kisaragi&cat=character), [**RahXephon**](https://myanimelist.net/search/all?q=RahXephon&cat=all)
