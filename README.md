@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing you or your friends say will affect my life in any way, shape, or form."
+> "I don't understand you! You said you don't love me, but you act like you do! Then you tell me to stay away. Do I have a chance or not?!"
 
-&mdash; [**Jinta Yadomi**](https://myanimelist.net/character.php?q=Jinta%20Yadomi&cat=character), [**Ano Hi Mita Hana No Namae Wo Bokutachi Wa Mada Shiranai**](https://myanimelist.net/search/all?q=Ano%20Hi%20Mita%20Hana%20No%20Namae%20Wo%20Bokutachi%20Wa%20Mada%20Shiranai&cat=all)
+&mdash; [**Yoshida Haru**](https://myanimelist.net/character.php?q=Yoshida%20Haru&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
