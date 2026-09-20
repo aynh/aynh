@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The beginning exists for the end and the end exists for the beginning."
+> "Regardless if you see them or not, if you don't believe, then it's like they never existed."
 
-&mdash; [**Quon Kisaragi**](https://myanimelist.net/character.php?q=Quon%20Kisaragi&cat=character), [**RahXephon**](https://myanimelist.net/search/all?q=RahXephon&cat=all)
+&mdash; [**Kurosaki Karin**](https://myanimelist.net/character.php?q=Kurosaki%20Karin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
