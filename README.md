@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Regardless if you see them or not, if you don't believe, then it's like they never existed."
+> "Learn to treasure your life because unfortunately, it can be taken away from you anytime."
 
-&mdash; [**Kurosaki Karin**](https://myanimelist.net/character.php?q=Kurosaki%20Karin&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**L Lawliet**](https://myanimelist.net/character.php?q=L%20Lawliet&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
