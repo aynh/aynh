@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if it's a rule... whether or not I follow it is up to me. Whether I obey the rule or break it and get killed by my comrades... is my choice."
+> "I think it's fun to get to know a person little by little, through looking at their personality."
 
-&mdash; [**Teresa**](https://myanimelist.net/character.php?q=Teresa&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
