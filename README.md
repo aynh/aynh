@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is all that remains of the world. Though we knew it was coming, it’s pretty shocking, huh? The disappearance not of matter but of awareness, of ideals. Not death. Something even more pure. The fact that we life-forms ever existed…… Our past, present and future, it will all disappear."
+> "There are some things you can't say to someone, no matter how close you are."
 
-&mdash; [**Fumi Kanno**](https://myanimelist.net/character.php?q=Fumi%20Kanno&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
+&mdash; [**Nanami Aoyama**](https://myanimelist.net/character.php?q=Nanami%20Aoyama&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
