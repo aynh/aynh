@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "As long as it's for the right cause, there's nothing wrong with playing dirty."
+> "This is all that remains of the world. Though we knew it was coming, it’s pretty shocking, huh? The disappearance not of matter but of awareness, of ideals. Not death. Something even more pure. The fact that we life-forms ever existed…… Our past, present and future, it will all disappear."
 
-&mdash; [**Kureo Mado**](https://myanimelist.net/character.php?q=Kureo%20Mado&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Fumi Kanno**](https://myanimelist.net/character.php?q=Fumi%20Kanno&cat=character), [**Devil Survivor 2**](https://myanimelist.net/search/all?q=Devil%20Survivor%202&cat=all)
