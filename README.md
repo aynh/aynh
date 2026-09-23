@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We have to live a life of no regrets."
+> "For the first time, I felt honoured at being allowed to compete in this game of truth and error, and witches as a human... And ironically, that taught me that the truth is not necessarily only one when I believed that only one truth existed. By just broadening my field of vision a little, I can see a truth that is completely different. And no matter which one of the truths, if you can only see one of them, they will not be the right answer... Ah, in my life until now, I wonder how many truths have I turned away from because I was blinded by some trivial truth...? This is... the truth... of the world..."
 
-&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Furudo Erika**](https://myanimelist.net/character.php?q=Furudo%20Erika&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
