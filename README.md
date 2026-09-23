@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some things you can't say to someone, no matter how close you are."
+> "We have to live a life of no regrets."
 
-&mdash; [**Nanami Aoyama**](https://myanimelist.net/character.php?q=Nanami%20Aoyama&cat=character), [**Sakurasou no Pet na Kanojo**](https://myanimelist.net/search/all?q=Sakurasou%20no%20Pet%20na%20Kanojo&cat=all)
+&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
