@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I believe that hope exists in the despair of certain death. Like a speck of gold dust buried in a gray gravel."
+> "I think the best disciplining is pain."
 
-&mdash; [**Seiken Tsukai no World Break**](https://myanimelist.net/character.php?q=Seiken%20Tsukai%20no%20World%20Break&cat=character), [**Seiken Tsukai no World Break**](https://myanimelist.net/search/all?q=Seiken%20Tsukai%20no%20World%20Break&cat=all)
+&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
