@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Skilled only at making excuses that justify nothing, he is someone whose life has no value. The same goes for me. I have the right to stop you because I'm just like you."
+> "People struggle to find an answer even in things like math where there is clearly only one answer. So there's no shame in struggling through something that has no right answer."
 
-&mdash; [**Yuuji Kazami**](https://myanimelist.net/character.php?q=Yuuji%20Kazami&cat=character), [**Grisaia no Rakuen**](https://myanimelist.net/search/all?q=Grisaia%20no%20Rakuen&cat=all)
+&mdash; [**Momoka Hanai**](https://myanimelist.net/character.php?q=Momoka%20Hanai&cat=character), [**Koi Dano Ai Dano**](https://myanimelist.net/search/all?q=Koi%20Dano%20Ai%20Dano&cat=all)
