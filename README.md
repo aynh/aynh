@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People struggle to find an answer even in things like math where there is clearly only one answer. So there's no shame in struggling through something that has no right answer."
+> "Who decided that if you cry, you're weak?"
 
-&mdash; [**Momoka Hanai**](https://myanimelist.net/character.php?q=Momoka%20Hanai&cat=character), [**Koi Dano Ai Dano**](https://myanimelist.net/search/all?q=Koi%20Dano%20Ai%20Dano&cat=all)
+&mdash; [**Abeno Sousei**](https://myanimelist.net/character.php?q=Abeno%20Sousei&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
