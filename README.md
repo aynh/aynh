@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Things learned as a child stay with you forever."
+> "I believe that hope exists in the despair of certain death. Like a speck of gold dust buried in a gray gravel."
 
-&mdash; [**Cosette Sara**](https://myanimelist.net/character.php?q=Cosette%20Sara&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
+&mdash; [**Seiken Tsukai no World Break**](https://myanimelist.net/character.php?q=Seiken%20Tsukai%20no%20World%20Break&cat=character), [**Seiken Tsukai no World Break**](https://myanimelist.net/search/all?q=Seiken%20Tsukai%20no%20World%20Break&cat=all)
