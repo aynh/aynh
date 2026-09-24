@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Who decided that if you cry, you're weak?"
+> "Things learned as a child stay with you forever."
 
-&mdash; [**Abeno Sousei**](https://myanimelist.net/character.php?q=Abeno%20Sousei&cat=character), [**Donten ni Warau**](https://myanimelist.net/search/all?q=Donten%20ni%20Warau&cat=all)
+&mdash; [**Cosette Sara**](https://myanimelist.net/character.php?q=Cosette%20Sara&cat=character), [**Excel Saga**](https://myanimelist.net/search/all?q=Excel%20Saga&cat=all)
