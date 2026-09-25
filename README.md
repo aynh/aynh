@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even though we are going to shatter thousands of lives, wearing white is gonna make the blood look so pretty."
+> "I was younger then, I wasn't afraid of anything, I didn't think about dying for a second. I thought I was invincible. Then I met some girl. I wanted to live, I started to think like that; for the first time I was afraid of death. I had never felt like that before."
 
-&mdash; [**Ladd Russo**](https://myanimelist.net/character.php?q=Ladd%20Russo&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
