@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was younger then, I wasn't afraid of anything, I didn't think about dying for a second. I thought I was invincible. Then I met some girl. I wanted to live, I started to think like that; for the first time I was afraid of death. I had never felt like that before."
+> "If another me was born somewhere else, and had led a different life, how would he feel? If there was another version of myself somewhere on the other side of the ocean, what would happen if I were able to meet him? Would I be able to be his friend? Or would the differences in our upbringing be something that I couldn't overcome? Can I understand him because he is me? Or will he be impossible to understand because he's me?"
 
-&mdash; [**Spike Spiegel**](https://myanimelist.net/character.php?q=Spike%20Spiegel&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Tooru Kazasumi**](https://myanimelist.net/character.php?q=Tooru%20Kazasumi&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
