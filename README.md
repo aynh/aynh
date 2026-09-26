@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Because I wished for everyone to live, I did everything I could."
+> "I will stay by your side, my friend. Know that I am here, and that I am sorry. I am sorry that... I failed you. After waiting 600 years I made a beginner's mistake. I underestimated my enemy."
 
-&mdash; [**Sakura Kinomoto**](https://myanimelist.net/character.php?q=Sakura%20Kinomoto&cat=character), [**Tsubasa Reservoir Chronicle**](https://myanimelist.net/search/all?q=Tsubasa%20Reservoir%20Chronicle&cat=all)
+&mdash; [**Amidamaru**](https://myanimelist.net/character.php?q=Amidamaru&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
