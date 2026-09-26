@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am not Toph! I am Melon Lord! (Toph laughs maniacally)"
+> "I’ve been in your shoes. I was also given a chance. There’s no rush. You’ll get better very soon."
 
-&mdash; [**Toph Bei Fong**](https://myanimelist.net/character.php?q=Toph%20Bei%20Fong&cat=character), [**Avatar: The Last Airbender**](https://myanimelist.net/search/all?q=Avatar%3A%20The%20Last%20Airbender&cat=all)
+&mdash; [**Tsutomu Komano**](https://myanimelist.net/character.php?q=Tsutomu%20Komano&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
