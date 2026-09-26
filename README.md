@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I never wanted to save the world or make everyone happy. I never wanted to play God like that. If I could just save my family, and my friends… If I could just be a hero like that, I’d be happy."
+> "I hate the word 'fate.' Birth, encounters, partings, success and failures, fortune and misfortunes in life. If our lives are already set in stone by fate, then why are we even born? There are those born to wealthy families, those born to beautiful mothers, and those born into the middle of war or poverty. If that's all caused by fate, then God is incredibly unfair and cruel. Because, ever since that day, none of us had a future and the only certain thing was that we wouldn't amount to anything..."
 
-&mdash; [**Sakura Kyouko**](https://myanimelist.net/character.php?q=Sakura%20Kyouko&cat=character), [**Mahou Shoujo Madoka Magica: The Different Story**](https://myanimelist.net/search/all?q=Mahou%20Shoujo%20Madoka%20Magica%3A%20The%20Different%20Story&cat=all)
+&mdash; [**Takakura Shouma**](https://myanimelist.net/character.php?q=Takakura%20Shouma&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
