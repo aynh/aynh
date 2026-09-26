@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’ve been in your shoes. I was also given a chance. There’s no rush. You’ll get better very soon."
+> "I’m a very lucky person. I was able to meet people I love."
 
-&mdash; [**Tsutomu Komano**](https://myanimelist.net/character.php?q=Tsutomu%20Komano&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Noumi Kudoryafuka**](https://myanimelist.net/character.php?q=Noumi%20Kudoryafuka&cat=character), [**Little Busters!**](https://myanimelist.net/search/all?q=Little%20Busters!&cat=all)
