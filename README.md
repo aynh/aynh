@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Memories - they can sometimes become vague and foggy and there are times when they disappear altogether. Therefore, because there are many things I don't want to lose track of, I will record everything in here (his diary) for the sake of those moments that should not be forgotten."
+> "Red is supposed to be the color of fate, right? Even if it’s annoying now, it might connect to something good when you least expect it."
 
-&mdash; [**Keisuke Urashima**](https://myanimelist.net/character.php?q=Keisuke%20Urashima&cat=character), [**Love Hina**](https://myanimelist.net/search/all?q=Love%20Hina&cat=all)
+&mdash; [**Zen Wistalia**](https://myanimelist.net/character.php?q=Zen%20Wistalia&cat=character), [**Akagami no Shirayukihime**](https://myanimelist.net/search/all?q=Akagami%20no%20Shirayukihime&cat=all)
