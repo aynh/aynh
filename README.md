@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you someday find a way of life that you can truly be proud of, you'll be forced into your own battle whether you like it or not."
+> "The biggest mistake in my life is that i was born!"
 
-&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
+&mdash; [**Itoshiki Nozomu**](https://myanimelist.net/character.php?q=Itoshiki%20Nozomu&cat=character), [**Sayonara Zetsubou Sensei**](https://myanimelist.net/search/all?q=Sayonara%20Zetsubou%20Sensei&cat=all)
