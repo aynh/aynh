@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "A fake with more power than the real thing is more dangerous than the real thing."
+> "When you someday find a way of life that you can truly be proud of, you'll be forced into your own battle whether you like it or not."
 
-&mdash; [**Senjougahara Hitagi**](https://myanimelist.net/character.php?q=Senjougahara%20Hitagi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Rider**](https://myanimelist.net/character.php?q=Rider&cat=character), [**Fate/zero**](https://myanimelist.net/search/all?q=Fate%2Fzero&cat=all)
