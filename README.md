@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you are experienced you can become overly confident and such confidence can prove fatal."
+> "A pistol’s job is what its handler chooses. If I don’t wanna shoot, then I won’t."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Saya Minatsuki**](https://myanimelist.net/character.php?q=Saya%20Minatsuki&cat=character), [**Black Cat**](https://myanimelist.net/search/all?q=Black%20Cat&cat=all)
