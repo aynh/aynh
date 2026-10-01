@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I can't tell you that… You have to figure it out. Stand up and walk. Keep moving forward. You've got two good legs. So get up and use them. You're strong enough to make your own path."
+> "No one would help me. And that's when I understood... That only I could help myself."
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Mine**](https://myanimelist.net/character.php?q=Mine&cat=character), [**Akame ga KILL!**](https://myanimelist.net/search/all?q=Akame%20ga%20KILL!&cat=all)
