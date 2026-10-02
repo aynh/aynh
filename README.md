@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "All I ever did was pay attention to myself. And I'm not even sure I saw myself clearly."
+> "The world is constantly changing. And you can't expect it to stay the same, even for a second. If that's true, there's no need for you to go on a journey, Kino. Even if you stay in one place, you'll be able to keep experiencing the world."
 
-&mdash; [**Luke Fon Fabre**](https://myanimelist.net/character.php?q=Luke%20Fon%20Fabre&cat=character), [**Tales of the Abyss**](https://myanimelist.net/search/all?q=Tales%20of%20the%20Abyss&cat=all)
+&mdash; [**Hermes**](https://myanimelist.net/character.php?q=Hermes&cat=character), [**Kino**](https://myanimelist.net/search/all?q=Kino&cat=all)
