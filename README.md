@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Worrying about rejection may be the same as rejecting yourself."
+> "Battle was a thing which was won by living and which was lost by dying."
 
-&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/character.php?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
