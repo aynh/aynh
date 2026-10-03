@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Human is an existence full of sin."
+> "Compared to one million proverbs, just one word from your heart can prove victorious!"
 
-&mdash; [**Ai Enma**](https://myanimelist.net/character.php?q=Ai%20Enma&cat=character), [**Jigoku Shoujo**](https://myanimelist.net/search/all?q=Jigoku%20Shoujo&cat=all)
+&mdash; [**Rabat**](https://myanimelist.net/character.php?q=Rabat&cat=character), [**Vandread**](https://myanimelist.net/search/all?q=Vandread&cat=all)
