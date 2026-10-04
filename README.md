@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "But we're alive, aren't we? We don't have any magic power, but we're alive! We have the strength to overcome the weakness and the fear! That's what it means to be alive!"
+> "You guys are free to have a fight anywhere you want to, but interfering with an innocent girl’s meal is unforgivable. And, if it happens to be Lina Inverse’s meal, you’re lucky to be alive!"
 
-&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
