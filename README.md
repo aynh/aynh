@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are things I don't want to forget... Memories of time spent with friends. Memories of time spent with her alone. Memories are important. But there's something even more important... That's to continue making memories."
+> "Neither terrorism nor occultism have ever impacted history in any constructive way."
 
-&mdash; [**Yūki Hase**](https://myanimelist.net/character.php?q=Y%C5%ABki%20Hase&cat=character), [**Isshūkan Friends**](https://myanimelist.net/search/all?q=Issh%C5%ABkan%20Friends&cat=all)
+&mdash; [**Yang Wenli**](https://myanimelist.net/character.php?q=Yang%20Wenli&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
