@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You guys are free to have a fight anywhere you want to, but interfering with an innocent girl’s meal is unforgivable. And, if it happens to be Lina Inverse’s meal, you’re lucky to be alive!"
+> "How should I put this... There are times when you begin to hate everything around you."
 
-&mdash; [**Lina Inverse**](https://myanimelist.net/character.php?q=Lina%20Inverse&cat=character), [**Slayers**](https://myanimelist.net/search/all?q=Slayers&cat=all)
+&mdash; [**Nanami Takahashi**](https://myanimelist.net/character.php?q=Nanami%20Takahashi&cat=character), [**Bokura ga Ita**](https://myanimelist.net/search/all?q=Bokura%20ga%20Ita&cat=all)
