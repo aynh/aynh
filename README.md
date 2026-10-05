@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The weak always cling to words, and those with power die for those without it."
+> "It was just a rebound! Don't make a big deal over one or two arms!"
 
-&mdash; [**Claymore**](https://myanimelist.net/character.php?q=Claymore&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
+&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
