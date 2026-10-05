@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It was just a rebound! Don't make a big deal over one or two arms!"
+> "Is that the kinda attitude you show to someone concerned about you?! What's gonna happen to the person who wants to see ya, huh?!?! Its obvious... Its obvious you wish to see each other... SO COME AND FREAKIN' SEE ME ALREADY!!"
 
-&mdash; [**Edward Elric**](https://myanimelist.net/character.php?q=Edward%20Elric&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Arisa Uotani**](https://myanimelist.net/character.php?q=Arisa%20Uotani&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
