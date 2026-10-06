@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Knowing what it feels to be in pain, is exactly why we try to be kind to others."
+> "Sometimes, the blood rushes to my head and I feel like, if I run, I'll lose something important."
 
-&mdash; [**Jiraiya**](https://myanimelist.net/character.php?q=Jiraiya&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
+&mdash; [**Portgas D. Ace**](https://myanimelist.net/character.php?q=Portgas%20D.%20Ace&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
