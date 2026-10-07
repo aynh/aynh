@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can catch a mouse that's shut in a cage. However, catching a mouse in a field is like trying to catch a cloud."
+> "There is nothing less amusing than destroying those who have no will to live."
 
-&mdash; [**Beatrice**](https://myanimelist.net/character.php?q=Beatrice&cat=character), [**Umineko no Naku Koro ni**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni&cat=all)
+&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
