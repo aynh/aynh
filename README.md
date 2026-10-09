@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'd rather give up my eye, than give up his sword. Maybe I'm not so worthless after all."
+> "Sorry, I've had enough of running away, Sophie. Now I've got something I want to protect. It's you."
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Howl**](https://myanimelist.net/character.php?q=Howl&cat=character), [**Howl's Moving Castle**](https://myanimelist.net/search/all?q=Howl's%20Moving%20Castle&cat=all)
