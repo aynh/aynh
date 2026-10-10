@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Traditions that don't benefit people today are worthless."
+> "When you trust someone and get to know them, you eventually learn about their wounds too."
 
-&mdash; [**Tachibana Chika**](https://myanimelist.net/character.php?q=Tachibana%20Chika&cat=character), [**Nisekoi**](https://myanimelist.net/search/all?q=Nisekoi&cat=all)
+&mdash; [**Mei Tachibana**](https://myanimelist.net/character.php?q=Mei%20Tachibana&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
