@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear is freedom! Subjugation is liberation! Contradiction is truth! These are the truths of this world! Surrender to those truths, you pigs who fawn over clothing!"
+> "Smile. Not for anyone else, but for yourself. Show yourself your own smile. You'll feel better then."
 
-&mdash; [**Satsuki Kiryuuin**](https://myanimelist.net/character.php?q=Satsuki%20Kiryuuin&cat=character), [**Kill la Kill**](https://myanimelist.net/search/all?q=Kill%20la%20Kill&cat=all)
+&mdash; [**Rintarou Tatewaki**](https://myanimelist.net/character.php?q=Rintarou%20Tatewaki&cat=character), [**Magic-Kyun! Renaissance**](https://myanimelist.net/search/all?q=Magic-Kyun!%20Renaissance&cat=all)
