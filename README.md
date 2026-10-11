@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Ever since I joined the survey corps, I've had people dying on me everyday. But... you understand, don't you? One day or another, everyone you care about eventually dies. It's something we simply can't accept. It's a realization that could drive you insane... It's painful... so painful... I get it. And still... we must keep moving forward."
+> "To reach the top we must crush their dreams and climb atop their shattered hopes. The will to win at any cost, to obliterate the enemy if necessary, without ambition there is no way to move up."
 
-&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Agito Wanijima**](https://myanimelist.net/character.php?q=Agito%20Wanijima&cat=character), [**Air Gear**](https://myanimelist.net/search/all?q=Air%20Gear&cat=all)
