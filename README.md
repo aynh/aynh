@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I don't care if it is fortunate or unfortunate that Light picked up the Death Note. However... It is generally bad luck for a person to be followed by a God of Death."
+> "Ever since I joined the survey corps, I've had people dying on me everyday. But... you understand, don't you? One day or another, everyone you care about eventually dies. It's something we simply can't accept. It's a realization that could drive you insane... It's painful... so painful... I get it. And still... we must keep moving forward."
 
-&mdash; [**Ryuk**](https://myanimelist.net/character.php?q=Ryuk&cat=character), [**Death Note**](https://myanimelist.net/search/all?q=Death%20Note&cat=all)
+&mdash; [**Hange Zoe**](https://myanimelist.net/character.php?q=Hange%20Zoe&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
