@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The difference in ability... What about it? Do you think I should give up just because you're stronger than me?"
+> "They say 'there's always room for dessert', but for me, it's more like 'there's always room if someone else is paying'."
 
-&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Kasumi Fuu**](https://myanimelist.net/character.php?q=Kasumi%20Fuu&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
