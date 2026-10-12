@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I may be inept, but at least I don't forget to aim high!"
+> "The difference in ability... What about it? Do you think I should give up just because you're stronger than me?"
 
-&mdash; [**Aoi Toori**](https://myanimelist.net/character.php?q=Aoi%20Toori&cat=character), [**Kyoukai Senjou No Horizon**](https://myanimelist.net/search/all?q=Kyoukai%20Senjou%20No%20Horizon&cat=all)
+&mdash; [**Kurosaki Ichigo**](https://myanimelist.net/character.php?q=Kurosaki%20Ichigo&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
