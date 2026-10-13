@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nanao-chan is last place!"
+> "This isn’t a situation where you can stand on principle. If there’s something you want to protect, get your hands dirty."
 
-&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**L-elf Karlstein**](https://myanimelist.net/character.php?q=L-elf%20Karlstein&cat=character), [**Valvrave the Liberator**](https://myanimelist.net/search/all?q=Valvrave%20the%20Liberator&cat=all)
