@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This isn’t a situation where you can stand on principle. If there’s something you want to protect, get your hands dirty."
+> "Irony abounds in warfare."
 
-&mdash; [**L-elf Karlstein**](https://myanimelist.net/character.php?q=L-elf%20Karlstein&cat=character), [**Valvrave the Liberator**](https://myanimelist.net/search/all?q=Valvrave%20the%20Liberator&cat=all)
+&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
