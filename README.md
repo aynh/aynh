@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life can bring lots of hardships, but it's always important to keep in mind that there are people around you who care for you, and are willing to help you through whatever you're dealing with."
+> "Nanao-chan is last place!"
 
-&mdash; [**Furukawa Nagisa**](https://myanimelist.net/character.php?q=Furukawa%20Nagisa&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
+&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
