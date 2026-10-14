@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Irony abounds in warfare."
+> "Only one thing separates dangerous people and safe people: whether they know you or not. If they think you're a good person, they will all smile back at you."
 
-&mdash; [**Rau Le Creuset**](https://myanimelist.net/character.php?q=Rau%20Le%20Creuset&cat=character), [**Mobile Suit Gundam Seed**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%20Seed&cat=all)
+&mdash; [**Claude Claudel**](https://myanimelist.net/character.php?q=Claude%20Claudel&cat=character), [**Croisée in a Foreign Labyrinth - The Animation**](https://myanimelist.net/search/all?q=Crois%C3%A9e%20in%20a%20Foreign%20Labyrinth%20-%20The%20Animation&cat=all)
