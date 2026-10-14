@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Look, all it means is that when I lose it, it's cause things make no sense.  If there was any logic to it, then I wouldn't get pissed even if I got shot or stabbed."
+> "I am the white void, I am the cold steel, I am the just sword, with blade in hand shall I reap the sins of this world, and cleanse them in the fires of destruction! I am Hakumen! The end has come."
 
-&mdash; [**Shizuo Heiwajima**](https://myanimelist.net/character.php?q=Shizuo%20Heiwajima&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
+&mdash; [**Hakumen**](https://myanimelist.net/character.php?q=Hakumen&cat=character), [**BlazBlue: Alter Memory**](https://myanimelist.net/search/all?q=BlazBlue%3A%20Alter%20Memory&cat=all)
