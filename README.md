@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "These girls are pixels. Data. I know that. So how would you describe the girl you like? Protein? Calcium? A pointless argument. What’s important is that there’s love. Isn’t that what you people always say?"
+> "Look, all it means is that when I lose it, it's cause things make no sense.  If there was any logic to it, then I wouldn't get pissed even if I got shot or stabbed."
 
-&mdash; [**Keima Katsuragi**](https://myanimelist.net/character.php?q=Keima%20Katsuragi&cat=character), [**The World God Only Knows**](https://myanimelist.net/search/all?q=The%20World%20God%20Only%20Knows&cat=all)
+&mdash; [**Shizuo Heiwajima**](https://myanimelist.net/character.php?q=Shizuo%20Heiwajima&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
