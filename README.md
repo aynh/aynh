@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are some people who possess certain things that money cannot buy... as if it as as natural as breathing..."
+> "Humans continue to live in a cycle of death and destruction. Guns can't change anything. It merely creates an infinite chain of hatred and retribution."
 
-&mdash; [**Ryūichirō Isaka**](https://myanimelist.net/character.php?q=Ry%C5%ABichir%C5%8D%20Isaka&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
+&mdash; [**TimeKeeper**](https://myanimelist.net/character.php?q=TimeKeeper&cat=character), [**Gunslinger Stratos: The Animation**](https://myanimelist.net/search/all?q=Gunslinger%20Stratos%3A%20The%20Animation&cat=all)
