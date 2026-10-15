@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I was afraid of the me that didn't know what he wanted to do. And the days just keep on moving. But even then If I keep on going like this, will I be able to see it? Maybe someday."
+> "There are some people who possess certain things that money cannot buy... as if it as as natural as breathing..."
 
-&mdash; [**Yuuta Takemoto**](https://myanimelist.net/character.php?q=Yuuta%20Takemoto&cat=character), [**Honey and Clover**](https://myanimelist.net/search/all?q=Honey%20and%20Clover&cat=all)
+&mdash; [**Ryūichirō Isaka**](https://myanimelist.net/character.php?q=Ry%C5%ABichir%C5%8D%20Isaka&cat=character), [**Sekai Ichi Hatsukoi**](https://myanimelist.net/search/all?q=Sekai%20Ichi%20Hatsukoi&cat=all)
