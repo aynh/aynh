@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I am the white void, I am the cold steel, I am the just sword, with blade in hand shall I reap the sins of this world, and cleanse them in the fires of destruction! I am Hakumen! The end has come."
+> "Humans have faith too. It's important not to lose oneself. The strength to think, the courage not to run away."
 
-&mdash; [**Hakumen**](https://myanimelist.net/character.php?q=Hakumen&cat=character), [**BlazBlue: Alter Memory**](https://myanimelist.net/search/all?q=BlazBlue%3A%20Alter%20Memory&cat=all)
+&mdash; [**Erza Scarlet**](https://myanimelist.net/character.php?q=Erza%20Scarlet&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
