@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Do you know where hell is? Inside your head."
+> "Even if you want to tell him and want to be with him, sometimes, that's not enough."
 
-&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Tateyama Ayano**](https://myanimelist.net/character.php?q=Tateyama%20Ayano&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
