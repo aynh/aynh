@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We lost. We got wiped out. We may be finished. Maybe it was all a waste. Like they always said... We're idiots who've wasted our time on something as pointless as games. Game junkies who never leave their houses. Vegetables. But who cares? We knew that all along. We knew it, and we do it anyway. But we love games. We chose this. And sometimes we'll win, and sometimes we'll lose. So what? We've dedicated our lives to it. So it's real!"
+> "Do you know where hell is? Inside your head."
 
-&mdash; [**William Massachusetts**](https://myanimelist.net/character.php?q=William%20Massachusetts&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
+&mdash; [**Crona**](https://myanimelist.net/character.php?q=Crona&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
