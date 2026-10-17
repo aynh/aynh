@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Are we friends? Or are we foes? That kind of thing you decide for yourselves!"
+> "How sad it would be if laughter should disappear."
 
-&mdash; [**Monkey D. Luffy**](https://myanimelist.net/character.php?q=Monkey%20D.%20Luffy&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Undertaker**](https://myanimelist.net/character.php?q=Undertaker&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
