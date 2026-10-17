@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*referring to Armstrong taking off his shirt* Did he have to strip?.."
+> "Besides, it doesn't really matter, does it? Why should I care about appearances and labels anyway. It's what's on the inside that counts."
 
-&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
+&mdash; [**Haruhi Fujioka**](https://myanimelist.net/character.php?q=Haruhi%20Fujioka&cat=character), [**Ouran High School Host Club**](https://myanimelist.net/search/all?q=Ouran%20High%20School%20Host%20Club&cat=all)
