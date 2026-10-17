@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "How sad it would be if laughter should disappear."
+> "Why is it that what I want, and what's expected of me are so similar, yet so different?"
 
-&mdash; [**Undertaker**](https://myanimelist.net/character.php?q=Undertaker&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Yui Yuigahama**](https://myanimelist.net/character.php?q=Yui%20Yuigahama&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
