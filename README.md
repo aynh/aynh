@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's fine, I'll come to save you as much as you want. I'll make you fall for me as much as you wish. Leave this to your master."
+> "[Last words] Well done. You win. As promised, I entrust you with everything. After all I can't do any more at this point anyways. Man, this really annoys me. I really hate people, who put their life on the line like you. Now quickly, finish me off. If you don't hurry, I'll regenerate again. Since you will be fighting in my stead, I won't stand for it if you lose, understand?"
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Ophelia**](https://myanimelist.net/character.php?q=Ophelia&cat=character), [**Claymore**](https://myanimelist.net/search/all?q=Claymore&cat=all)
