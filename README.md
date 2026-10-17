@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why is it that what I want, and what's expected of me are so similar, yet so different?"
+> "*referring to Armstrong taking off his shirt* Did he have to strip?.."
 
-&mdash; [**Yui Yuigahama**](https://myanimelist.net/character.php?q=Yui%20Yuigahama&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Riza Hawkeye**](https://myanimelist.net/character.php?q=Riza%20Hawkeye&cat=character), [**Fullmetal Alchemist**](https://myanimelist.net/search/all?q=Fullmetal%20Alchemist&cat=all)
