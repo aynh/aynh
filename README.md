@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Even if you want to tell him and want to be with him, sometimes, that's not enough."
+> "Just like humans, approve killing animals in society, we, approve the killing of humans."
 
-&mdash; [**Tateyama Ayano**](https://myanimelist.net/character.php?q=Tateyama%20Ayano&cat=character), [**Kagerou Days**](https://myanimelist.net/search/all?q=Kagerou%20Days&cat=all)
+&mdash; [**Mutou Tohru**](https://myanimelist.net/character.php?q=Mutou%20Tohru&cat=character), [**Shiki**](https://myanimelist.net/search/all?q=Shiki&cat=all)
