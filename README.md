@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Sometimes we women must fight too, don't underestimate us!"
+> "They're part of who I am. No matter how much they hurt, they're important to me."
 
-&mdash; [**Gi-gan**](https://myanimelist.net/character.php?q=Gi-gan&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
+&mdash; [**Takashi Natsume**](https://myanimelist.net/character.php?q=Takashi%20Natsume&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
