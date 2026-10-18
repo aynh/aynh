@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm actually a hardcore otaku who likes maids more than having three meals a day. And I only read books related to maids. Also, I only visit maid cafes. Of course, I also collect maid figurines. I play games which feature female maids and it turns me on so much. Then I wear maid uniforms and jump in joy. I'll take my leave now."
+> "Studying was fun. I enjoyed solving problems quickly, and I was rewarded for the effort I put in. Studying made me feel complete."
 
-&mdash; [**Takumi Usui**](https://myanimelist.net/character.php?q=Takumi%20Usui&cat=character), [**Kaichou Wa Maid-Sama!**](https://myanimelist.net/search/all?q=Kaichou%20Wa%20Maid-Sama!&cat=all)
+&mdash; [**Shizuku Mizutani**](https://myanimelist.net/character.php?q=Shizuku%20Mizutani&cat=character), [**Tonari No Kaibutsu-kun**](https://myanimelist.net/search/all?q=Tonari%20No%20Kaibutsu-kun&cat=all)
