@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Normal? What's normal? To only do what the masses do? And what is the benefit of that? Where is the problem in adopting a custom that is 'abnormal' if it has no negative effect on the world at large?"
+> "In the end no one's going to protect you but yourself."
 
-&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
+&mdash; [**Yamato Kurosawa**](https://myanimelist.net/character.php?q=Yamato%20Kurosawa&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
