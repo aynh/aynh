@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "In the end no one's going to protect you but yourself."
+> "Sometimes we women must fight too, don't underestimate us!"
 
-&mdash; [**Yamato Kurosawa**](https://myanimelist.net/character.php?q=Yamato%20Kurosawa&cat=character), [**Sukitte Ii Na Yo**](https://myanimelist.net/search/all?q=Sukitte%20Ii%20Na%20Yo&cat=all)
+&mdash; [**Gi-gan**](https://myanimelist.net/character.php?q=Gi-gan&cat=character), [**Akatsuki no Yona**](https://myanimelist.net/search/all?q=Akatsuki%20no%20Yona&cat=all)
