@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "People do not cease to exist immediately after dying, as long as there are people who remember them."
+> "Normal? What's normal? To only do what the masses do? And what is the benefit of that? Where is the problem in adopting a custom that is 'abnormal' if it has no negative effect on the world at large?"
 
-&mdash; [**Aozaki Touko**](https://myanimelist.net/character.php?q=Aozaki%20Touko&cat=character), [**The Garden of Sinners**](https://myanimelist.net/search/all?q=The%20Garden%20of%20Sinners&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
