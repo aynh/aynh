@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Life isn't that sweet. That's why everyone wants sweet things."
+> "I always thought of humans as intelligent dominoes, since they tend to follow each other."
 
-&mdash; [**Undertaker**](https://myanimelist.net/character.php?q=Undertaker&cat=character), [**Kuroshitsuji**](https://myanimelist.net/search/all?q=Kuroshitsuji&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
