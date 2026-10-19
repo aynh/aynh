@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "About Whitebeard 'Even in death, his body did not fall. His figure, taking down enemies while losing half of his head, was truly monstrous. The total number of sword wounds he received in this battle was 267. He was shot by 152 bullets. And was hit by 46 cannonballs. And despite all this, his proud back, over the course of his entire life as a pirate, never received a single scar from running away!'"
+> "If you're gonna have great happiness, it requires great effort in exchange, that's called compensation. For the good things in life, there are the bad. For the bad things in life, there are always the good. In order for you to be happy, you must be willing to accept a burden of a equal amount of unhappiness in exchange as your payment. The more you achieve, the greater the demands will be placed upon you in return."
 
-&mdash; [**Whitebeard**](https://myanimelist.net/character.php?q=Whitebeard&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Yuuko Ichihara**](https://myanimelist.net/character.php?q=Yuuko%20Ichihara&cat=character), [**xxxHOLiC**](https://myanimelist.net/search/all?q=xxxHOLiC&cat=all)
