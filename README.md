@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Hey, Shippo. Your village called.They're asking for their idiot!"
+> "You wont be laughing once you taste our power of friendship!"
 
-&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
