@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You wont be laughing once you taste our power of friendship!"
+> "In their heart, everyone has faith that their victory exists. However, in the face of time and destiny, the act of faith is fruitless and fleeting at best."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**C.C.**](https://myanimelist.net/character.php?q=C.C.&cat=character), [**Code Geass: Lelouch of the Rebellion**](https://myanimelist.net/search/all?q=Code%20Geass%3A%20Lelouch%20of%20the%20Rebellion&cat=all)
