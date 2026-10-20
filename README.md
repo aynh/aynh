@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Accident or amnesia, you can't rewind your life and start again. If you struggle, you'll just hurt yourself, and the people around you."
+> "Hey, Shippo. Your village called.They're asking for their idiot!"
 
-&mdash; [**Tada Banri**](https://myanimelist.net/character.php?q=Tada%20Banri&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Inuyasha**](https://myanimelist.net/character.php?q=Inuyasha&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
