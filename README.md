@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Once I'm dead, I won't even be able to remember you. So I'll win, no matter what. I'll live, no matter what!"
+> "The word 'discipline' is something that I would never give up, no matter what. But it's not because it is my pride that I will not give it up. It's because I cannot give it up, that's why it is my pride."
 
-&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Hibari Kyoya**](https://myanimelist.net/character.php?q=Hibari%20Kyoya&cat=character), [**Katekyo Hitman Reborn!**](https://myanimelist.net/search/all?q=Katekyo%20Hitman%20Reborn!&cat=all)
