@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "(Master Roshi is reaching for Launch's buttocks as Krillin barges in and makes him angry) Do you time this?"
+> "Once I'm dead, I won't even be able to remember you. So I'll win, no matter what. I'll live, no matter what!"
 
-&mdash; [**Master Roshi**](https://myanimelist.net/character.php?q=Master%20Roshi&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
+&mdash; [**Mikasa Ackerman**](https://myanimelist.net/character.php?q=Mikasa%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
