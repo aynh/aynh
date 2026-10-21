@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "They're... eating my people!"
+> "(Master Roshi is reaching for Launch's buttocks as Krillin barges in and makes him angry) Do you time this?"
 
-&mdash; [**Integra Hellsing**](https://myanimelist.net/character.php?q=Integra%20Hellsing&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Master Roshi**](https://myanimelist.net/character.php?q=Master%20Roshi&cat=character), [**Dragon Ball**](https://myanimelist.net/search/all?q=Dragon%20Ball&cat=all)
