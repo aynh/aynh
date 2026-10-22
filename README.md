@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Either way, the only ones who can die tomorrow are those who survive today."
+> "[to Ichigo] Don't forget my name, Soul Reaper, and you better pray that you never hear it again! Grimmjow Jaegerjaquez...because the next time you hear my name, you'll be a dead man...I promise."
 
-&mdash; [**Dusty Attenborough**](https://myanimelist.net/character.php?q=Dusty%20Attenborough&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
+&mdash; [**Grimmjow Jeagerjaques**](https://myanimelist.net/character.php?q=Grimmjow%20Jeagerjaques&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
