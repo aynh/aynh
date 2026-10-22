@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I’m sorry. But, you know? I'm only human. It's natural that I'll fail on occasion."
+> "Either way, the only ones who can die tomorrow are those who survive today."
 
-&mdash; [**Sumeragi Lee Noriega**](https://myanimelist.net/character.php?q=Sumeragi%20Lee%20Noriega&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
+&mdash; [**Dusty Attenborough**](https://myanimelist.net/character.php?q=Dusty%20Attenborough&cat=character), [**Legend of the Galactic Heroes**](https://myanimelist.net/search/all?q=Legend%20of%20the%20Galactic%20Heroes&cat=all)
