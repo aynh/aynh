@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Betrayal demands revenge. Sin must have punishment."
+> "I’m sorry. But, you know? I'm only human. It's natural that I'll fail on occasion."
 
-&mdash; [**Horo**](https://myanimelist.net/character.php?q=Horo&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Sumeragi Lee Noriega**](https://myanimelist.net/character.php?q=Sumeragi%20Lee%20Noriega&cat=character), [**Mobile Suit Gundam 00**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000&cat=all)
