@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Showing your back in a battle? You've become a fool Yoruichi!"
+> "Why won't human emotions, not even my own, work out the way we want?"
 
-&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
+&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
