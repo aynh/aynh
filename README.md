@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Don't enter a mans bath like that!!!"
+> "Showing your back in a battle? You've become a fool Yoruichi!"
 
-&mdash; [**Manta Oyamada**](https://myanimelist.net/character.php?q=Manta%20Oyamada&cat=character), [**Shaman King**](https://myanimelist.net/search/all?q=Shaman%20King&cat=all)
+&mdash; [**Soi Fon**](https://myanimelist.net/character.php?q=Soi%20Fon&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
