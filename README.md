@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "*To Pantherlily* We'll stop it, even if my body crumbles to bits, I'll stop it with my soul!"
+> "I must find a place to pawn this off."
 
-&mdash; [**Natsu Dragneel**](https://myanimelist.net/character.php?q=Natsu%20Dragneel&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
