@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why won't human emotions, not even my own, work out the way we want?"
+> "I watch over Gin-san to protect him. Just like a fairy, like Tinkerbell!"
 
-&mdash; [**Takeo Gouda**](https://myanimelist.net/character.php?q=Takeo%20Gouda&cat=character), [**Ore Monogatari!!**](https://myanimelist.net/search/all?q=Ore%20Monogatari!!&cat=all)
+&mdash; [**Sarutobi Ayame**](https://myanimelist.net/character.php?q=Sarutobi%20Ayame&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
