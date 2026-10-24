@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I watch over Gin-san to protect him. Just like a fairy, like Tinkerbell!"
+> "Having someone saying you're okay as you are and being needed by that person... It was nice to have someone like that."
 
-&mdash; [**Sarutobi Ayame**](https://myanimelist.net/character.php?q=Sarutobi%20Ayame&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
