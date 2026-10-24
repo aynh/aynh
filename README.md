@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Having someone saying you're okay as you are and being needed by that person... It was nice to have someone like that."
+> "Often times in memory, we have the tendency to overly romanticize the people we care about."
 
-&mdash; [**Taiga Aisaka**](https://myanimelist.net/character.php?q=Taiga%20Aisaka&cat=character), [**Toradora!**](https://myanimelist.net/search/all?q=Toradora!&cat=all)
+&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
