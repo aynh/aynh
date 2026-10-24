@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I must find a place to pawn this off."
+> "Humans were meant to work and sweat for their money after all. Those that try to get rich quickly or live at expense of others - all get divine retribution along the way. That is the lesson. But, one thing about humans is that they quickly forget the lesson they have learnt."
 
-&mdash; [**Miroku**](https://myanimelist.net/character.php?q=Miroku&cat=character), [**Inuyasha**](https://myanimelist.net/search/all?q=Inuyasha&cat=all)
+&mdash; [**Jet Black**](https://myanimelist.net/character.php?q=Jet%20Black&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
