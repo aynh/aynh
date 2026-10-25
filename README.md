@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The time when you're happy is also the time when you're afraid that the happiness will end."
+> "Being a detective isn't about bringing someone down, but rather protecting someone."
 
-&mdash; [**Subarashii Sekai**](https://myanimelist.net/character.php?q=Subarashii%20Sekai&cat=character), [**Subarashii Sekai**](https://myanimelist.net/search/all?q=Subarashii%20Sekai&cat=all)
+&mdash; [**Kougami Shinya**](https://myanimelist.net/character.php?q=Kougami%20Shinya&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
