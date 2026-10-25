@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "It's okay to live, even if there's no greater point to living."
+> "Inside my memories lies sad thoughts and it's hard to forget, but I try everyday to keep moving forward in life, so why can't you, living in saddness isn't living at all."
 
-&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
+&mdash; [**Gray Fullbuster**](https://myanimelist.net/character.php?q=Gray%20Fullbuster&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
