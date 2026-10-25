@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If what you lost was too big and you can’t replace it with something else, you don’t have to replace it with just one thing, right? If you get ten small things or a hundred small things, all together it will be enough of a reason for you to keep going!"
+> "It's okay to live, even if there's no greater point to living."
 
-&mdash; [**Yoshioka Futaba**](https://myanimelist.net/character.php?q=Yoshioka%20Futaba&cat=character), [**Ao Haru Ride**](https://myanimelist.net/search/all?q=Ao%20Haru%20Ride&cat=all)
+&mdash; [**Konno Yuuki**](https://myanimelist.net/character.php?q=Konno%20Yuuki&cat=character), [**Sword Art Online II**](https://myanimelist.net/search/all?q=Sword%20Art%20Online%20II&cat=all)
