@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Being a detective isn't about bringing someone down, but rather protecting someone."
+> "What is this place? Where am I? Wherever it is, it's completely dark. I can't even see my own body. It hurts... Which way is up? Which way is down? Where am I supposed to go? Someone help me."
 
-&mdash; [**Kougami Shinya**](https://myanimelist.net/character.php?q=Kougami%20Shinya&cat=character), [**Psycho-Pass**](https://myanimelist.net/search/all?q=Psycho-Pass&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
