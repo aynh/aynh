@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "First you say I'm faster then you get the heads up on me like I'm an old lady crossing the freeway! Just once I'd like some honesty from the bad guys!"
+> "Relationships do not always improve... Sometimes they decline... But... it still counts as a victory if it all works out in the end... Let’s keep it at that..."
 
-&mdash; [**Yuusuke Urameshi**](https://myanimelist.net/character.php?q=Yuusuke%20Urameshi&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
+&mdash; [**The Will of the Whole Misaka Network**](https://myanimelist.net/character.php?q=The%20Will%20of%20the%20Whole%20Misaka%20Network&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
