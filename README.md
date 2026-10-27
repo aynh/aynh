@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Worrying about rejection may be the same as rejecting yourself."
+> "With death staring you in the face, you truly understand what it means to be alive."
 
-&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
+&mdash; [**Saori Shibuki**](https://myanimelist.net/character.php?q=Saori%20Shibuki&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
