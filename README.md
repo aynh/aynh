@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "With death staring you in the face, you truly understand what it means to be alive."
+> "The past is gone, you can not change it! But the future is based on the decision you make!"
 
-&mdash; [**Saori Shibuki**](https://myanimelist.net/character.php?q=Saori%20Shibuki&cat=character), [**Imawa no Kuni no Alice**](https://myanimelist.net/search/all?q=Imawa%20no%20Kuni%20no%20Alice&cat=all)
+&mdash; [**Yūgi Mutō**](https://myanimelist.net/character.php?q=Y%C5%ABgi%20Mut%C5%8D&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
