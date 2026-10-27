@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we were all the way up there, no one here'd look any bigger than a grain of sand."
+> "Worrying about rejection may be the same as rejecting yourself."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Kaga Kouko**](https://myanimelist.net/character.php?q=Kaga%20Kouko&cat=character), [**Golden Time**](https://myanimelist.net/search/all?q=Golden%20Time&cat=all)
