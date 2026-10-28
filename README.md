@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Eternity is wasted upon the likes of you. Try as you might, immortality slips away. And you remain with only your shame."
+> "Death on the battlefield comes regardless of class, royal or common. The loser must die!"
 
-&mdash; [**Alucard**](https://myanimelist.net/character.php?q=Alucard&cat=character), [**Hellsing**](https://myanimelist.net/search/all?q=Hellsing&cat=all)
+&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
