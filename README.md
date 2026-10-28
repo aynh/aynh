@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Death on the battlefield comes regardless of class, royal or common. The loser must die!"
+> "Accepting something is easier said than done."
 
-&mdash; [**Griffith**](https://myanimelist.net/character.php?q=Griffith&cat=character), [**Berserk**](https://myanimelist.net/search/all?q=Berserk&cat=all)
+&mdash; [**Togashi Yuuta**](https://myanimelist.net/character.php?q=Togashi%20Yuuta&cat=character), [**Chuunibyou Demo Koi Ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyou%20Demo%20Koi%20Ga%20Shitai!&cat=all)
