@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "What do you think of the word 'fate'? Does the concept of fate exists in reality? To put it simply, are people's futures set in stone when they are born, never to be challenged? Do you believe in such a rule?"
+> "I now have things that I don't want to forget, and things that I shouldn't forget. And I don't plan to ever forget those things, as long as I live."
 
-&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
+&mdash; [**Haruhiro**](https://myanimelist.net/character.php?q=Haruhiro&cat=character), [**Hai to Gensou no Grimgar**](https://myanimelist.net/search/all?q=Hai%20to%20Gensou%20no%20Grimgar&cat=all)
