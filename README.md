@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "The past is gone, you can not change it! But the future is based on the decision you make!"
+> "What do you think of the word 'fate'? Does the concept of fate exists in reality? To put it simply, are people's futures set in stone when they are born, never to be challenged? Do you believe in such a rule?"
 
-&mdash; [**Yūgi Mutō**](https://myanimelist.net/character.php?q=Y%C5%ABgi%20Mut%C5%8D&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Sanetoshi Watase**](https://myanimelist.net/character.php?q=Sanetoshi%20Watase&cat=character), [**Mawaru Penguindrum**](https://myanimelist.net/search/all?q=Mawaru%20Penguindrum&cat=all)
