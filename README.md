@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Drat, we wasted this episode cheering the good guys!"
+> "If you meet Budha - kill him, If you meet the father - kill him. Never be captivated by anyone, just live for yourself."
 
-&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
+&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
