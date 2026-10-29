@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Accepting something is easier said than done."
+> "Drat, we wasted this episode cheering the good guys!"
 
-&mdash; [**Togashi Yuuta**](https://myanimelist.net/character.php?q=Togashi%20Yuuta&cat=character), [**Chuunibyou Demo Koi Ga Shitai!**](https://myanimelist.net/search/all?q=Chuunibyou%20Demo%20Koi%20Ga%20Shitai!&cat=all)
+&mdash; [**Kojirou**](https://myanimelist.net/character.php?q=Kojirou&cat=character), [**Pokémon**](https://myanimelist.net/search/all?q=Pok%C3%A9mon&cat=all)
