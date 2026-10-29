@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If you meet Budha - kill him, If you meet the father - kill him. Never be captivated by anyone, just live for yourself."
+> "Do not lose to the obstacles that you will meet in the future. I have my own set of goals but do not pursue them because of my laziness."
 
-&mdash; [**Genjo Sanzo**](https://myanimelist.net/character.php?q=Genjo%20Sanzo&cat=character), [**Saiyuki**](https://myanimelist.net/search/all?q=Saiyuki&cat=all)
+&mdash; [**Okazaki Tomoya**](https://myanimelist.net/character.php?q=Okazaki%20Tomoya&cat=character), [**CLANNAD**](https://myanimelist.net/search/all?q=CLANNAD&cat=all)
