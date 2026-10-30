@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Nothing good comes from digging up the past."
+> "Don’t hesitate to cut the enemy. Don’t falter to finish them off. Much less heal their wounds. That’s unspeakable, nino. Leave the chocolate here. Become a demon, nino. As strong as a demon. As wicked as a demon. You have to learn that the only way to stand up against ruthlessness, is to become ruthless yourself."
 
-&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
+&mdash; [**Dordonii Alessandro Del Socacchio**](https://myanimelist.net/character.php?q=Dordonii%20Alessandro%20Del%20Socacchio&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
