@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "He has beaten me completely. First by his own actions and then through his son’s. And what has he left for me here? How? How could you die like that? How, Kakarot? I’ll never have the chance…to prove my strength against you. You died without fear. What does that make of me? I am no warrior. And I will never fight again."
+> "Nothing good comes from digging up the past."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Uryuu Minene**](https://myanimelist.net/character.php?q=Uryuu%20Minene&cat=character), [**Mirai Nikki**](https://myanimelist.net/search/all?q=Mirai%20Nikki&cat=all)
