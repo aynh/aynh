@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Never trust anyone too much, remember the devil was once an angel."
+> "That's all I wanted to say. There is nothing at the end of helping people. It is a false life that can save neither yourself nor others."
 
-&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
+&mdash; [**Archer**](https://myanimelist.net/character.php?q=Archer&cat=character), [**Fate/stay night**](https://myanimelist.net/search/all?q=Fate%2Fstay%20night&cat=all)
