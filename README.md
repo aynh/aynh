@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "You can't change anything unless you can discard part of yourself too. To surpass monsters, you must be willing to abandon your humanity."
+> "Never trust anyone too much, remember the devil was once an angel."
 
-&mdash; [**Armin Arlelt**](https://myanimelist.net/character.php?q=Armin%20Arlelt&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
+&mdash; [**Kaneki Ken**](https://myanimelist.net/character.php?q=Kaneki%20Ken&cat=character), [**Tokyo Ghoul**](https://myanimelist.net/search/all?q=Tokyo%20Ghoul&cat=all)
