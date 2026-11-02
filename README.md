@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Luck of the draw isn’t about luck. Luck doesn’t decide a match!"
+> "It's okay, cool guys see naked women all the time, I'm totally used to it."
 
-&mdash; [**Hidehiro Harada**](https://myanimelist.net/character.php?q=Hidehiro%20Harada&cat=character), [**Chihayafuru 2**](https://myanimelist.net/search/all?q=Chihayafuru%202&cat=all)
+&mdash; [**Soul Evans**](https://myanimelist.net/character.php?q=Soul%20Evans&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
