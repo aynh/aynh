@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "That's like what an evil organization in some anime would do."
+> "We cannot be satisfied until we have eliminated all others. It has nothing to do with reason. It is instinct."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
