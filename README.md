@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If the words are of rage and hate, I must accept them. I've run for so long but I can never forget."
+> "Having the love of your life break up with you and say 'we can still be friends', is like your dog dying and your mom saying 'you can still keep it'."
 
-&mdash; [**Yobiko**](https://myanimelist.net/character.php?q=Yobiko&cat=character), [**Natsume Yuujinchou**](https://myanimelist.net/search/all?q=Natsume%20Yuujinchou&cat=all)
+&mdash; [**Mai Taniyama**](https://myanimelist.net/character.php?q=Mai%20Taniyama&cat=character), [**Ghost Hunt**](https://myanimelist.net/search/all?q=Ghost%20Hunt&cat=all)
