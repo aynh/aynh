@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We cannot be satisfied until we have eliminated all others. It has nothing to do with reason. It is instinct."
+> "True beauty lies in things that last forever, never rotting or fading."
 
-&mdash; [**Akashi Seijuurou**](https://myanimelist.net/character.php?q=Akashi%20Seijuurou&cat=character), [**Kuroko No Basket**](https://myanimelist.net/search/all?q=Kuroko%20No%20Basket&cat=all)
+&mdash; [**Sasori**](https://myanimelist.net/character.php?q=Sasori&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
