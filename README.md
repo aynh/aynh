@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Just as there isn't a problem that can't be solved by being right, there isn't a problem that can't be solved by money."
+> "Smiles are what connect people! It allows them to communicate through their souls! Souls that are connected... Will never lose to power that only relies on control!"
 
-&mdash; [**Deishū Kaiki**](https://myanimelist.net/character.php?q=Deish%C5%AB%20Kaiki&cat=character), [**Nisemonogatari**](https://myanimelist.net/search/all?q=Nisemonogatari&cat=all)
+&mdash; [**Yuzu Hiiragi**](https://myanimelist.net/character.php?q=Yuzu%20Hiiragi&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
