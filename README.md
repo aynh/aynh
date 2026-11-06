@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Levels are just numbers. In this world, strength is just an illusion. There are more important things."
+> "Why is it that what I want, and what's expected of me are so similar, yet so different?"
 
-&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
+&mdash; [**Yui Yuigahama**](https://myanimelist.net/character.php?q=Yui%20Yuigahama&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
