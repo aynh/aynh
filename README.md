@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "There are people who can't act unless they're faced with a problem. Unless they find their reason. All I was left with was the sinking suspicion that I'd gone horribly wrong."
+> "For there to be pain, there has to be kindness. For darkness to stand out, there has to be the sun."
 
-&mdash; [**Hachiman Hikigaya**](https://myanimelist.net/character.php?q=Hachiman%20Hikigaya&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
