@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why is it that what I want, and what's expected of me are so similar, yet so different?"
+> "That, I don't want to do. You may feel that I'm currently an abnormal Nagato Yuki. That judgement is correct. But I myself cannot accept that I am abnormal... because if I do, I'll become alone. I was scared, so I tried to hide it."
 
-&mdash; [**Yui Yuigahama**](https://myanimelist.net/character.php?q=Yui%20Yuigahama&cat=character), [**Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku**](https://myanimelist.net/search/all?q=Yahari%20Ore%20no%20Seishun%20Love%20Come%20wa%20Machigatteiru.%20Zoku&cat=all)
+&mdash; [**Yuki Nagato**](https://myanimelist.net/character.php?q=Yuki%20Nagato&cat=character), [**The Disappearance of Nagato Yuki-chan**](https://myanimelist.net/search/all?q=The%20Disappearance%20of%20Nagato%20Yuki-chan&cat=all)
