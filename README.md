@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "For there to be pain, there has to be kindness. For darkness to stand out, there has to be the sun."
+> "Levels are just numbers. In this world, strength is just an illusion. There are more important things."
 
-&mdash; [**Kyoko Honda**](https://myanimelist.net/character.php?q=Kyoko%20Honda&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Kazuto Kirigaya**](https://myanimelist.net/character.php?q=Kazuto%20Kirigaya&cat=character), [**Sword Art Online**](https://myanimelist.net/search/all?q=Sword%20Art%20Online&cat=all)
