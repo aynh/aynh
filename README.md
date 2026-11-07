@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "This is your world. As an outsider it may be out of place to say this... But I want to make one thing clear: Mere observers have no right to decide the future!"
+> "I bet that when they run out of delicacy points, girls turn into old ladies."
 
-&mdash; [**Reiji Akaba**](https://myanimelist.net/character.php?q=Reiji%20Akaba&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
+&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
