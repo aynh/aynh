@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you feel your life's on the line, your true nature surfaces."
+> "This is your world. As an outsider it may be out of place to say this... But I want to make one thing clear: Mere observers have no right to decide the future!"
 
-&mdash; [**Shinichi Izumi**](https://myanimelist.net/character.php?q=Shinichi%20Izumi&cat=character), [**Parasyte -the maxim-**](https://myanimelist.net/search/all?q=Parasyte%20-the%20maxim-&cat=all)
+&mdash; [**Reiji Akaba**](https://myanimelist.net/character.php?q=Reiji%20Akaba&cat=character), [**Yu-Gi-Oh! Arc-V**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!%20Arc-V&cat=all)
