@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Compared to a man as big as me you realize how small you are, don't you? I understand how you feel. Even I can be frightened by my own greatness. So I find it difficult to stand in front of mirrors."
+> "We weep for the blood of a bird, but not for the blood of a fish. Blessed are those with a voice. If the dolls could speak, no doubt they'd scream, 'I didn't want to become human'."
 
-&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell 2: Innocence**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell%202%3A%20Innocence&cat=all)
