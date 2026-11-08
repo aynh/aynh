@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I bet that when they run out of delicacy points, girls turn into old ladies."
+> "Plainly speaking war is nothing other than 'wanting to impose your beliefs on your opponent.' It only happens for that reason. You don't have any exception to that rule."
 
-&mdash; [**Watashi**](https://myanimelist.net/character.php?q=Watashi&cat=character), [**Jinrui wa Suitai Shimashita**](https://myanimelist.net/search/all?q=Jinrui%20wa%20Suitai%20Shimashita&cat=all)
+&mdash; [**Koumei Ren**](https://myanimelist.net/character.php?q=Koumei%20Ren&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
