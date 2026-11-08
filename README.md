@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Plainly speaking war is nothing other than 'wanting to impose your beliefs on your opponent.' It only happens for that reason. You don't have any exception to that rule."
+> "We've never worked together before, so don't worry about teamwork! Just stay out of each other's way. Fight the way you want to fight!"
 
-&mdash; [**Koumei Ren**](https://myanimelist.net/character.php?q=Koumei%20Ren&cat=character), [**Magi - The Labyrinth of Magic**](https://myanimelist.net/search/all?q=Magi%20-%20The%20Labyrinth%20of%20Magic&cat=all)
+&mdash; [**Bors Elder**](https://myanimelist.net/character.php?q=Bors%20Elder&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
