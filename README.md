@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We've never worked together before, so don't worry about teamwork! Just stay out of each other's way. Fight the way you want to fight!"
+> "Compared to a man as big as me you realize how small you are, don't you? I understand how you feel. Even I can be frightened by my own greatness. So I find it difficult to stand in front of mirrors."
 
-&mdash; [**Bors Elder**](https://myanimelist.net/character.php?q=Bors%20Elder&cat=character), [**Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka**](https://myanimelist.net/search/all?q=Dungeon%20ni%20Deai%20wo%20Motomeru%20no%20wa%20Machigatteiru%20Darou%20ka&cat=all)
+&mdash; [**Black Star**](https://myanimelist.net/character.php?q=Black%20Star&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
