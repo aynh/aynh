@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We weep for the blood of a bird, but not for the blood of a fish. Blessed are those with a voice. If the dolls could speak, no doubt they'd scream, 'I didn't want to become human'."
+> "Strong emotions are what connect people. If you truly want to understand each other, don’t stop thinking about them."
 
-&mdash; [**Motoko Kusanagi**](https://myanimelist.net/character.php?q=Motoko%20Kusanagi&cat=character), [**Ghost in the Shell 2: Innocence**](https://myanimelist.net/search/all?q=Ghost%20in%20the%20Shell%202%3A%20Innocence&cat=all)
+&mdash; [**Sumeragi Lee Noriega**](https://myanimelist.net/character.php?q=Sumeragi%20Lee%20Noriega&cat=character), [**Mobile Suit Gundam 00: A Wakening of the Trailblazer**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000%3A%20A%20Wakening%20of%20the%20Trailblazer&cat=all)
