@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Strong emotions are what connect people. If you truly want to understand each other, don’t stop thinking about them."
+> "I'm creating trouble. Can't you see?"
 
-&mdash; [**Sumeragi Lee Noriega**](https://myanimelist.net/character.php?q=Sumeragi%20Lee%20Noriega&cat=character), [**Mobile Suit Gundam 00: A Wakening of the Trailblazer**](https://myanimelist.net/search/all?q=Mobile%20Suit%20Gundam%2000%3A%20A%20Wakening%20of%20the%20Trailblazer&cat=all)
+&mdash; [**Sohma Hatsuharu**](https://myanimelist.net/character.php?q=Sohma%20Hatsuharu&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
