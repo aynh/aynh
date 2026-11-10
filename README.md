@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Yudan sezu ni ikkou."
+> "What kind of mad scientist worries about not getting enough vegetables?"
 
-&mdash; [**Tezuka Kunimitsu**](https://myanimelist.net/character.php?q=Tezuka%20Kunimitsu&cat=character), [**Prince Of Tennis**](https://myanimelist.net/search/all?q=Prince%20Of%20Tennis&cat=all)
+&mdash; [**Okabe Rintarou**](https://myanimelist.net/character.php?q=Okabe%20Rintarou&cat=character), [**Steins;Gate**](https://myanimelist.net/search/all?q=Steins%3BGate&cat=all)
