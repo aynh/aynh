@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Always the same... Every age, every generation. Human beings are infinitely more cruel and selfish than any demon in hell."
+> "I understand now... What I really need to protect isn't myself, much less my money. It's my pride."
 
-&mdash; [**Dantalion**](https://myanimelist.net/character.php?q=Dantalion&cat=character), [**Makai Ouji : Devils And Realist**](https://myanimelist.net/search/all?q=Makai%20Ouji%20%3A%20Devils%20And%20Realist&cat=all)
+&mdash; [**Kubota Yoshinobu**](https://myanimelist.net/character.php?q=Kubota%20Yoshinobu&cat=character), [**Sakamoto desu ga?**](https://myanimelist.net/search/all?q=Sakamoto%20desu%20ga%3F&cat=all)
