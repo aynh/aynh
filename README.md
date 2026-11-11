@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "My grandfather's deck has no pathetic cards, Kaiba. But it does contain... the unstoppable Exodia!"
+> "Battle was a thing which was won by living and which was lost by dying."
 
-&mdash; [**Yami Yugi**](https://myanimelist.net/character.php?q=Yami%20Yugi&cat=character), [**Yu-Gi-Oh!**](https://myanimelist.net/search/all?q=Yu-Gi-Oh!&cat=all)
+&mdash; [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/character.php?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
