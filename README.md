@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Battle was a thing which was won by living and which was lost by dying."
+> "Sorry, I don't have time to be arrested."
 
-&mdash; [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/character.php?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=character), [**Gate: Jieitai Kanochi nite Kaku Tatakaeri**](https://myanimelist.net/search/all?q=Gate%3A%20Jieitai%20Kanochi%20nite%20Kaku%20Tatakaeri&cat=all)
+&mdash; [**Kurama**](https://myanimelist.net/character.php?q=Kurama&cat=character), [**Yu Yu Hakusho**](https://myanimelist.net/search/all?q=Yu%20Yu%20Hakusho&cat=all)
