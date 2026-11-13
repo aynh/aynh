@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Let me tell you an incomprehensible story! What is it for the actions of men to be incomprehensible? It would seem to me that if it can't be comprehended, one should not even bother trying. It is useless to even think about it, I think. That said, I don't know exactly what's going on but may we continue fighting please?"
+> "There are some things you can gain by letting some things go. Happiness isn't just what you have here and now."
 
-&mdash; [**Graham Specter**](https://myanimelist.net/character.php?q=Graham%20Specter&cat=character), [**Baccano!**](https://myanimelist.net/search/all?q=Baccano!&cat=all)
+&mdash; [**Kunio Yaobi**](https://myanimelist.net/character.php?q=Kunio%20Yaobi&cat=character), [**Tamako Market**](https://myanimelist.net/search/all?q=Tamako%20Market&cat=all)
