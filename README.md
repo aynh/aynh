@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If I can, I'd like to bring back what she has lost, what she threw away."
+> "Nothing beats a cup of herbal tea in the morning."
 
-&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
+&mdash; [**Excalibur**](https://myanimelist.net/character.php?q=Excalibur&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
