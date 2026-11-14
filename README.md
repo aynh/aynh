@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "We are both merchants, and I'll promise you one thing. We will not laugh until we get the money, and we will not cry until we go bankrupt. And guess what? We are going to laugh."
+> "There's no point in having physical strength alone. The real deal needs to have mental strength and will."
 
-&mdash; [**Kraft Lawrence**](https://myanimelist.net/character.php?q=Kraft%20Lawrence&cat=character), [**Spice and Wolf**](https://myanimelist.net/search/all?q=Spice%20and%20Wolf&cat=all)
+&mdash; [**Koyomi Araragi**](https://myanimelist.net/character.php?q=Koyomi%20Araragi&cat=character), [**Bakemonogatari**](https://myanimelist.net/search/all?q=Bakemonogatari&cat=all)
