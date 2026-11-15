@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I find it hard to believe that my cells are in your body. How could you have turned out so ugly? What a waste. Although, it’s obvious where you’ve gotten most of your strength."
+> "There would be no happier death than being killed by the woman I love."
 
-&mdash; [**Vegeta**](https://myanimelist.net/character.php?q=Vegeta&cat=character), [**Dragon Ball Z**](https://myanimelist.net/search/all?q=Dragon%20Ball%20Z&cat=all)
+&mdash; [**Kurosu Etsurou**](https://myanimelist.net/character.php?q=Kurosu%20Etsurou&cat=character), [**Ana Satsujin**](https://myanimelist.net/search/all?q=Ana%20Satsujin&cat=all)
