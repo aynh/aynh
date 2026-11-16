@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If we were all the way up there, no one here'd look any bigger than a grain of sand."
+> "Just because my reasoning is childish and wrong, and just because my argument can be easily defeated with a bit of cleverness, does not mean your reasoning is completely correct."
 
-&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
+&mdash; [**Kamijou Touma**](https://myanimelist.net/character.php?q=Kamijou%20Touma&cat=character), [**Toaru Majutsu no Index**](https://myanimelist.net/search/all?q=Toaru%20Majutsu%20no%20Index&cat=all)
