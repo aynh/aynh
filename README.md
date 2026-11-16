@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "If it’s possible for one person to be hurt by another, then it’s possible for that person to be healed by another."
+> "If we were all the way up there, no one here'd look any bigger than a grain of sand."
 
-&mdash; [**Sohma Hatori**](https://myanimelist.net/character.php?q=Sohma%20Hatori&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Mugen**](https://myanimelist.net/character.php?q=Mugen&cat=character), [**Samurai Champloo**](https://myanimelist.net/search/all?q=Samurai%20Champloo&cat=all)
