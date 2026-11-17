@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "I'm going to keep fighting until this world is the way it should be. Until the world is balanced."
+> "Too much curiosity kills both dreams and hopes..."
 
-&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
+&mdash; [**Dlanor A. Knox**](https://myanimelist.net/character.php?q=Dlanor%20A.%20Knox&cat=character), [**Umineko no Naku Koro ni Chiru Episode 8: Twilight of the...**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni%20Chiru%20Episode%208%3A%20Twilight%20of%20the...&cat=all)
