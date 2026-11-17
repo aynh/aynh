@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[On first seeing Kyo] The ceiling... Is he hurt...? Wh-who... Well, hello, orange-head..."
+> "I'm going to keep fighting until this world is the way it should be. Until the world is balanced."
 
-&mdash; [**Honda Tohru**](https://myanimelist.net/character.php?q=Honda%20Tohru&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Death the Kid**](https://myanimelist.net/character.php?q=Death%20the%20Kid&cat=character), [**Soul Eater**](https://myanimelist.net/search/all?q=Soul%20Eater&cat=all)
