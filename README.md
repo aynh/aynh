@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Too much curiosity kills both dreams and hopes..."
+> "Hard work is worthless for those that don't believe in themselves."
 
-&mdash; [**Dlanor A. Knox**](https://myanimelist.net/character.php?q=Dlanor%20A.%20Knox&cat=character), [**Umineko no Naku Koro ni Chiru Episode 8: Twilight of the...**](https://myanimelist.net/search/all?q=Umineko%20no%20Naku%20Koro%20ni%20Chiru%20Episode%208%3A%20Twilight%20of%20the...&cat=all)
+&mdash; [**Naruto Uzumaki**](https://myanimelist.net/character.php?q=Naruto%20Uzumaki&cat=character), [**Naruto**](https://myanimelist.net/search/all?q=Naruto&cat=all)
