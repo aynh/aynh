@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "[To Yuki] Liar! Moping around like a sad rat who lost his cheese!"
+> "What are you, some tantrum throwing brat who forgot to buy his Jump? Having no money is like having a sinus infection. You just have to ignore it and not pick at it, and it'll go away."
 
-&mdash; [**Sohma Kyo**](https://myanimelist.net/character.php?q=Sohma%20Kyo&cat=character), [**Fruits Basket**](https://myanimelist.net/search/all?q=Fruits%20Basket&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
