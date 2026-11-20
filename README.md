@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Oi, oi, why are you letting them chase you, idiot?"
+> "This is just my opinion, but when it comes to teaching somebody discipline... I believe pain is the most effective way."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Levi Ackerman**](https://myanimelist.net/character.php?q=Levi%20Ackerman&cat=character), [**Shingeki no Kyojin**](https://myanimelist.net/search/all?q=Shingeki%20no%20Kyojin&cat=all)
