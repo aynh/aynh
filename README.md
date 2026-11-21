@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When you are feeling sad... smile, even if you have to force yourself... If you cry when it gets painful... it will only get more painful."
+> "Why so cold, Nanao-chan?"
 
-&mdash; [**Chie**](https://myanimelist.net/character.php?q=Chie&cat=character), [**Brynhildr in the Darkness**](https://myanimelist.net/search/all?q=Brynhildr%20in%20the%20Darkness&cat=all)
+&mdash; [**Shunsui Kyōraku**](https://myanimelist.net/character.php?q=Shunsui%20Ky%C5%8Draku&cat=character), [**Bleach**](https://myanimelist.net/search/all?q=Bleach&cat=all)
