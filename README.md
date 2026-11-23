@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Have you heard this story before? When a certain traveler left on a journey in search of what he desired, he was told by his teacher: 'You mustn't lose your way, because if you make one wrong turn - you will never find what you were searching for'. But, unfortunately, the traveler lost his way and hung his head in dismay... But when he raised his head again, what he saw before him was a world even more magnificent than what the traveler was searching for. It means if you don't make mistakes, there are things you won't discover."
+> "None of that will ever happen. I hate myself! But still, I have to keep these fantasies going! If I have a thousand of them, at least one of them might come true one day. If you stop fantasizing, you have no choice but to be crushed by reality."
 
-&mdash; [**Alicia Florence**](https://myanimelist.net/character.php?q=Alicia%20Florence&cat=character), [**Aria the Animation**](https://myanimelist.net/search/all?q=Aria%20the%20Animation&cat=all)
+&mdash; [**Kidou Eita**](https://myanimelist.net/character.php?q=Kidou%20Eita&cat=character), [**Ore no Kanojo to Osananajimi ga Shuraba Sugiru**](https://myanimelist.net/search/all?q=Ore%20no%20Kanojo%20to%20Osananajimi%20ga%20Shuraba%20Sugiru&cat=all)
