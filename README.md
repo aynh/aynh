@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Man fears death and yet, at the same time, man is drawn to death. Death is endlessly consumed by men in cities and in literature. It is a singular event in one's life that none may reverse. That is what I desire."
+> "What do you think a truly unusual life would be like? Something really unique. It'd be the kind of life where every single day, nothing new ever happened. Nothing changed. That kind of a life is truly unusual."
 
-&mdash; [**Osamu Dazai**](https://myanimelist.net/character.php?q=Osamu%20Dazai&cat=character), [**Bungou Stray Dogs 2nd Season**](https://myanimelist.net/search/all?q=Bungou%20Stray%20Dogs%202nd%20Season&cat=all)
+&mdash; [**Anri Sonohara**](https://myanimelist.net/character.php?q=Anri%20Sonohara&cat=character), [**Durarara!!**](https://myanimelist.net/search/all?q=Durarara!!&cat=all)
