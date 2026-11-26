@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Why don't we drink to me and my reflection in your lovely eyes?"
+> "Breaking a bond is every bit as painful as being physically torn apart. Can you endure that?"
 
-&mdash; [**Andy Von De Oniyate**](https://myanimelist.net/character.php?q=Andy%20Von%20De%20Oniyate&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
+&mdash; [**Amamiya Yuuko**](https://myanimelist.net/character.php?q=Amamiya%20Yuuko&cat=character), [**Ef - A Fairy Tale Of The Two**](https://myanimelist.net/search/all?q=Ef%20-%20A%20Fairy%20Tale%20Of%20The%20Two&cat=all)
