@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "Fear isn't evil, it only allows us to learn our own weaknesses. When we learn our weakness, people can grow stronger and kinder."
+> "Why don't we drink to me and my reflection in your lovely eyes?"
 
-&mdash; [**Gildarts Clive**](https://myanimelist.net/character.php?q=Gildarts%20Clive&cat=character), [**Fairy Tail**](https://myanimelist.net/search/all?q=Fairy%20Tail&cat=all)
+&mdash; [**Andy Von De Oniyate**](https://myanimelist.net/character.php?q=Andy%20Von%20De%20Oniyate&cat=character), [**Cowboy Bebop**](https://myanimelist.net/search/all?q=Cowboy%20Bebop&cat=all)
