@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "'If I do this, I can stop the rebellion', 'if I do that, I can stop the rebellion'... Open your eyes, princess! Your zealous idealism disgusts me! Ideals can only be spoken by those powerful enough to carry them out. And that excludes you!"
+> "When boys get to a certain age, family becomes a bother. That's how they become independent."
 
-&mdash; [**Crocodile**](https://myanimelist.net/character.php?q=Crocodile&cat=character), [**One Piece**](https://myanimelist.net/search/all?q=One%20Piece&cat=all)
+&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
