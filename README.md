@@ -13,6 +13,6 @@
 
 #### 💬
 
-> "When boys get to a certain age, family becomes a bother. That's how they become independent."
+> "Failing to act, for fear of the risk, is no different than a living death. No matter what world you’re in."
 
-&mdash; [**Gintoki Sakata**](https://myanimelist.net/character.php?q=Gintoki%20Sakata&cat=character), [**Gintama**](https://myanimelist.net/search/all?q=Gintama&cat=all)
+&mdash; [**Crusty**](https://myanimelist.net/character.php?q=Crusty&cat=character), [**Log Horizon**](https://myanimelist.net/search/all?q=Log%20Horizon&cat=all)
